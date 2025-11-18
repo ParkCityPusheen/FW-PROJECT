@@ -1,0 +1,15 @@
+{
+	"nodes":[
+		{"id":"3d5e3500c54a07e7","x":100,"y":-520,"width":332,"height":220,"color":"2","type":"text","text":"# Riorson Reservations\n* Owned & Managed: FEN RIORSON \n* Run by son Xaden Riorson in his absense\n* OWNS Mairi Ranching, though it operates independently\n* An estate & property firm "},
+		{"id":"27247c1701b69332","x":100,"y":-220,"width":332,"height":100,"color":"4","type":"text","text":"Allows DAIN AETOS boarding in exchange for assisting as a ranch hand"},
+		{"id":"711f3a6e2443e81d","x":-260,"y":-520,"width":340,"height":220,"color":"4","type":"text","text":"# Cath Carnegie\n* Major shareholder for R&R\n* Takes legal custody of Dain when he's 16\n* Owns an Rifling and Hunting Weaponry company"},
+		{"id":"810046782f6a7230","x":-620,"y":-520,"width":332,"height":220,"color":"1","type":"text","text":"# Mairi Ranching\n* CO-Owned & Managed: ISAAC MAIRI (dec.)\n* Run by son Liam Mairi in his absence\n* Ranching Operation organized by Sloane Mairi\n* Since parents have passed they struggle to manage the company"},
+		{"id":"d598174949b29f39","x":500,"y":-520,"width":460,"height":220,"color":"4","type":"text","text":"# DAIN AETOS\n* SEVERAL substance addictions\n* Alcoholic\n* Extremely smart: ambidextrous, dude speaks in MATH, amazing shot with firearm\n* Suffers sensory trauma due to Hyperthymesia\n* He hates hooved animals but they LOVE him\n* Love Cats\n* Speaks several different languages\n* Spooked by bridges\n* Can't swim\n* EXTREMELY claustrophobic "},
+		{"id":"66f3312ee921d70f","x":500,"y":-280,"width":460,"height":220,"color":"1","type":"text","text":"# SLOANE MAIRI\n\n* Extremely long hair\n* THICK ACCENT, LIKE THICK.\n* Very religious\n* VIRGIN\n* Stubborn\n* Loud\n* Very methodical; does not like to break routines\n* Very clean\n* Very militant\n* Wants to go to veterinarian school... Dain gives up his shares in his father's company to send her to the best.\n* BABIED BY: XADEN, BODHI, LIAM VERY BADLY"},
+		{"id":"3163872d16a94f48","x":-980,"y":-520,"width":332,"height":220,"color":"6","type":"text","text":"# Panchek-Varrish & Associates (PVAC)\n* Cannot re-zone Riorson Reservation because of the Church/Chapple\n* Kills & poisons livestock\n* "}
+	],
+	"edges":[
+		{"id":"47e6c804330d9e86","fromNode":"3d5e3500c54a07e7","fromSide":"bottom","toNode":"27247c1701b69332","toSide":"top"},
+		{"id":"4033f5e847b587f6","fromNode":"711f3a6e2443e81d","fromSide":"bottom","toNode":"27247c1701b69332","toSide":"top"}
+	]
+}
