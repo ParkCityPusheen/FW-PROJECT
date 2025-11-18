@@ -1,5 +1,7 @@
 its hard to fill the shoes of someone ive never been
 
+DAIN READING IN THE DINING HALL WITH HIS GLASSES ON DURING DINNER HOURS AND ALL THE WING'S FEMALES ARE BASICALLY SITTING OPPOSIT OF HIM IN ONE ROW AND HE DOESN'T REALIZE IT AND SLOANE IS LIKE HELLOOOO SITUATIONAL AWARENESS??
+
 Dain gets his medical status pulled: cleared for flight
 
 Cath agrees to allow Thoirt and Sloane to watch them go deep sea fishing
