@@ -1,56 +1,56 @@
-SLOANE | CHAPTER 31, HEART
+Sloane watches Dain track Thoirt as she breaks away from the courtyard, kicking up gravel, dust, and dirt alike, but his eyes never once leave her strawberry form as it rips across the open sky so sleek and aerodynamic that the air tears at her taloned wingtips, separating into white trails in their wake. The gusts she's created pull Dain's curls into flirty wisps that fall across his brow and she can't help admiring just how *boyish* he looks in that moment. His eyes round like dinner plates and bracketed by long, brownish lashes, hands open and useless at his sides, his flight goggles hanging from his neck and draped across his cloak's brass clasp. Sloane remembers then, he might be her upperclassman and superior, but he's as unknowing and new to all of this as she is.
 
-Sloane is hyperaware of him, not that she hadn't been before, but *now* with a pathway opened between the two of them, with their dragons bound in way that humans could never be, they get to experience part of that.
+She's also doubly hyperaware of Dain, not that she hadn't been before, but now with a pathway opened between the two of them, with their dragons bound in a way that humans could never be, they get to experience part of that.
 
-It's *nice* in light of their acknowledged feelings, but just as terrifying and uncharted.
+It's almost a treat in light of their acknowledged feelings, but just as terrifying as it is uncharted.
 
 There was no more second guessing herself in dire moments. No more choosing to stop and bleed out on the mat in the name of joining Liam. If she dies, he dies, vice-versa; the simple arithmetic of it cleaves sharp and clean. There's no negotiating with this kind of finality, no tactical workaround or clever strategy to mitigate the risk.
 
 If *he* dies *she* dies.
 
-She watches him track Thoirt as she breaks away from the courtyard, kicking up gravel, dust, and dirt alike, but his eyes never once leave her strawberry form as it rips across the open sky so sleek and aerodynamic that the air tears at her taloned wingtips separate into white trails in their wake. The gusts she'd created pulls Dain's curls into flirty wisps that fall across his brow and she can't help admiring just how *boyish* he looks in that moment. His eyes round like dinner plates and bracketed by long, brownish lashes, hands open and useless at his sides, his flight goggles hanging from his neck and draped across his cloak's brass clasp. Sloane remembers then, he might be her upperclassman and superior, but he's as unknowing and new to all of this as *she* is.
+Sloane finds herself reaching tentatively along that new pathway between them, testing its weight, its texture, emboldened by Dain's distraction and reverence to Thoirt when the bond opens beneath her like a trapdoor.
 
-It's only their first time living.
+Thoirt's presence in her mind had always been vast and ancient and comforting, all flame and gentle with the weight of maternal playfulness; it fills the spaces in her heart the way mountains fill landscapes: immovable and eternal. But where Thoirt burns steady and slow, Dain flickers and surges; where her dragon's emotions roll through in consistent tidal movements, his crash over her in rapid succession, layered and complex and so immediate it makes her lungs seize.
 
-Sloane finds herself reaching tentatively along that new pathway between them, testing its weight, its texture, emboldened by his distraction and reverence to Thoirt and bond opens beneath her attention like a trapdoor.
+Sloane knows the exact moment Dain recognizes her presence in the bond because everything in him goes still, a deliberate pause where she can feel him processing, measuring, before he turns to face her, and the shields she hadn't been aware were in place, *drop.*
 
-Thoirt's presence in her mind is vast and ancient and comforting, all flame and gentle with the weight of maternal playfulness; it fills the spaces in her heart the way mountains fill landscapes: immovable and eternal. But where Thoirt burns steady and slow, he flickers and surges; where her dragon's emotions roll through in great tidal movements, his crash over her in rapid succession, layered and complex and so immediate it makes her lungs seize.
+He slams into her without warning, his wonder and terror and fierce protectiveness and desire all tangled together in a surge so intense she actually staggers. There's no filter, no careful modulation; just the raw overwhelm of everything he feels laid bare in her mind. Adoration so tender it makes her heart hurt for him. Fear so bold she can feel it prodding her shoulder, daring her to look over it. The desperate, aching need to touch her, to confirm she's real, to never let her go, to consume her entirely before there's the chance to lose her, all of it burning through the bond in pulses that leave her gasping. It's too much, too fast, too human in its chaotic intensity.
 
-He feels her there. She knows the exact moment Dain registers her presence in the bond because everything in him goes still, that careful control he wears like armor locking down for one missed heartbeat, then he turns to face her, and the shields she hadn't been aware were in place, *drop.*
+It's not the clean, powerful simplicity of dragon emotion but something infinitely more complex, more fragile, and more devastating in its vulnerability.
 
-It slams into her without warning, his wonder and terror and fierce protectiveness and desire all tangled together in a surge so intense she actually staggers. There's no filter, no careful modulation; just the raw overwhelm of everything he feels laid bare in her mind. Adoration so tender it makes her heart hurt for him. Fear so bold she can feel it prodding her shoulder, daring her to look over it. The desperate, aching need to touch her, to confirm she's real, to never let her go, to consume her entirely before theres the chance to lose her, all of it burning through the pathway in waves that leave her gasping. It's too much, too fast, too human in its chaotic intensity. It's not the clean, powerful simplicity of dragon emotion but something infinitely more complex, more fragile, more devastating in its vulnerability.
+Dain's emotions are layered upon layered, contradictory and messy and so overwhelmingly present that she feels like she's being turned inside out. The discomfort of it spasms beneath her skin, this odd wrongness of experiencing another human's internal landscape so completely, of having nowhere to hide from the sheer *muchness* of what he feels.
 
-Dain's are layered upon layered, contradictory and messy and so overwhelmingly present that she feels like she's being turned inside out. The discomfort of it crawls beneath her skin, this odd wrongness of experiencing another human's internal landscape so completely, of having nowhere to hide from the sheer *muchness* of what he feels.
+Then, his shields snap back into place with almost physical force, and his sudden absence leaves her reeling, gasping for air—she hadn't realized she'd stopped breathing and careens forwards, slamming her palms into her knees. His shields are solid walls, unmoving, thick, and sound. The kind of shields she imagines riders who are bonded to their dragons for decades would have.
 
-Then the shields snap back into place with almost physical force, and the sudden absence leaves her reeling, gasping for air—she hadn't realized she'd stopped breathing and careens forwards, slamming her palms into her knees. Dain's shields are akin to castle ramparts: unmoving, thick, and sound. The bond is still there, still humming between them, but muted now, manageable in that fogged, glittering version of it's self and not the rapid-firing galaxy that was spinning around her. Somehow that restraint, that evidence of Dain's control, is almost as overwhelming as the flood that preceded it.
+The bond is still there, still humming between them, but it's muted now, manageable in that fogged, glittering version of itself and not the rapid-firing galaxy that was spinning around her. Somehow that restraint, that evidence of Dain's control, is almost as overwhelming as the flood that preceded it.
 
 That flood reminds her of when she siphoned from him to save Mira; it was the same force she'd felt then that he hides from her now.
 
-"You have so much magic..." she pants, standing back up slowly, "Will you always shield?"
+"You have so much magic..." she pants, standing back up slowly, "Do you always shield?"
 
 His answer is immediate: "Always hungry, always shielding."
 
 "So you feel *that* too?"
 
-"I do, especially when Cath and I get into it. But for the most part it's normal for me." he pauses, "Are you okay? We should head in," then he clears his throat.
+"I do, especially when Cath and I get into it. But for the most part it's normal for me." He pauses. "Are you okay? We should head in," then he clears his throat.
 
 "Maybe we could just relax the rest of the day?" he gestures to the fortress entrance, avoiding her gaze.
 
 Sloane moves to stand closer to him; he doesn't seem willing to delve anymore into whatever that was, "What do you do to relax?"
 
-"Study. Read. Write up reports. Nothing to help grade anymore, and no one let's me help with anything because the whole House knows I'm on med orders."
+"Study. Read. Write up reports. Nothing to help grade anymore, and no one lets me help with anything because the whole House knows I'm on med orders."
 
 She nods, "That's fine by me. Maybe I could get some advice from a retired Squad Leader on expectations I should have?"
 
 He smiles widely, eyes crinkling at the corners, and she nearly goes fucking blind.
 
-"Sounds like a great idea Sloane."
+"Sounds like a great idea Sloane." Dain grins.
 
-The grand hall stretches before them in all its stone-carved splendor, vaulted ceilings disappearing into shadow, but Sloane can barely register the architecture; her attention keeps snagging on him, on the way he makes sure he walks next to her and not in front of her.
+The grand hall stretches before them in all its stone-carved splendor, vaulted ceilings disappearing into shadow. Her attention keeps snagging on him, on the way he makes sure he walks next to her and not in front of her.
 
 Passing with Dain through Riorson House is nothing like Basgiath; there's no tension threading through his shoulders, no carefully neutral expression meant to deflect scrutiny. Here, riders nod with genuine respect as they pass, fliers call out greetings that sound friendly rather than obligatory, and the staff members who step aside do so with smiles instead of wary calculation. She watches a guard stationed near the corridor actually grin when Dain returns a chest-thumping greeting, watches the way her lieutenant's posture stays loose and easy instead of that rigid military bearing he wore in Navarre.
 
-He commands space without trying, shoulders broad beneath that cloak, jaw sharp and raised, *proud,* but it's different here; he's not bracing for judgment or waiting for someone to make a snide remark about his position. He just exists, comfortable in his own skin, and she finds herself cataloging how much lighter he seems, how he looks almost...
+He influences space without trying, shoulders broad beneath that cloak, jaw sharp and raised, *proud,* but it's different here; he's not jumpy, and his eyes don't flick to glance down the connected hallways as they pass them, he doesn't get tense when he makes eye contact with other people. Sloane finds herself cataloging how much lighter he seems, how he looks almost...
 
 Happy?
 
@@ -58,11 +58,11 @@ She glances over at him.
 
 Dain's default was typically tired, stressed, or *both.*
 
-A group of second years from their Wing crowds the corridor ahead, their chatter echoing off stone, and Dain's hand settles warm and possessive at her waist, guiding her ahead of him with a gentle but firm pressure. That touch steals her breath, his palm broad enough to span what feels like a third of her lower back, and suddenly she's remembering that same grip from last night—how those hands wrapped nearly all the way around her waist, fingers almost touching when he'd held her down and thrust into her, how he'd gripped her there to control the angle, the depth, the devastating rhythm that had her coming apart beneath him.
+A group of second years from their Wing crowds the corridor ahead, their chatter echoing off stone, and Dain's hand settles warm and possessive at her tailbone, guiding her ahead of him with a gentle but firm pressure. That touch steals her breath, his palm broad enough to span what feels like a third of her lower back, and suddenly she's remembering that same grip from last night—how those hands wrapped nearly all the way around her waist, fingers almost touching when he'd held her down and thrust into her, how he'd gripped her there to control the angle, the depth, the devastating rhythm that had her coming apart beneath him.
 
 She waves the thought away, shaking her head and ignoring the confused look he points down at her.
 
-The second years part around them with hasty apologies and Dain's hand remains, steady and grounding, as they continue forward. She can feel the heat of him through her uniform, feeling of every point of contact, and the bond hums quietly at her blustering carrying an undercurrent of her emotion to his awareness; he doesn't even know what he's doing to her, she realizes, and heat pools low in her belly as they finally reach the corridor leading to his suite.
+The second years part around them with hasty apologies and Dain's hand remains, steady and grounding, as they continue forward. She can feel the heat of him through her uniform, feeling every point of contact, and the bond hums quietly at her blustering, carrying an undercurrent of her emotion to his awareness; he doesn't even know what he's doing to her, she realizes, and heat pools low in her belly as they finally reach the corridor leading to his suite.
 
 "I'm sure we'll have company at some point so we should enjoy the rest of whatever time we have alone for now," Dain grumbles while fishing in his trouser pocket for the key to his room.
 
@@ -74,7 +74,7 @@ He could easily use magic, she thinks, to flick the lock open.
 
 He only clears his throat, sliding the key into the lock in a swift and sure movement, inserting it perfectly on the first attempt, "There's classified documents in here regarding both myself and Squadron. They won't let me ward the room, and the lock isn't a simple mechanism that can just be pulled, either."
 
-Dain glances over his shoulder at her in a moment of thought, then concludes: "I'll make sure I get you a copy of the key this week, before you leave,"
+Dain glances over his shoulder at her in a moment of thought, then concludes: "I'll make sure I get you a copy of the key this week, before you leave."
 
 The metal clicking of the locking cylinder pins is hushed as he shoves the door open, pivoting his upper body and grabbing Sloane's waist to sweep her inside, forcing her to enter before he does in a graceful pirouette motion.
 
@@ -104,7 +104,7 @@ She's falling for him more and more with every passing second, and honestly what
 
 The thought should terrify her, but instead she's acutely aware of how close he's standing, of the way physical touch between them has shifted. Kissing was already overwhelming before; the bond amplifies it into something ethereal.
 
-The missives in Dain's hands drop, forgotten, papers fluttering to the floor around them as he abandons all pretense of composure. His mouth crashes against hers, greedy and desperate; his hands burn fiery trails down the sides of her waist as his knee shoves between her legs, parting them and supporting her weight as she melts into him.
+Sloane watches the reports from this morning's meeting that he'd been carrying flutter from his hands to the floor, forgotten, as he abandons all pretense of composure. His mouth crashes against hers, greedy and desperate; his hands burn fiery trails down the sides of her waist as his knee shoves between her legs, parting them and supporting her weight as she melts into him.
 
 *"Thank you for accepting us,"* he murmurs, utilizing the bond for all it's worth, 
 
@@ -134,7 +134,7 @@ Dain breaks the kiss while leading them to the sitting area ahead of his desk; h
 
 The pathway exclusively for the two of them swells white, overlapping and making her dizzy; it's a simple thread of glistening, white fog-like magic that twists and turns and braids against itself infinitely times over,
 
-*"Do you not want to talk to me... here?"* He's *pouting* and inwardly Sloane clasps her hands over her face: she might explode, she's not sure yet.
+*"Do you not want to talk to me... here?"* He's *pouting* and inwardly Sloane clasps her hands over her face: she might explode at all these new versions of him, she's not sure yet.
 
 Sloane's eyes chase up to his sienna ones, widening when she sees the intoxicating desperation there; he looks like he might beg for her to,
 
@@ -168,7 +168,7 @@ His jaw works for a moment, and she watches him visibly swallow whatever else he
 
 Her fingers settle against his scalp, hesitant at first. The bond between them feels fragile, like spun glass threatening to shatter if either of them pushes too hard. For several heartbeats neither speaks, and the weight of what she accidentally revealed hangs there like smoke.
 
-*"We're talking about it tonight,"* he *pouts,* before adding: *"And where's the issue in that?"*
+*"We're talking about it tonight,"* he reluctantly accepts before adding: *"And where's the issue in that?"*
 
 Sloane laughs, but her voice carries a slight edge she can't quite soften, "I was ornamental, Dain. I was trained to be docile, elegant, and politically useful."
 
@@ -176,13 +176,13 @@ His gaze lowers to his lap, then flicks back to her face, the intensity there fl
 
 When she looks away his fingers find the underside of her chin and he pulls her face down to his,
 
-"It's much easier to kill than play politics." something behind those warm, chocolate irises shift, and the bond goes stiff,
+"It's much easier to kill than play politics." something behind those warm, chocolate irises shifts, and the bond goes stiff,
 
 "Especially when it would be easier to kill them all."
 
-Sloane opens her mouth to speak, to agree absentmindedly, but the bond gone completely cold and positively frozen as if it had never been anything but a whipping *tundra.* She sits ramrod straight in his lap, chin still settled against his fingers.
+Sloane opens her mouth to speak, to agree absentmindedly, but the bond has gone completely cold and positively frozen as if it had never been anything but a whipping *tundra.* She sits ramrod straight in his lap, chin still settled against his fingers.
 
-Sloane's pulse kicks up at the keen, clarifying awareness awoken from recognizing a predator in close quarters. She's seen him fight, seen him behead Kubic without hesitation, but this is different; this she can *feel.* The violence isn't circumstantial and suggested fickly. It lives in him, just under his skin. 
+Sloane's pulse kicks up at the keen, clarifying awareness awoken from recognizing a predator in close quarters. She's seen him fight, seen him behead Kubic without hesitation, but this is different; this she can *feel.* The violence isn't circumstantial and suggested fleetingly. It lives in him, just under his skin. 
 
 *Waiting.*
 
@@ -202,11 +202,11 @@ Had his shields dropped in that moment? She feels around for them and finds them
 
 *"And does the bond feel a way to you—hot, maybe cold?"*
 
-Dain parts his lips and sucks a quick breath in through his teeth, *"With Cath normally I feel.. winds, depending on our moods. When I speak with Thoirt it's nice, like I'm suspended in water that's perfectly matched to my body temperature,"* his eyes dart around, *"and with you everything is just warm. But sometimes I feel like I'm melting."*
+Dain parts his lips and sucks a quick breath in through his teeth, *"With Cath normally I feel... winds, depending on our moods. When I speak with Thoirt it's nice, like I'm suspended in water that's perfectly matched to my body temperature,"* his eyes dart around, *"and with you everything is just warm. But sometimes I feel like I'm melting."*
 
 *"I can't tell if I'm melting into you or because of you sometimes."* shyly, she admits, *"I guess either way it's fine."*
 
-His laugh this time is breathy and through his nose, "Occasionally you think of something that makes me feel gouged. Like... I'm just empty on the inside."*
+His laugh this time is breathy and through his nose, *"Occasionally you think of something that makes me feel gouged. Like... I'm just empty on the inside."*
 
 *"For you it's cold. It's freezing and that light that I always see there snuffs out."* She drops her head to his chest, *"It scares me, being there in the dark by myself when you should be there with me."*
 
@@ -240,7 +240,7 @@ Dain chuckles, voice so gentle and slow she feels the ebbing pull of sleep for a
 
 "Cath is definitely not like Thoirt." Sloane agrees, falling back against him,
 
-*"And he could never be."* her daggertail purrs in the pathway meant for just herself and Sloane her mentioning, then in another meant for the four of them she adds, *"Cathachadh was never the social type, even in his youth. The den jokes he shares a social tolerance with Codagh. Minnow has surely changed him these last few springs; it shows."*
+*"And he could never be."* her daggertail purrs in the pathway meant for just herself and Sloane at her mentioning, then in another meant for the four of them she adds, *"Cathachadh was never the social type, even in his youth. The den jokes he shares a social tolerance with Codagh. Minnow has surely changed him these last few springs; it shows."*
 
 Dain snorts and drops his head against the sofa's back cushions, *"I can't tell."*
 
@@ -252,13 +252,11 @@ She crawls out of his lap and settles herself on the sofa, watching as Dain slow
 
 He's still far from fully healed.
 
-His hands wrap around her calf, warm and steady, and he begins unlacing her first boot with practiced precision. Each pull of the laces is gentle,and she watches the way his fingers work, his palms are callused and careful, strong, but soft,
+His hands wrap around her calf, warm and steady, and he begins unlacing her first boot with practiced precision. Each pull of the laces is gentle, and she watches the way his fingers work, his palms are callused and careful, strong, but soft,
 
 "I heard Squadron Zero's expedition is going to be much longer and riskier than you've been letting on."
 
-He eases the boot free with tender care, sets it aside, then his palm slides up her leg, thumb stroking the arch of her foot through her sock. The movement is hypnotic in the way he handles her like she's porcelain.
-
-He works on her second boot, and when both boots are discarded, he doesn't move. He stays kneeling there, hands resting on her thighs, looking up at her with shades of sepia, soft and searching,
+He eases the boot free with tender care, sets it aside, then his palm slides up her leg, thumb stroking the arch of her foot through her sock. The movement is hypnotic in the way he handles her like she's porcelain. He works on her second boot, and when both boots are discarded, he doesn't move. He stays kneeling there, hands resting on her thighs, looking up at her with shades of sepia, soft and searching,
 
 "Should be two months," he mutters against the protective padding of her sparring pants, "Could be four."
 
@@ -266,7 +264,7 @@ He works on her second boot, and when both boots are discarded, he doesn't move.
 
 His head shakes, "While within Navarre's borders. In Poromiel we're only observing in hopes to help the Poromish develop a better defensive method. I know it'll take longer to be accepted. King Tauri isn't just going to go with the flight plan we presented."
 
-"You still presented it though, so I'm assuming you think you'll eventually have the upperhand?"
+"You still presented it though, so I'm assuming you think you'll eventually have the upper hand?"
 
 He nuzzles his forehead into her thigh, "Poromiel is Navarre's first ward before their own is how I'll spin it for approval if things continue to not go my way."
 
@@ -274,7 +272,7 @@ She's supposed to be following his logic, and she is, mostly, but the casual int
 
 He sighs so deeply his body trembles. Dain's arms wrap around her waist and his hands settle by his elbows. She'd grovel at seeing him wrapped around her so sweetly if it weren't for the disgust she feels that makes their pathway separate like oil against water,
 
-*"Innocent civilians being slaughtered by venin and I have to endorse their suffering in the name of Navarre as if we running head first into the same reality. In the end we'll all die the same if we can't work together."*
+*"Innocent civilians being slaughtered by venin and I have to endorse their suffering in the name of Navarre as if we are running head first into the same reality. In the end we'll all die the same if we can't work together."*
 
 Sloane drops her hands back into his wispy curls, running her hands through light brunette strands that part further as her fingernails drag against them,
 
@@ -312,7 +310,7 @@ Getting unbearably hot.
 
 "It's just you. And maybe a house by a lake. And an Aretian Schoolhouse."
 
-Sloane see her words hit him like a crossbolt, and she watches his pupils blow wide, feels his sharp kick of *want* and *need* that flares through their connection like a match struck in the dark. His breathing changes, chest rising deeper, and his hands tighten fractionally on her waist. Oh. *Oh.*
+Sloane sees her words hit him like a crossbolt, and she watches his pupils blow wide, feels his sharp kick of *want* and *need* that flares through their connection like a match struck in the dark. His breathing changes, chest rising deeper, and his hands tighten fractionally on her waist. Oh. *Oh.*
 
 The molten heat racing through their bond makes it impossible to think straight, makes everything feel heavy and intimate and *inevitable.* She almost forgets whatever point she was trying to make.
 
@@ -332,51 +330,49 @@ She means it. Every word.
 
 His breath catches, and the bond surges, his devotion and loyalty, his affection and lust all flooding through in waves that make her dizzy.
 
-She pulls him up to her before he can speak, before he can question or doubt, and kisses him. His mouth opens under hers instantly, yielding and hungry, and she lances him with a heat of her own; her want, her certainty, her absolute faith in what they could build together. His hands slide up her sides, trembling slightly, encapsulating her like a sentinel *or* her predator, she can't tell.
+She doesn't give him time to speak, to question or doubt; she bends down, pulling his face up from her lap and crashing her mouth against his. He's still on his knees before her, head lifting to meet her, and his mouth opens under hers instantly, yielding and hungry, and she lances him with a heat of her own; her want, her certainty, her absolute faith in what they could build together. His hands slide up her sides, trembling slightly, encapsulating her like a sentinel *or* her predator, she can't tell.
 
-When she pulls back just enough to speak, their lips still brushing, she whispers into his mouth and into the bond simultaneously:
+Sloane feels his fingers hook into the waistband of her sparring leathers, tentative at first, then determined. She hadn't noticed them moving there but she feels it now, feels the intent blazing through him as he starts working them down her hips from where he still kneels on the floor. She fights it reflexively. Her hands catching his wrists, the motion half protest and half encouragement but his grip is sure and she's equally willing.
 
-*"We could light a beacon, you could guide us away from death—on our wings rides the future we deserve."*
+*"You... are you pushing for Tyrrish independence?"* His voice in her mind is awed, breathless.
 
-She feels his fingers hook into the waistband of her sparring leathers, tentative at first, then determined. She hadn't noticed them moving there but she feels it now, feels the intent blazing through him as he starts working them down her hips. She fights it reflexively. Her hands catching his wrists, the motion half protest and half encouragement but his grip is sure and she's equally willing, her body arching into him even as she squirms.
+*"Wouldn't you rather die than actively participate in whatever narrative Navarre is spinning?"*
 
-*"You... are you pushing for Tyrrish independence?"* His voice in her mind is awed; breathless, *"Are we meant to be martyrs?"*
-
-*"Wouldn't you rather die than participate in whatever narrative Navarre is spinning? That and you're the one who said I could use you."*
-
-Sloane squeals when he yanks her pants down in one decisive movement, taking her with them, and they tumble from the sofa onto the plush rug below. She's left with her lower back splayed across the couch, legs wide, her hair sticking to the cushions. The bond explodes into unbearable heat the moment his palms make contact with her bare thighs, calloused and melting hot against her skin.
-
-His fingers catch the hem of her panties and she feels him shake with restraint, with want, with the  flashes of feeling and yearning crashing through their connection so intensely she can't tell where hers end and his begin.
+His fingers catch the hem of her panties and she feels him shake with restraint, with want, with the flashes of feeling and yearning crashing through their connection so intensely she can't tell where hers end and his begin.
 
 It's just them.
 
 Only them.
 
-He puts her in the same position he had her in last night: on her back with her knees at the sides of her head, wholly exposed to him. Sloane feels the velvet of the sofa cushions against her shoulder blades, the carpet biting into the small of her back, and the weight of Dain's grip locking her open until the thought of resisting collapses into a breathless ache that ripples through her limbs.
+Dain doesn't need to move from his knees; his arms are long enough, his reach broad enough, that he simply pulls her toward the edge of the sofa and positions her there. She's struck by how easily he does it, how much bigger he is than her, than most riders she's trained with. He folds her back against the cushions, her knees already lifting, and she's helpless to do anything but let him.
 
-*"I'll give you everything you ask for."*
+It's just like last night.
+
+*"I'll do anything you ask, Sloane."*
 
 Her lungs stutter when he presses her thighs higher, the strain delicious, the burn of her muscles a clarifying blaze that throws every nerve into sharp relief. She *likes* it. *Gods*, she likes it far too much, the helplessness that is not fear but permission, the way his palms bracket her behind her knees like iron cuffs. The realization flares through her and the bond answers with an incandescent surge that scatters coherent thought; she wants to be caged there, wants to feel him lose himself, wants to know how long he would hold her down if she begged for it.
 
 How much harder he would restrain her if she fought against it.
 
-The question unravels before she can swallow it: does he like her like this? Does he want her spread and pliant, offered up entirely to him, unable to fend him off even if she tried? The idea takes root and blooms into molten submission, curling low in her belly until she is dizzy from craving the approval she feels pulsing from him in the bond's white-hot beat.
+She wonders, does he like her like this? Does he want her spread and pliant, offered up entirely to him, unable to fend him off even if she tried? The idea takes root and blooms into molten submission, curling low in her belly until she is dizzy from craving the approval she feels pulsing from him in the bond's white-hot beat.
 
-"We *have* to find Xaden, Dain." her eyes roll when his thumb finds her clit and he pushes upwards, towards her naval, "We can't win against him especially if they have him."
+Something else snags at the edge of her awareness, an anecdote unmentioned from their earlier conversation that won't let go. All this planning, all these alliances, all this building—it means nothing if they can't actually win. And winning means finding the one person who could turn the tide. The only person who actively stands a chance against the Duchess of Tyrrendor.
 
-She presses at him in their shared pathway and the the flittering white fog of the bond explodes into scattered shards of her emotion, of her desperation. She needs to get this out, she's not done talking—
+"We *have* to help Violet find Xaden, Dain." her eyes roll when his tongue dips across her pelvis and he pushes upwards, "We can't win against him especially if they have him."
 
-*"Don't mention other men while my hands are on you."* Dain bites, spreading her wider and lowering his face to her naval and the sight is debilitating. He looks like he could start drooling, he looks *rabid* especially at the mentioning of Xaden, and even worse when she wiggles away from his fingers,
+She presses at him in their shared pathway and the flittering white fog of the bond explodes into scattered shards of her emotion, of her desperation. She needs to get this out, she's not done talking—Gods, his tongue is hot and heavy and wet, the slick slide of it against her most sensitive places, his breath hot against the inside of her thighs, and she can't—
 
-*"He's the reason we're doing the Barrens fly-by, under the guise that the Reds want to observe the condition of their where their ancestral hatching ground is; though it's also a truth."*
+*"Don't mention other men while my hands are on you."* Dain bites, spreading her wider and lowering his face to her navel and the sight is debilitating. He looks like he could start drooling, he looks *rabid* especially at the mentioning of Xaden, and even worse when she wiggles away from his mouth,
 
-His stare is heavy, bold with newfound anger and Sloane's belly flops; she attempts to cover herself but Dain bats her hands away and recovers it's place behind her knees once more with growing annoyance. 
+*"He's the reason we're doing the Barrens fly-by, under the guise that the Reds want to observe the condition of their ancestral hatching ground; though it's also a truth."*
+
+His stare is heavy, bold with newfound anger and Sloane's belly flops; she attempts to cover herself but Dain bats her hands away and recovers its place behind her knees once more with growing annoyance. 
 
 Sloane can't help but want to push more buttons seeing his visceral reaction,
 
 *"Think he'll accept that I've chosen you?"* she purrs, eyes locked on his, mouth curving into a provoking grin.
 
-Dain shimmies up to his knees, eyes dragging across her most private parts, reverent and ruthless all at once, and her stomach dips in greedy anticipation as his lashes lower and his jaw slackens.
+Dain shifts forward on his knees, eyes dragging across her most private parts, reverent and ruthless all at once, and her stomach dips in greedy anticipation as his lashes lower and his jaw slackens.
 
 *"I don't give a single fuck what Riorson thinks, Sloane. Or anyone else,"* He growls as his gaze collides with hers, the russet burning down to glacial amber as every trace of tenderness freezes out.
 
@@ -384,13 +380,15 @@ His jaw knots hard enough that she hears the faint click of teeth, and his grip 
 
 *"Well I was just thinking that he might not be so open to—"*
 
-"Sloane." he spits, his voice falling deeper halfway through her name, "Are you hard of hearing?"
+"Sloane." he spits, his voice falling deeper halfway through her name. 
 
-She isn't expecting it when his hand comes swift across the back of her thigh; it leaves a stinging sensation that makes tears sting at the corner of her eyes, and her voice bouncing across the rafted cieling.
+"Are you hard of hearing?"
 
-Sloane gives him a acidic glare, or at least tries to shoot him a look that doesn't practically ask for him for another, "Don't hit me!"
+She isn't expecting it when his hand comes swift across the back of her thigh; it leaves a stinging sensation that makes tears sting at the corner of her eyes, and her voice bouncing across the rafted ceiling.
 
-"Don't talk about other men when I'm about to fuck you." He barks right back, eyes narrowing, "You're trying to provoke me and its fucking working; I can *feel* the fun your having in our bond you damned minx."
+Sloane gives him an acidic glare, or at least tries to shoot him a look that doesn't practically ask for him for another, "Excuse me?!"
+
+"Don't talk about other men when I'm about to fuck you." He barks right back, eyes narrowing, "You're trying to provoke me and it's fucking working; I can *feel* the fun you're having in our bond you damned minx."
 
 The words barely finish vibrating through the suite before a bruising knock rattles the door, followed by *Catriona's* bright voice announcing that she brought lunch; the sound grinds through Sloane's pleasure, freezing her in place as panic in her throat. Dain goes statue-still for a single second, the bond locking with sharp focus as his instincts overtake hunger.
 
@@ -404,7 +402,7 @@ The stupid, handsome bastard looks at her as if she'd made some kind of Codex in
 
 Sloane is shocked; her *Wingleader* advising against scholarly law?
 
-"You told someone to skip class?!" she gasps while he tugs he pants closed, buttoning them while groaning in response,
+"You told someone to skip class?!" she gasps while he tugs his pants closed, buttoning them while groaning in response,
 
 "I—"
 
@@ -412,7 +410,7 @@ Sloane is shocked; her *Wingleader* advising against scholarly law?
 
 There's barely enough time in a moment to ever ingest the information spilling from Dain Aetos's lips, she thinks while taking her hair down to secure it more neatly.
 
-"Fliers and flier Cadets have orders to rotate between Riorson House, Blumenthaler Ridge, and the Cliffs of Dralor at their professors' will, but yes this is kind of a simulation." one of his hands pull her face up to his and he plants a chaste kiss on her lips,
+"Fliers and flier Cadets have orders to rotate between Riorson House, Blumenthaler Ridge, and the Cliffs of Dralor at their professors' will, but yes this is kind of a simulation." one of his hands pulls her face up to his and he plants a chaste kiss on her lips,
   
 "I'm going to open the door for her now, okay?"
 
@@ -422,7 +420,7 @@ He doesn't make a move towards the door itself and Sloane blinks up at him, "Are
 
 Her heart stutters. 
 
-He's really going to let Cat in with her flushed and disheveled and his breathing ragged just to let the flier draw her own conclusions? Is this a declaration? A challenge? Not that she particulary minds...
+He's really going to let Cat in with her flushed and disheveled and his breathing ragged just to let the flier draw her own conclusions? Is this a declaration? A challenge? Not that she particularly minds...
 
 Her face heats, "Gods Dain, don't talk like that."
 
@@ -456,7 +454,9 @@ She sighs.
 
 Cat looks her up and down, and then at the food she's spread across the tea-table, "As good as I can be."
 
-There's even the fucking pepper flakes she watched him our over his food this morning. They're just friends; even Sloane would get Aaric the food he liked if she knew better. Not. A. Big. Deal.
+There's even the fucking pepper flakes she'd once seen him lace his eggs with. Sure, they're just friends; even Sloane would get Aaric the food he liked if she knew better. 
+
+Not. A. Big. Deal.
 
 Sloane nods, and Cat glances from the blonde over to Dain's desk.
 
@@ -466,19 +466,23 @@ Sloane nods, and Cat glances from the blonde over to Dain's desk.
 
 That earns a laugh from her, and Sloane smiles nervously.
   
-"Maybe even sooner if boy-genius here manages to say to convince your King."
+"Maybe even sooner if boy-genius here manages to convince your King."
 
 Sloane takes a moment to consider her sarcasm,
 
-"Dain's the cornerstone of the new schoolhouse?"
+"Dain's a cornerstone of the new schoolhouse?"
 
 "He and Professor Devera. And surprisingly... One *General Melgren.*"
 
-"That's..."
+"How is he even—" Sloane glances toward the bathing chamber where water runs softly, lowering her voice. "Does he know how absurd this is?"
 
-Cat only nods with pursed lips, sharing the disbelief.
+"Oh, he knows." Cat's smile is wry. "Doesn't stop him from actively accepting it anyway."
 
-First he stands in as acting General of Basgiath, and now *encouraging* a secondary war college?
+Sloane only nods with pursed lips, sharing the disbelief while the absurdity of it crashes through her. He's barely been a lieutenant for a few weeks. He's just graduated and they've entrusted him to take part in something this massive, this politically volatile? There could be many reasons why, and why not, but they're too far out of her scope of things to assume.
+
+And Melgren?
+
+First he stands in as acting General of Basgiath, and now *encouraging* a secondary war college? 
 
 *"Did you know about this?"*
 
@@ -490,7 +494,7 @@ Sloane's head cocks to the side, *"You can't hear us talking?"*
 
 "Laughing at what in the washroom? Must not be healing as fast as we've been thinking." Cat exclaims, eyes narrowing the same as Sloane, she makes a circling motion next to her head with her index finger,
 
-*"General Melgren is in favor of the other was college?"*
+*"General Melgren is in favor of the Aretian Schoolhouse?"*
 
 *"I know, right?"* Dain pauses, then adds: *"Cath had me propose him as Squadron Zero's Navarrian liaison this morning too."*
 
@@ -526,13 +530,13 @@ She caps the emotion before it can spill into the bond, the childish jealousy, *
 
 *"No, we're fine."*
 
-He doesn't provide anymore clarity than that before plopping down on the cushions next to Sloane; so close that she sinks into it with his added weight and their arms press together.
+He doesn't provide any more clarity than that before plopping down on the cushions next to Sloane; so close that she sinks into it with his added weight and their arms press together.
 
 Catriona raises a perceptive brow.
 
 "How's your brain?"
 
-Dain goes for the coffee carafe and a handless, poreclain cup, "It's fine. Yours?"
+Dain goes for the coffee carafe and a handless, porcelain cup, "It's fine. Yours?"
 
 "Better than yours." Cat croons, eyelashes closing gracefully, a newfound smile spreads across her perfect face, "Anyway, I heard about the meeting this morning already. You're alright?"
 
@@ -546,35 +550,34 @@ Dain goes for the coffee carafe and a handless, poreclain cup, "It's fine. Yours
 
 Her Red only seems to yawn out the answer, *"Obligatory."*
 
-"How'd things go on your end?" Dain asks this time, they're both eating at this point, and not anything that looks like it came from the kitchen here. Its all Poromish cuisine. He hands her his plate when he's done with half of it, "You're gonna need every calorie you can consume for tonight Sloane; eat it."
+"How'd things go on your end?" Dain asks this time, they're both eating at this point, and not anything that looks like it came from the kitchen here. It's all Poromish cuisine. He offers her his plate when he's done with half of it, "You're gonna need every calorie you can consume for tonight Sloane; eat it."
 
 Cat's eyebrows practically sprout wings and take flight off of her forehead, "Why?" she persists, "What's happening tonight?"
-
-*"Either you tell her or I will."*
 
 Sloane's head snaps to Dain and he's still holding the plate of food in one hand, offering it to her.
 
 *"What? It's not like she has to know. Right? I mean what's the point in even—"*
 
-*"The point is that I want her to know. I want them all to know."*
+*"I don't mind Catriona knowing. I want them all to know."*
 
-Her eyes flutter, *"Who? And for what reason?!"*
+Her eyes flutter, *"And for what reason?"*
 
-*"Anyone that speaks to you, knows of you, or exists in the same dimensional plane as you."* his pupils *expand,* *"Because I want them to know."*
+*"Anyone that speaks to you, knows of you, or exists in the same dimensional plane as you,"* his pupils *expand,* *"should know you've made your choice."*
 
 *"You're not worried that we won't be received well?"*
 
 *"By who Sloane? Who exactly are we hiding from? Are you worried about General Aetos finding out? I assure you—"*
 
-*"No, Dain. He's the least of my worries,"* her eyes crawl across his lap over to Catriona who sits with her legs crossed and a tea cup nestled between her hands at her lap, *"It's not him. It's everyone else."*
+*"No, Dain. He's the least of my worries,"* her eyes crawl across his lap over to Cat who sits with her legs crossed and a tea cup nestled between her hands, *"It's not him. It's everyone else."*
 
-He snorts and Cat's eyes narrow on the two of them, *"Your friends? I doubt they'd care for long."*
+He snorts and Cat's eyes narrow on the two of them.
+*"Your friends? I doubt they'd care for long."*
 
 *"And yours?"*
 
-*Violet,* Sloane begins to think, Violet and Rhiannon are just now approaching him again in a friendly matter and took for him to nearly die—not even after saving Mira had their odd treatment of him changed. She supposes Sawyer and Ridoc had never had much of an issue with him but it's not like the two of them went out of their way to—
+*Violet,* Sloane begins to think, Violet and Rhiannon are just now approaching him again in a friendly manner and it took him nearly dying, not even after saving Mira had their odd treatment of him changed. She supposes Sawyer and Ridoc had never had much of an issue with him but it's not like the two of them went out of their way to—
 
-*"Sloane my friends all died during Threshing and on the Gauntlet. And the one other person... she deserved what she got too."* 
+*"Sloane my friends all died during Threshing and on the Gauntlet. I stopped getting close to people after that."* 
 
 She glances up at him, no longer burning a hole through Cat's teacup, *"I was thinking about Violet and—"*
 
@@ -584,31 +587,27 @@ He laughs out loud and Cat sticks out a hand, snarling "Am I missing something?"
 
 *"I'm sorry but when was I ever included in anything involving them unless it benefited whoever decided I was useful?"* he grinds out, voice straining and the bond spreading, breaking apart as his emotions become tight with agitation... and something else she can't quite translate.
 
-*"I just thought that... maybe you guys had just hit a rough patch because of what happened with Liam?"*
+*"I just thought that maybe you guys had just hit a rough patch because of what happened with Liam?"*
 
-*"There was a strain in our relationship prior to Liam, Sloane. Liam just was just proof I was doing more harm than I could imagine. I've always just been alone. That's why I got so damn—"* he drops his fork in the plate and scratches at his beard,
+*"There was a strain in our relationship prior to Liam, Sloane. Liam was just proof I was doing more harm than I could imagine. I've always just been alone. That's why I got so damn—"* he drops his fork in the plate and scratches at his beard, *"—freaked out that she was there. The only friend I had left showing up unscheduled to a fucking death parade. My worrying and trying to help was just invasive and controlling. Anyway, no. Squadron is fine with you, not that it would be a deciding factor. And Cat likes you too."*
 
-*"—freaked out that she was there. The only friend I had showing up in a fucking death parade. And my worrying and trying to help was just invasive and controlling. Anyway, no. Squadron is fine with you, not that if would be a fucking deciding factor. And Cat likes you too."*
+She ignores that last comment, because currently it doesn't amount to much.
 
-"Not much. Just need to finish up what you interrupted." he blurts, stabbing through a forkful of tender, dark meat and shoving it into his mouth.
+"Just need to finish up what you interrupted." he blurts, stabbing through a forkful of tender, dark meat and shoving it into his mouth.
 
-His answer is muted and underwater in the washing of thoughts happening in her head. That other feeling there, wipping around wildly as he spoke; it was *lonlieness.* 
+His answer is muted and underwater in the washing of thoughts happening in her head. That other feeling there, whipping around wildly as he spoke; it was *loneliness.* 
 
 She'd been so wrong.
 
-This whole time she'd assumed Violet's tight-knit group included him, that he'd been part of their inner circle before everything fell apart. She'd pictured him at their table in the mess hall, included in their plans, welcomed into Riorson House like he belonged there. She thought the tension between them was recent, a wound opened by Liam's death and Dain's role in it.
+This whole time she'd assumed Violet's tight-knit group included him, that he'd been part of their inner circle before everything fell apart. She'd pictured him at their table in the mess hall, included in their plans, he had even been part of Quest Squad but now she realizes it might not have all been voluntary. She thought the tension between them was recent, a wound opened by Liam's death and Dain's role in it.
 
 But he was never there at all.
 
 He'd been alone the entire time. Alone at Basgiath after his friends died. Alone when he split the Rider's Quadrant. Alone while organizing the Squadron while she'd been wrapped in the safety of her squad, adopted by the marked ones who called her family as soon as she'd arrived at Basgiath.
 
-The irony of it salmost makes her sick: she'd escaped isolation and found belonging with strangers, while he'd left his only friend and found himself completely, utterly alone. No squad to claim him. No found family to anchor him. Just... solitary.
+The irony of it almost makes her sick: she'd escaped isolation and found belonging with strangers, while he'd left his only friend and found himself completely, utterly alone. No squad to claim him like Violet's. No found family to anchor him. Just... solitary.
 
-Of course Liam's letters didn't include details about Dain outside the odd relationship between whatever her brother had witnessed between Dain and Violet. 
-
-Dain had nothing.
-
-No one claimed him. No one protected him exccept for Cath, and of course Cath had seen only her treatment of him.
+Of course Liam's letters didn't include details about him outside the odd relationship between whatever her brother had witnessed between Dain and Violet. No one claimed him. No one protected him except for Cath, and of course Cath had seen only her treatment of him.
 
 The room is quiet. Deafeningly so.
 
@@ -620,39 +619,43 @@ But he's not fine, she can feel it in the bond now, it's a hollow ache he's lear
 
 "And what exactly did I interrupt?" Cat presses, waving her spoon at him after setting her tea on the tea-table,
 
-Maybe this isn't just a boyish stake or claim or point to make at all.
-
-Maybe he's just tired of being invisible. Tired of being the person people only acknowledge when they need something. A signet to exploit, a convenient body to fill a role. The realization settles over her like cold water: he wants to show them he was finally picked. Not recruited. Not utilized. Not tolerated.
+Maybe this isn't just a boyish stake or claim or point to make at all. Maybe he's just tired of being invisible. Tired of being the person people only acknowledge when they need something. A signet to exploit, a convenient body to fill a role. The realization settles over her like cold water: he wants to show them he was finally picked. Not recruited. Not utilized. Not tolerated.
 
 Chosen.
 
-Heat floods her cheeks because Gods, she should have seen it sooner. Every time he'd pulled her close in public, every casual touch, every unguarded smile. That wasn't being possessive or showing off. The bond pulses between them, carrying that shock of loneliness she'd felt moments ago, and suddenly his intensity makes perfect sense. The way he'd trembled when she accepted the bond.
+Heat floods her cheeks because Gods, she should have seen it sooner. Every time he'd shown up unnecessarily early for her training, every casual touch, every unguarded smile. That wasn't being testy or showing off. The bond pulses between them, carrying that shock of loneliness she'd felt moments ago, and suddenly his intensity makes perfect sense. 
 
-He's not overwhelming or too much, she told him that.
+The way he'd trembled when she accepted the bond is no longer excitement to her, it feels more like his reaction to acceptance, it was his version of receiving closure.
 
-"Sex. You interrupted sex. Well, technically foreplay, but we were getting there." Slaone shrugs, finally taking the plate from him, "Nothing we can't finish later. But if you could wrap up the curriculum talk efficiently, that'd be great."
+He's not overwhelming or too much, she told him that. She told him she wanted him.
+
+And she fucking does.
+
+"Sex. You interrupted sex. Well, technically foreplay, but we were getting there." Sloane shrugs, finally taking the plate from him, "Nothing we can't finish later. But if you could wrap up the curriculum talk efficiently, that'd be great."
 
 His eyes get the widest and roundest she'd ever seen them before turning his head to Cat who leans so far forward on the chaise Sloane lets a giggle slide through her mouthful of food,
 
 "That's your *Wingleader.*" Cat croaks.
 
-Sloane only points her fork at her, mimicking the flier's gesture from earlier, "Well, he's definitely mine, not to sure about *Wingleader* though."
+Sloane only points her fork at her, mimicking the flier's gesture from earlier, "Well, he's definitely mine, not too sure about *Wingleader* though."
 
-Dain's gaze bounce between the two women.
+Dain's gaze bounces between the two women, and the bond lights up with his surprise. Static shocks of awe and disbelief irreversibly tangled together. She watches his expressions dance; confusion first, calculation, translation into whatever Dain-speak needs to happen in his little mind, then never before seen panic that settles into pure, unadulterated shock. His eyes get that rounded, saucer look she's seen before, but this time it's because of her. Because of what she said. 
 
-"I guess you're right." Dain and Cat's eyes lock, "Are you well enough to be fucking though?"
+She stakes her claim and Dain accepts it like the good boy he paints himself to be.
+
+"I guess you're right." Dain and Cat's eyes lock as she speaks, "Are you well enough to be fucking though?"
 
 Sloane sighs; any normal person would've just dropped it, but leave it to Cat to instigate.
 
-"His performance was just fine last night..." she bites the tip of her fork and stares into the cieling, "So I guess so. But I don't think he'd pass up the oppurtunity even if he wasn't."
+"His performance was just fine last night..." she bites the tip of her fork and stares into the ceiling, "So I guess so. But I don't think he'd pass up the opportunity even if he wasn't."
 
-Cat looks over at him again with an iquisitive brow raised in shock.
+Cat looks over at him again with an inquisitive brow raised mostly in shock.
 
 "You limped the whole way into town the other night." She accuses, "I'm surprised Cath let you have the privacy."
 
 Dain groans, "He didn't."
 
-Sloane feels her face explode, "He didn't?!"
+Sloane feels her face burn, "He didn't?!"
 
 "Hover parent, as usual." Cat teases, "Anyway, I passed your Wing on the way up here, and Squadron too so I hope you aren't planning for that orgasm anytime soon, Mairi."
 
@@ -664,7 +667,7 @@ Sloane only manages a grin, *"There's always tonight."*
 
 "Is that all you need? Two seconds?" Cat snipes, coiling her dark hair around her finger.
 
-Dain's eyes narrow, "Sound like you want to find out."
+Dain's eyes narrow, "Sounds like you want to find out."
 
 "Oh, please, you couldn't handle me."
 
@@ -672,9 +675,9 @@ Dain's eyes narrow, "Sound like you want to find out."
 
 *"Ouch."* Sloane hums,
 
-*"She always has to be better than everyone she's so fucking annoying."* Dain gripes.
+*"She always has to be better than everyone she's so damn insufferable."* Dain gripes.
 
-"Anyway," Cat says loudly, exhaling and falling back into the chaise, "you hadn't cared the last few weeks, not until Lady Mairi here had shown up."
+"Anyway," Cat yawns loudly, exhaling and falling back into the chaise, "you hadn't cared the last few weeks, not until Lady Mairi here had shown up."
 
 "I'm sure you could guess why Catriona."
 
@@ -682,48 +685,56 @@ Dain's eyes narrow, "Sound like you want to find out."
 
 *"Yes. And Cath is always siding with her."* His voice pitches a tone of annoyance she'd never heard before until now, *"Thank Gods they can't talk to each other."*
 
-Sloane notes to self: *Cath is like Catriona, do not provoke.*
+Cat leans to the edge of her seat, pulling a stack of papers from a leather sleeve at her feet and spreading them across the tea-table. 
 
-There's another knock at the door before Cat can say anything else, but it opens immediately after; whoever is on the otherside is unwilling to wait for permission to enter.
+"Right, so about those curricular proposals. I've been thinking about how we structure the combined flight training."
 
-It's Sven, one of the Poromish Captains in his Squadron, "Alright Dragon, you've got a fucking line out here."
+Dain moves forward as well, his attention shifting from playful irritation to focused intensity in an instant. Sloane watches the transformation, not at all shocked at how quickly he reaches for one of the papers she offers him, scanning it quickly. Sloane peeks over it and recognizes flight formations dotted across the paper and explanations for each paradigm scrawled in neat common language beneath each one,
 
-Dain leans back into the sofa, then drapes his arm across the back of it behind Sloane, his face says "go on".
+"The Poromish approach to formation flying is more fluid than Navarre's rigid structure," Dain comments, tapping a finger against the document, "And I support the idea of combined flight training, but I don't think it should be the only kind. New riders and fliers will need to learn how to stay seated with their bonds respectfully before we can consider tandem flights."
 
-"Imogen Cardulo and Maiselle—"
+"Which is why I'm suggesting we phase it," Cat responds, handing him another piece of parchment, this one lined. 
 
-Sloane shoots up from the sofa, *"Imogen?"*
+"First year: foundation in both methods. Second year: introduce integration exercises and build on foundational knowledge. Third year: specialized units that can operate in either system. Naturally there would be more detail within the structure, but we can leave it to leadership within squads and groups to cater to individual needs; like you did with Sloane, and Riorson with Sorrengail."
 
-*"Glane mentioned her rider had been stationed in Luceras."* Thoirt mentions,
+Sloane settles back into the sofa cushions, content to watch them work. It's mesmerizing watching Dain like this, seeing him in his element—strategizing, planning, building something that matters. His voice takes on a different quality when he's discussing tactics and structure, more certain and sharp, more confident. She can feel his focus through the bond; their pathway is clear, *quiet,* those fogged streams of billowing magic braiding, folding, again and again undisturbed as if it were a faucet of flowing power.
 
-*"But she's here!"*
+She watches Cat challenge his points, admires him countering with evidence and logic, observes the way they volley ideas back and forth like a well-practiced dance. It's different from the banter they'd been trading moments ago; this is serious, professional, and Sloane finds herself admiring how easily they work together despite their constant needling.
 
-*"Seems so."*
+The bond hums quietly with Dain's satisfaction, his enjoyment of the intellectual challenge, and Sloane realizes this is probably one of the few places where he gets to be fully himself without having to manage anyone's expectations or reactions. Here, with Cat, or probably anyone willing, he can just think and strategize and build.
 
-Sloane doesn't remember deciding to move. One moment she's on the sofa, Dain's arm warm across her shoulders, and the next she's halfway to the door, her heart hammering against her ribs hard enough to make her dizzy. She'd prepared herself at graduation—had made peace with the fact that Imogen was stationed in Luceras, that it would be months before they'd see each other, that their friendship would have to survive on sparse letters and secondhand updates through their dragons.
+She's still watching them, still absorbing the quiet rhythm of their collaboration, when there's another knock at the suite's door. It opens immediately after; whoever is on the other side is unwilling to wait for permission to enter.
 
-But she's here.
+"Alright Dragon, you've got a fucking line out here."
 
-Dain rises behind her, she feels him through the bond; his amusement, his understanding, the way he's already shifting into Flightleader mode to handle whatever Sven needs, but Sloane barely registers it. Her focus narrows to the doorway, to the sound of voices in the corridor beyond.
+Dain leans into the sofa, then drapes his arm across the back of it behind Sloane, his face says "go on" and Cat's twists to face the individual who'd barged in—Sven, one of Squadron Zero's captains.
 
-She reaches the door before Sven can finish announcing the rest of the names.
+"Hope you like your men busy Sloane, cause this one *always* is." Cat sneers, eyes rolling as she turns back on the chaise to retrieve her tea.
 
-Imogen stands in the hallway with Maiselle, still in flight leathers, her pink hair windswept and her expression caught between exhausted and alert. The moment their eyes meet, Sloane's chest cracks wide open and all that careful composure she'd built around saying goodbye, around being separated, just shatters.
+"You've got urgent business arriving from Basgiath; Maiselle Seth and—"
 
-"Sloane?" Imogen's voice is uncertain for half a breath, she sounds unsure if she's allowed to be relieved.
+Sven steps to the side to avoid being squashed by the two women who shove past him and Sloane's heartrate peaks recognizing the short pink hair on the first.
 
-Then Sloane is moving again, closing the distance between them in three strides, and she doesn't care that there are people watching or that she's supposed to be acting dignified or that Imogen is rigid with surprise when Sloane throws her arms around her neck.
+On *Imogen.*
 
-"You're here," Sloane breathes into her shoulder, and Gods she sounds pathetic but she can't bring herself to care. "I thought—I didn't think I'd see you until summer at the earliest."
+She takes only a few steps before stopping in her tracks, causing Maiselle to collide into her back.
 
-"Reassignment, not sure how Violet managed it, but she did." she squeezes Sloane tight, "I'm so glad I can be here, closer to you."
+Her eyes bounce from Sven, to Cat, then Dain, and finally Sloane.
 
-"That means—"
+Her initial reaction should have been to smile, to return the teeth showing grin that blossoms across Sloane's face but instead dread seems to conquer her features; Sloane follows Imogen's line of sight to Dain's arm draped across her shoulders.
 
-"And you're in *Aetos's* room? Training during Solstice? Guess he's rubbing off on you." Her green eyes bear the smile that her mouth denies.
+That dread hits Sloane as the pieces click perfectly together.
 
-Until Cat goes striding out of the suite.
+Her stomach turns, cramping when she considers Imogen's perspective. She'd never told Imogen she'd been considering Dain; she never told her about the moments the two of them were having in private, conversations that inadvertently caused them to open up to one another. How she had been sneaking into his room after Xaden had gone missing, after seeing all the death and destruction in Draithus and how all of it kept her from sleeping at night.
 
-"More like rubbing on him, and neither of them are getting off now." She waves to Sloane as she strides past some more of the Tandem unit and their Wing, "Hope you like your men busy, cause this one *always* is."
+All Imogen had ever known in regard to Dain Aetos and Sloane was that Sloane hated Dain and his father equally as much as she despised Navarre, and all things related. She'd often told Imogen that Dain carried himself the same way her despicable foster-brother had; arrogantly and unconcerned with other's opinions of him. *Narcissistic.*
 
-Sloane turns away from Cat slowly to face Imogen again.
+But all of that was before she had the proper context surrounding Liam, it had all been before she decided to think for herself and see Dain as another person trying to navigate life like the rest of them were.
+
+She can only imagine Imogen seeing Sloane cozied up to the only accessory to her brother's death.
+
+...or maybe worse when she finally speaks.
+
+"You've got ten seconds to get your grimy hands off of her, Aetos."
+
+*Fuck.*
