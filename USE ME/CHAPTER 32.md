@@ -14,29 +14,33 @@ Imogen's face sours; she pays no mind to Maiselle's restraint or Sven's position
 
 *"Don't say anything."* Sloane's command echoes in his mind with sharp urgency as she pushes off the sofa, leaving his arm lukewarm and unoccupied; the sudden absence of her weight makes the cushions shift beneath him, *"I've only ever said horrible things about you to Imogen. It was my way of coping."*
 
-*"Coping with what?"*
+*"Coping with what?"* he asks, though he already knows the answer. 
 
-He asks, though he already knows the answer. Sloane turns her head just enough to make eye contact with him before exposing him to the complex shame she feels, and the bond between them quivers with the force of her guilt.
+Sloane turns her head just enough to make eye contact with him before exposing him to the complex shame she feels, and the bond between them quivers with the force of her guilt.
 
 *"The one thing that all three of us will never get over, Dain."*
 
-Once she's just ahead of Imogen, Dain watches as she pulls her friend into a tight hug, tighter than he'd ever seen her embrace Avalynn. It makes him wonder just how close the two are. How long they've known each other. His eyes drop to his lap and he sighs realizing that other men aren't the only things that will leave him scathingly jealous about her.
+Once she's just ahead of Imogen, Dain watches as she pulls her friend into a tight hug, tighter than he'd ever seen her embrace Avalynn. It makes him wonder just how close the two are. How long they've known each other. His eyes drop to his lap and he sighs, realizing that other men aren't the only things that will leave him scathingly jealous about her.
 
 "Mo," Sloane's speech is a long exhale of breath that makes her shoulders drop while her arms wrap around Imogen, "aren't you supposed to be in Chakir?"
 
-Imogen hand drops from her dagger, her left she wrenches free from Maiselle's grip, the slowly she returns Sloane's embrace.
-
-Never once do her eyes slip away from Dain's person.
+Imogen's right hand drops from her dagger, and her left hand wrenches free from Maiselle's grip, then she slowly returns Sloane's embrace. Never once do her eyes slip away from Dain's person.
 
 "I was, but I caught wind of some gossip," she pulls away and kisses Sloane's cheek, "and if any of it is true I'm certain I could be more helpful here."
 
-The tension in the room shifts subtly, and Dain feels an instance of exigency settle against his shoulders like a heavy blanket. It's Sven's signet; he recognizes the careful control of it in way the feeling doesn't invade but instead exists alongside everything else happening. When he glances toward the door, Sven's already watching him, his expression neutral but focused. Dain remembers how the flier used to look at him with open distrust, how Sven had been one of the last in Squadron to accept his command.
+The tension in the room shifts subtly, and Dain feels an instance of exigency settle against his shoulders like a heavy blanket; it's Sven's gift. He can recognize the careful control of his gift in how the feeling doesn't invade but rather exists alongside everything else happening. Still, paying attention to the flier hadn't been a priority and the fact that Dain's mind makes it one is the only inkling that magic is being used on himself.
 
-Then the feeling changes, it becomes more pointed: the urge to listen, to pay attention to something beyond Imogen, to *Sven*. He lets his focus linger on Sloane a moment longer before facing Sven who's pushed the door shut and now stands in front of it, positioning himself between the suite and whoever might be gathering in the hallway beyond. The movement is purposeful, protective; Sven is actively managing the space, controlling access, ensuring whatever conversation happens here stays contained.
+When he glances toward the door, Sven's already watching him, his expression neutral but focused. Dain remembers how the flier used to glare at him with open distrust, now there's only compassion and tenderness.
+
+The feeling changes; it becomes more pointed: there's the sudden urge to listen, to pay attention to something beyond Imogen, to *Sven*. He lets his focus linger on Sloane a moment longer before facing Sven who's pushed the door shut and now stands in front of it, positioning himself between the suite and whoever might be gathering in the hallway beyond. The movement is purposeful, protective; Sven is actively managing the space, controlling access, ensuring whatever conversation happens here stays contained.
 
 "Yes?" Dain murmurs to Sven, hushed under the sounds of Sloane and Imogen's discussion,
 
-"I was coming to check on you after what that old man did during the meeting, but I see that your fine." He jerks his chin upwards and at Sloane, and then his eyes slide to Imogen, assessing the threat with the same careful calculation Dain sees during their patrols together, "Though I'm not sure the same can be said for your current company."
+"I was coming to check on you after what that old man did during the meeting, but I see that you're fine."
+
+He jerks his chin upward toward Sloane, then his eyes slide to Imogen, assessing her with the same careful calculation Dain sees during their patrols together, 
+
+"Though I'm not sure the same can be said for your current company."
 
 Dain nods, "It's all fine."
 
@@ -46,13 +50,13 @@ Dain nods, "It's all fine."
 
 Sven clicks his tongue, "What a shame. We'll have to keep an eye out for him, not sure who he's aligned with after that theatre production he just gave—but it's obvious whomever it is doesn't want you straying any further from Navarre's grasp."
 
-"Too late." Dain says it quietly, and Sven's expression softens just enough that Dain knows he understands, Sven's mouth opens to say something else and Dain feels Sloane's panic spike through their bond like a lightning strike. She's nearly shaking while pulling away from Imogen and his attention fractures; he's trying to listen to whatever Sven is about to tell him while simultaneously feeling Sloane's anxiety ratchet up, her emotions tumbling over each other in their pathway.
+"Too late," Dain says it quietly, and Sven's expression softens just enough that Dain knows he understands, Sven's mouth opens to say something else and Dain feels Sloane's panic spike through their bond like a lightning strike. She's nearly shaking while pulling away from Imogen and his attention fractures; he's trying to listen to whatever Sven is about to tell him while simultaneously feeling Sloane's anxiety ratchet up, her emotions tumbling over each other in their pathway.
 
 "Dain," Cat's voice cuts through his and Sven's conversation in a gleeful tone, "you might want to pay attention to this."
 
-He shifts his attention back to Sloane and Imogen, who've also done the same and now watch himself and Sven,
+He shifts his attention back to Sloane and Imogen, who've also done the same and now watch him and Sven,
 
-"I promise you you're overreacting," Sloane says, but her voice comes too fast, and Dain can feel through their bond that she's trying to be calm and measured; she wants to be steady, wants to handle this with grace, wants to approach Imogen with the same careful thoughtfulness she's shown in their conversations. Her arm raises and gestures to Dain, "But nothing is happening that I didn't ask for."
+"I promise, you're overreacting," Sloane says, but her voice comes too fast, and Dain can feel through their bond that she's trying to be calm and measured; she wants to be steady, wants to handle this with grace, wants to approach Imogen with the same careful thoughtfulness she's shown in their conversations. Her arm raises and gestures to Dain, "But nothing is happening that I didn't ask for."
 
 Imogen's brow creases, "What?"
 
@@ -72,15 +76,17 @@ He winces when his heart's harbor glances at him with her cerulean eyes glazed o
 
 His body collides back into the couch, and Sloane brushes against him in their pathway,
 
-*"Good boy."* she coos.
+*"Good boy,"* she coos.
 
 During the pause in Sloane's explanation, Maiselle's gaze drifts to Dain's throat again, her brow furrowing slightly before her eyes widen with realization. She looks at Sloane, then back at Dain's throat again before cocking her head to the side.
 
-"Thoirt and Cath are bonded." Sloane announces, blinking when Sven casts a sound shield across the door and looks directly at Dain with a shocked expression and his inky black eyebrows lifted.
+"Thoirt and Cath are bonded," Sloane announces, blinking when Sven casts a sound shield across the door.
+
+The flier looks directly at Dain with a shocked expression and his inky black eyebrows lifted.
 
 Sloane continues, "But before this happened Dain and I—"
 
-"Sloane do you have any fucking idea—"
+"Sloane, do you have any fucking idea—" Imogen cuts in,
 
 "Mo, *listen* to me!"
 
@@ -98,21 +104,21 @@ Maiselle throws her arms and hands out facing Dain, "Your *neck,* it was Mairi?!
 
 "Hate fucking someone is so much better than just hating someone. Isn't this such a comedic parallel of Sorrengail and Riorson at this point." Catriona purrs from the chaise.
 
-The color fades away from Imogen's face and Sloane panic booms so hard in the bond, that braiding magic in their pathway separates into a fine mist,
+The color fades away from Imogen's face and Sloane's panic booms so vividly in the bond, the braiding magic in their pathway separates into a fine mist,
 
 "He's sleeping with you?" Imogen gasps.
 
-Sloane shuffles next to Imogen, "Look he didn't—I wanted it, *I* fucked *him.*"
+Sloane shuffles next to Imogen, "Look he didn't proposition me or anything; I wanted it, *I* fucked *him.*"
 
 "Oh. Kinky." Sven whistles.
 
 Dain coughs, sputtering before words manage to form and ducking Sven's glittering eyes.
 
-"Sloane, no—" he beings when Imogen's head snaps upwards, 
+"Sloane, no—" he begins when Imogen's head snaps upwards, 
 
 "What kind of odd Navarrian shit are you forcing her to partake in Aetos?" she hisses, shouting over them both, "I need you to get to talking now. Stop acting like you suddenly don't love running your mouth."
 
-His eyes slide to Sloane before responding, as he watches Imogen cut Sloane off and demand explanations on her own terms, insert herself into a conversation that Sloane was trying to have with just the two of them her own terms. 
+His eyes slide to Sloane before responding, as he watches Imogen cut Sloane off and demand explanations she had already been attempting to give. 
 
 He sees it then, the pattern he knows too well because *he's lived it* from the other side; all those times Violet had tried to explain herself, when she'd tried to tell him something important, and he'd trampled right over her autonomy, inserted himself where he'd decided he was needed, made her decisions for her because he'd convinced himself he knew better.
 
@@ -120,13 +126,13 @@ He'd done it thinking he was protecting her, thinking he was helping, but he'd b
 
 And now here's Imogen doing the exact same thing to Sloane; cutting her off, demanding answers, refusing to let Sloane explain on her own terms, treating her like she can't handle her own conversations, like she needs someone else to speak for her. The recognition is acidic, and he absolutely fucking hates it. He hates that he understands exactly what Sloane is feeling right now because he's the one who used to make Violet feel this way.
 
-"Sloane is right next to you, but you're talking to me like she doesn't exist. If you want answers, ask the person who's actively trying to give them to you." he snaps, patience thinned and all but whittled away.
+"Sloane is right next to you, but you're talking to me like she doesn't exist. If you want answers, ask the person who's actively trying to give them to you," he snaps, patience thinned and all but whittled away.
 
-"Hey, I don't need you to tell me how to treat me people. In fact you'd be the last person I'd ever—"
+"Hey, I don't need you to tell me how to treat people. In fact you'd be the last person I'd ever—"
 
 Maiselle grabs Imogen's shoulder, eyes rough and narrowed, "What are you talking to him like that for?"
 
-Imogen's face is reddened, sharing the same warm contrasted color palette as her hair and her eyes find him with an anger the same shade. Of course he knows its earned, regardless of him not knowing his father's intentions with what he'd reported to him, Sloane's brother was gone.
+Imogen's face is reddened, sharing the same warm contrasted color palette as her hair and her eyes pin him with an anger the same shade. Of course he knows it's earned, Dain knows exactly what's causing her to react this way.
 
 Liam is gone and he can't bring him back.
 
@@ -138,7 +144,7 @@ Not when he knows she's feeling so much already.
 
 *"Minnow."* 
 
-Thoirt's voice finds it way through the stones he's begun to place; she's velvet and serene in his ears, tranquil and transparent in his mind. It surprises him to hear her, so much so that it shocks him out of grounding and his rising ramparts stutter at her reassurance; she only uses the pathway meant for herself and Dain,
+Thoirt's voice finds its way through the stones he's begun to place; she's velvet and serene in his ears, tranquil and transparent in his mind. It surprises him to hear her, so much so that it shocks him out of grounding and his rising ramparts stutter at her reassurance. She's only using the pathway meant for herself and Dain,
 
 *"Must you carry guilt that was never meant for you? Stop punishing yourself over a death you did not cause."*
 
@@ -150,11 +156,14 @@ Their eyes meet and the trembling begins.
 
 They have the same eyes, the same grin, the same face.
 
-"He's the reason—"
+Imogen's voice disrupts his thoughts, "He's the reason—"
 
-*Gods,* all day today he's been hearing things he'd rather not: his last name, his father's name, what he can and can't achieve on his own. Imogen's response is clear as a bell in the room, Catriona's surprise bear and plastered across her face, Maiselle's obvious confusion, but all of it is so slow to take in. It's deafened, smothered under waves temperate water as Thoirt calms him.
+*Gods,* all day today he's been hearing things he'd rather not: his surname, his father's name, what he can and can't achieve on his own. When Imogen responds to Maiselle, Catriona's surprise is obvious and plastered across her face. Maiselle bears concerned confusion, and Sven only keeps his eyes lingering on Dain. All of it is so slow to take in. It's deafened, smothered under waves of temperate water as Thoirt calms him.
+
+He tries hard to reach for the thoughts pulling him under but Sloane's daggertail keeps him gated away from them,
 
 *"We're safe here, Minnow. Just swim like you do with Cath. Like you always have."*
+
 Sloane's eyes are on him as she shouts, near screaming, then they shutter to Imogen, and back to him—she's worrying.
 
 She's worried about him.
@@ -179,15 +188,19 @@ Full of worry.
 
 *"My Little Love is very capable of handling herself. See?"*
 
-"Have you tried even once, on mine or Liam's behalf at getting his side of the story?" she bites, stepping to Imogen with bright eyes,
+"Have you tried even once, on my behalf or Liam's, at getting Dain's side of the story?" she bites, stepping to Imogen with bright eyes,
 
-"I don't need to, Liam is *dead* Sloane."
+"I don't need to, Liam is *dead* Sloane. That was the side he chose."
 
 "Right." Sloane sighs,
 
-Sloane turns around, walking back to Dain with her face flushed and scrunched, "Is that any different than Navarre deciding we don't need to know about Venin? There's only once side to this and that's how you perceived it?"
+Sloane turns around, walking back to Dain with her face flushed and scrunched, "Is that any different than Navarre deciding its citizens don't need to know about Venin? There's only one side to this that matters and that's how you perceived it? The one that leaves us in the right to treat him like shit for it all while asking for favors?"
 
 *"Bathing chamber,"* she tells him before turning back to face Imogen, *"I need five minutes, I'll meet you in there."*
+
+"I haven't asked him for anything." Imogen spits,
+
+Sloane scoffs, arms crossed over her chest, "Well, you're about to, aren't you?"
 
 Dain doesn't argue, he doesn't stop to answer Catriona and Sven's mutters of concern. He strides straight into the bathing chamber and drops to his knees after hearing the door click shut, listening only to Thoirt's rumbling growls.
 
@@ -199,11 +212,11 @@ When Sloane enters the bathing chamber she's swift in reaching for him, and she'
 
 Dain grits his teeth and crams his eyes shut—he breathes in through his nose, and slowly out of his mouth.
 
-He can't tell her that every time he sees her, he sees her brother, and when he sees Violet or Riorson he *feels* that moment that he found out his father betrayed him for that final time. That he trust him like a fool, hoping he'd do the right thing to protect Violet because she was closest thing he'd ever have to a daughter.
+He can't tell her that every time he sees her, he sees her brother. When he sees Violet or Riorson he *relives* that moment in the courtyard when he discovered his father betrayed him. That Dain trusted him like a fool, hoping he'd do the right thing to protect Violet because she was the closest thing he'd ever have to a daughter.
 
-Dain can't tell her he feels pathetic and worthless and undeserving of her affection and attention. He can't tell her that for the rest of his life he'll look at her and feel the same in regret and tragic sadness that he does in love and happiness. He'll always be trapped in a the complex webbing of what he caused regardless of wether or not he intended for it to happen, that if he had just left Violet alone, if he had never told himself he was in love with her, if he had respected her decisions and space, that the he wouldn't ever had been the ultimate accessory to Liam's death. The cause of it all.
+Dain can't tell her he feels pathetic and worthless and undeserving of her affection and attention. He can't tell her that for the rest of his life he'll look at her and feel the same regret and tragic sadness that he does in love and happiness. He'll always be trapped in the complex webbing of what he caused regardless of never intending for it to happen. That if he had just left Violet alone, if he had never told himself he was in love with her, if he had respected her decisions and space, that he wouldn't ever have been the ultimate accessory to Liam's death. The cause of it all.
 
-The words catch mostly in his throat but he manages to open his eyes and grant her the respect she deserves.
+The words catch mostly in his throat but he manages to open his eyes and meet hers.
 
 "I can't make the same mistake again," Dain groans, blinking away tears, "I've already hurt someone loving them. I can't do this again. I hurt you before I'd even known you, Sloane."
 
@@ -211,13 +224,13 @@ He pulls away from her to wipe his eyes with his palms.
 
 "I can't make this go away and we can't pretend it never happened."
 
-Sloane falls to her knees just ahead of him, the godsdamnned woman, she grabs his face again and kisses him,
+Sloane falls to her knees just ahead of him, the godsdamned woman, she grabs his face again and kisses him,
 
 "Who's trying to run from it?"
 
-"*I* am." he stammers, "I am. I'm ashamed of myself. Of who I was, that I can't mitigate, or repair the damage I've done. I was completely blind, a perfect damn pawn for them. I've hurt so many people and I can't help them heal. I don't know what to do—"
+"*I* am," he stammers, "I am. I'm ashamed of myself. Of who I was, that I can't mitigate, or repair the damage I've done. I was completely blind, a perfect damn pawn for them. I've hurt so many people and I can't help them heal. I don't know what to do—"
 
-"Well first, you could breathe." She giggles but her eyes are glazing over, "Seriously your face is red Dain; do you need a kiss?"
+"Well first, you could breathe." She giggles but her eyes are glazing over, "Seriously, your face is red, Dain; do you need a kiss?"
 
 His head rocks side-to-side; who in their right mind is denying Sloane Mairi a kiss?
 
@@ -235,7 +248,7 @@ He snorts, "It dawned on me that everyone didn't know about everything that happ
 
 His voice catches on the word, and he can feel himself about to spiral into the same self-destructive pattern he's been fighting all day.
 
-"Don't." Sloane hisses, eyes blazing blue, "Don't you fucking dare."
+"Don't," Sloane hisses, eyes blazing blue, "Don't you fucking dare."
 
 He takes a breath, and when he speaks again his voice is quieter, more controlled.
 
@@ -265,7 +278,7 @@ She kisses him.
 
 She kisses him again, "And Avalynn," and again, "And Aaric," and then again, "And Baylor," and yet again, "And Kai," and *again,* "and Violet, and Imogen."
 
-He returns each one, full mouthed, wet, flirty, each one his head is cradled in her warm hands.
+He returns each one, full-mouthed, wet, flirty, and with each one his head is cradled in her warm hands.
 
 "I have every marked one I'll ever come across. Every friend I've yet to make."
 
@@ -281,7 +294,10 @@ His voice cracks while the words drop out of his mouth, "I'm not the right one S
 
 When they re-emerge from the bathing chamber there's knocking at the suite door and Dain moves to answer it.
 
-*"It's just Second Squad, the third and second years."* Sloane informs him.
+*"It's Second Squad, the third and second years."* Sloane informs him.
 
 She drops onto the sofa next to Imogen, leaning onto the older woman in a way that makes him want to wedge himself between the two,
 
+*"I have a feeling today is the day Fourth Wing drops in to check on you."*
+
+He peeks back at Sloane, then to Maiselle; sVEN AN
