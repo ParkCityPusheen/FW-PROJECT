@@ -206,6 +206,14 @@ Dain doesn't argue, he doesn't stop to answer Catriona and Sven's mutters of con
 
 ---
 
+The bathing chamber is cooler than the suite beyond. Dain focuses on the details; dark green tiles rising vertically around him, waxed brass fixtures catching what light filters through the windows above the shower, the floor beneath his knees bears the intricate Tyrrish patterns, kaleidoscopic with engraved lines that curve in neat designs. The tiles lack warmth, and his breathing echoes against them, carrying into the high ceilings. The wooden tub with its brass feet sits ahead, and the air carries the faint mingling of soap scents. Sloane's lemon and honey and his own leather and pines, familiar and calming as he grounds himself with Thoirt.
+
+*"My Little Love swims in these same waters, Minnow. There is no shame in needing to breathe. When you are ready to surface, you may do so."* Thoirt's presence expands in their bond, perfectly temperate, so neutral it erases sensation itself, and she cocoons the space between them until nothing else exists.
+
+He floats in it, suspended in that perfect neutrality where thought and feeling dissolve into stillness, and it's only then, in the absence of everything else, that the contrast becomes clear. Cath has never been this gentle with him. Never this soft. So why is Thoirt? What has he done to deserve this tenderness from a dragon who knows exactly what he's cost her rider? The question claws at him, sharp and visceral, but he needs the anchor. Needs to breathe. Needs to believe, just for a moment, that maybe he's allowed this.
+
+He lets himself sink deeper into that temperate void, counting seconds into minutes. Those minutes stretch and compress, meaningless in his and Thoirt's pathway until the door clicks open and the spell breaks.
+
 When Sloane enters the bathing chamber she's swift in reaching for him, and she's early. Five minutes feel more like ten, but he's certain it's only been three because he's counted them while swimming with Thoirt.
 
 "What's wrong? What's happening?" she begins, grabbing his jaw and lifting up, forcing him to look at her, "Are you crying?"
@@ -230,9 +238,9 @@ Sloane falls to her knees just ahead of him, the godsdamned woman, she grabs his
 
 "*I* am," he stammers, "I am. I'm ashamed of myself. Of who I was, that I can't mitigate, or repair the damage I've done. I was completely blind, a perfect damn pawn for them. I've hurt so many people and I can't help them heal. I don't know what to do—"
 
-"Well first, you could breathe." She giggles but her eyes are glazing over, "Seriously, your face is red, Dain; do you need a kiss?"
+"Well first, you could breathe." She giggles but her eyes are glazing over, "Seriously, your face is red, Dain; do you need another kiss?"
 
-His head rocks side-to-side; who in their right mind is denying Sloane Mairi a kiss?
+His head rocks side-to-side; who in their right mind is denying Sloane Mairi a kiss? And why do they always make him feel so fucking *alive.*
 
 Dain sits up on his knees, just enough to press his mouth into hers from beneath her.
 
