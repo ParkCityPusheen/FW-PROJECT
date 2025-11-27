@@ -302,10 +302,108 @@ His voice cracks while the words drop out of his mouth, "I'm not the right one S
 
 When they re-emerge from the bathing chamber there's knocking at the suite door and Dain moves to answer it.
 
-*"It's Second Squad, the third and second years."* Sloane informs him.
+*"It's Second Squad, the thirds and other second years."* Sloane informs him.
 
 She drops onto the sofa next to Imogen, leaning onto the older woman in a way that makes him want to wedge himself between the two,
 
 *"I have a feeling today is the day Fourth Wing drops in to check on you."*
 
-He peeks back at Sloane, then to Maiselle; sVEN AN
+He peeks back at Sloane, then to Maiselle; Sven is gone and so is Catriona.
+
+"Dain, before you open that can we have a moment of your time please." Maiselle requests, her upper body twisted to face him, "We're in a bit of a rush right now to sort and smooth some things out."
+
+Dain retreats from the door and opts to sit at his desk, "I'm listening."
+
+"The Assembly here is proposing a new Basgiath?" Maiselle probes, eyes entirely inquisitive while he settles into his chair.
+
+"It's meant for fliers *and* riders, and they don't want it mistaken for another Basgiath when it's established." he pulls open the long drawer that runs across the width of the desk's legspace and retrieves his field notes,
+
+"So it's true there will be another place to enroll."
+
+Imogen doesn't watch him as she speaks, she only absentmindedly stares at the tea-table.
+
+"Right."
+
+"And how long is this going to take to build?"
+
+"With the help of the Poromish architechs, dragons and gryphons, hopefully about three months to be passable for housing students and staff."
+
+The idea with the Aretian Schoolhouse had been simple enough. Of course he hadn't been present for the discussion but Brennan had given him a copy of the funding drafts, building process, and rune mechanics. 
+
+Dain had spent hours poring over those documents, memorizing the structural schematics, tracing the rune patterns with his fingers until he could visualize each ward's placement and function. He'd cross-referenced the Poromish architectural notes with Tyrrish building codes, calculated load distributions for the cliffside integration, and mapped out the logistics of dragon-transported materials against the proposed timeline. He knew the exact dimensions of each proposed dormitory wing, the capacity limits for classrooms and staff offices, the ventilation systems designed to channel mountain air through the cave networks.
+
+His eyes drift to Sloane and he finds her eyes on him.
+
+*"Everything okay?"* she asks, head tilting just enough for him to notice.
+
+He'd gone out of his way to make the three-month timeline possible, seeking out Cath to bargain with Squadron's dragons and gryphons. Observing as the beasts mutually agreed upon gryphons utlizing the cliffs to secure a brooding roost, the *first* ever shared on the Continent. Through Cath, he'd negotiated with the dens of Reds and Oranges for cave access, coordinated with gryphons who'd mapped the safest anchor points and stable cliff faces, all of this being knowledge that would have taken human surveyors weeks to compile. 
+
+The dragons had agreed to transport quarried stone from Pormiel and Tyrrish timber directly to the site, a single dragon carrying what would require a dozen wagons, cutting months off the construction timeline. Without them, the project would stretch to six months or longer; with their help, it became achievable.
+
+Gryphons, while twice the size of even the largest horses he'd ever seen, could be counted on to do tasks of delicate precision that would have taken human workers weeks of careful scaffolding and risk assessment. Their talons could grip and place materials in positions where human hands would need elaborate pulley systems and safety harnesses, and they could do the work humans would take days to do in just hours.
+
+*"Just... thinking."* Dain finally responds.
+
+He fiddles with pen she got him, and peeks through the wall of windows hoping to see Cath there.
+
+"I could make it faster. But I need to be able to maintain some sort of anonimity." Imogen says, proudly.
+
+He spins the pen across his thumb.
+
+"I can't do much."
+
+Imogen squints at him, "We both know that's a lie."
+
+"Why not ask Violet. She's your duchess."
+
+"Because it's less obvious if I ask you."
+
+Dain's lips purse, "Then...?"
+
+"We both know you say Garrick's second signet." he doesn't miss the way her voice softens while mentioning Tavis, and Sloane leans closer to her as his name escapes her lips,
+
+"I'm an earth wielder. And I've been practicing."
+
+Thoirt perks in her and Dain's pathway, *"How unique."*
+
+Dain's mouth falls open for a moment, "There's no record of an earth wielder in Navarrian history."
+
+Imogen only responds with a curt nod.
+
+"May I see?"
+
+He realizes he hadn't thought much before asking her to show him and nearly regrets it when Imogen stands and pivots to stand just ahead of the desk, then she picks up a one of the red stones that Dòrainn had given him. He'd been using them to hold curled scrolls down at their ends, opting to not give them up the same way he had Cath's diamond.
+
+She shouldn't be touching them.
+
+Just as he begins to open his mouth to demand she place it back, Imogen returns it back to the portrait drawing of runes it had been sitting on,
+
+"I can't do it with this."
+
+Relief makes his shoulders settle when she sets the gemstone back down and Dain tips his head back to look at her face, "What do you need?"
+
+"...rocks?"
+
+His eyes narrow, "These are gemstones."
+
+"That terrace, is it close to the cliffside?"
+
+"The whole left side of it is cliffside."
+
+Imogen jerks her head towards his bedroom, "Come."
+
+He follows her of course, with Sloane at his heels and Maiselle just after her.
+
+"This is such a nice room thing. How'd you get them to let you have it?" Maiselle asks, interrogating as Imogen pushes the terrace double doors open, "Did Sorrengail let you have it?"
+
+"She's the room before this one, and across the hall. Her brother put me here during my recovery, it's the only place he could work comfortably while monitoring me. He slept in here the first week and a half after I arrived too."
+
+Dain had worried about having to return to his barracks room after he could properly make it to the bathing chamber to use a commode by himself, but Brennan hadn't made him surrender the suite. Previously it had been utilized for meetings during the Rebellion and now it remained unused and unacknowledged by Riorson. So when Brennan had mentioned Dain's new duty station would be here in Tyrrendor as one of Violet's advisors (in training), Dain had risked looking stupid by asking to stay in it.
+
+Brennan had all but willingly relinquished the key, happy to have it occupied rather than just being a waste of space.
+
+When the 
+
+
+
+
