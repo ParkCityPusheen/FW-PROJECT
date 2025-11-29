@@ -716,17 +716,15 @@ Pastel-blue. High-cut. A delicate white bow at the center.
 
 Sloane is breathing deeply only minutes later, her legs splayed out like her arms,  but sleep doesn't find Dain the way he thought it would. Instead, blood finds his nether regions and keep him up while he tucks away his erection, hiding it under his palm underneath the waistband of his sleeping pants.
 
-Time passes relentlessly and Cath comes alive in their bond at some point.
+Time passes relentlessly and Cath comes alive, perturbed at the time and that Dain is still restlessly awake.
 
-*"Do what you usually do."* his dragon advises—as if whipping out his dick and beating it with her sound asleep next to him was normal.
+*"Do what you usually do."* his dragon advises nonchalantly.
 
-*"Are you insane? She's right next to me."*
+*"Are you insane? She's right next to me."* Dain guffaws silently, hands shaking; he's sure it's some sort of crime to get off while a person sleeps unbeknownst just a foot away.
 
-Cath grunts.
+Cath grunts, *"Sounds like a you problem; formation in four hours."*
 
-*"Sounds like a you promblem; formation in four hours."*
-
-*"Perfect. Four hours to contemplate what a shit advisor you are."*
+*"Perfect. That's four hours to contemplate what a shit advisor you are."*
 
 Dain can practically taste Cath's smug satisfaction through the bond.
 
@@ -736,7 +734,7 @@ Dain can practically taste Cath's smug satisfaction through the bond.
 
 *"It very well should have been."* the swordtail hisses, reprimanding him with with a sharp tug, *"I've given you plenty of good advice. You just don't listen."*
 
-Dain whines, nearly outloud, *"Name one time."*
+Dain whines, nearly out loud, *"Name one time."*
 
 *"I told you not to let her sleep in your bed."* 
 
@@ -750,16 +748,27 @@ Cath's tone softens, just slightly, *"You cannot fix her, Hatchling. You can bar
 
 *"I'm not trying to fix her."*
 
-"Aren't you?"
+*"But aren't you?"*
 
-"I'm not trying to fix her."
-"Aren't you?"
-The question hangs there, heavier than it should be. Dain shifts, tucking his arm under his pillow. "I just want her to know she's not alone."
-"Then mission accomplished. Now go to sleep before you do something stupid."
-"Like what?"
-"Like wake her up with your incessant brooding."
-Dain huffs, but Cath's presence settles into something steadier, quieter. The rhythm of their bond evens out, and despite himself, Dain feels his breathing slow to match it.
-"Still here?" Cath asks, almost gently.
-"Trying not to be."
-"Good. Keep trying."
-And somewhere between one breath and the next, sleep finally takes him.
+Dain shifts, tucking his arm under his pillow, *"I just want her to know she's not alone if she's feeling like she is."*
+
+Cath's voice rumbles, shaking them both in their bond, in the wasteland it takes the shape of; he sounds softer now, more distant. *"Rest now."*
+
+Dain closes his eyes, but sleep still refuses him. The day presses against his temples, the image of Sloane's silent tears, the memory of her hand brushing his fingertips, the way she'd looked at him when he told her to use him. His mind won't quiet.
+
+That fucking bow on her panties.
+
+*"Tell me about where you were born."* Dain begs, voice barely a whisper in his own head.
+
+*"Again?"* Cath's tone carries a familiar warmth, achingly fond, *"You ask for this every night."*
+
+*"It helps."*
+
+*"Very well."* The swordtail's presence settles deeper into their bond, a comforting weight that Dain has come to rely on. *"The ground was rough beneath my claws when I first broke free from my shell, cracked and dry. I remember how strange the sand felt; something entirely new to me. The sky stretched endlessly above, gray and vast. I can recall clearly, the way the wind felt against my scales for the first time, how I could hear my den-mates moving around me, their claws scraping against the earth..."*
+
+Dain recognizes it immediately; the place Cath describes exists right there in his mind, in the wasteland their bond embodies. He sees the cracked earth stretching endlessly, feels the rough sand beneath his boots, watches the overcast sky that never seems to change. It's the same desolate landscape he's walked through countless times in the bond, the same place where he first met Cath. The familiarity of it settles over him like a heavy blanket, and Dain feels his breathing slow, his muscles relaxing one by one.
+
+*"Keep talking."* Dain mumbles when Cath eventually stops and his eyelids are too heavy to keep open.
+
+The Red's draconic laughter is an addictive baritone of rumbling vibrations, akin to the sound of thunder rolling over Aretian mountaintops before storms would settle in, ripping the sky open and weathering those exposed below. But, Cath does, his voice a steady guide in the dark, until Dain's mind finally slips into the void of sleep just like he has so many nights before.
+
