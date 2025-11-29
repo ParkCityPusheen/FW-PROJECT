@@ -1,12 +1,20 @@
 ### [Chapter 1](https://archiveofourown.org/works/63478354/chapters/162656737): Dain
 
-"Precognition?"
+Commons are dark except for the mage lights in the space they occupy, the light barely reaching the far corners of the room. Dain stands near the table Aaric is bent over, arms crossed, occasionally pacing between the tables. Outside the high windows, the sky is still black; it's just moments before formation and a late summer chill has seeped in through the stone, making the empty space feel even more isolated.
+
+"Precognition?" Dain sputters, repeating Aaric's confession.
 
 "Right."
 
-"How many other people know?"
+Dain's jaw tightens. He'd suspected something, but hearing this is jarring.
 
-Commons is entirely empty and they both know it; Dain and Aaric have already checked, but Aaric looks around anyway and his brows knit together when he settles his attention back onto Dain.
+Cam—*Aaric*—His Royal Highness King Tauri's youngest son, a formidable rider, now an inntinnsic. Not the kind that could be controlled based on the limitations of his ability, a true inntinnsic wielder.
+
+The fear Dain feels for him is a physical weight that nearly brings Dain to his knees; he's graduating this year, there's no way to cover up for him without letting another person know. It's not his secret to share, but he ruminates over it, over who to possibly tell and how they could even help deter suspicions formed against him.
+
+Carr has been peeved by *both* Sloane and Aaric; one refusing to wield and the other yet to have wielded.
+
+"How many other people know?" Dain mutters, blinking rapidly as the eventualities rip through him like serrated daggers.
 
 "There's quite a few moving parts here," he begins, "but right now, you, Vi, and Sloane."
 
@@ -14,11 +22,13 @@ Dain lifts a brow.
 
 "Mairi?"
 
-"Yeah, she's smart. And my best friend."
+"She's smart and capable. And my best friend." Aaric amends.
 
-He snorts.
+Dain blanches, groaning after running his hands over the front of his face, "*Godsdamnit* Cam."
 
-Aaric was near completing his first year as a rider and had somehow cultivated a friendship, in that little bit of time, strong enough that he trusted Sloane with information that could have him killed within seconds. Then there was himself and Violet.
+Aaric was near completing his first year as a rider and had somehow cultivated a friendship, in that little bit of time, strong enough that he trusted Sloane with information that could have him killed within seconds. He'd often catch them in corners, whispering to each other, exchanging knowing glances during Signet Sparring, their dragons flying in perfected unison in flight manuevers.
+
+Then there was Dain and Violet.
 
 Draithus had changed everything. The battle itself was a blur of wyvern and venin and desperate survival, both internally and externally.
 
@@ -30,7 +40,7 @@ With her venin lover.
 
 "So tell me again?" Dain sighs, "What do you need me to do?"
 
-"Stay in the good graces of the Aretian Generals. And close to Brennan," Aaric pauses, "and your dragon... trust him."
+"Stay in the good graces of the Aretian Generals. And close to Brennan," Aaric pauses, "and your dragon, you should trust him."
 
 "He's the only one I've ever been able to trust, but thank you for the insight."
 
@@ -44,7 +54,7 @@ He stops, looks around again.
 
 "The premonitions I've had of Cath are... distorted, almost like I'm not supposed to see them. He's the only time my signet experiences disturbances in how it typically works. Him and *you.*"
 
-Dain cracks his fingers, working his index of the knuckle of each one, pressing until the bones bend stiffly.
+Dain cracks his fingers, working his index fingers over the knuckle of each joint, pressing until the bones bend stiffly, then pop.
 
 Cath wasn't normal, this was obvious. Not in the ways dragons had been as studied by humans; his dragon had an oddly stoic, nonchalant disposition. He wasn't keen on being unnecessarily aggressive and, in observation of other riders, he seemed particularly inclined to make Dain's life easier.
 
@@ -78,7 +88,7 @@ Aaric stiffens in his seat, "What is it then?"
 
 "Look, it's been weird for the two of you, but I feel like with how stuck under your father you were, and Riorson's position, the constant suspicion was warranted—"
 
-Dain dismisses him with a wave, "Yeah, that's rich. I've considered it all already and I'm not sure Aaric, it seems like my persepctives are always the ones skewered and wrong."
+Dain dismisses him with a wave, "Yeah, that's rich. I've considered it all already and I'm not sure Aaric, it seems like my perspectives are always the ones skewered and wrong. I can't just plan around variables I'm unaware of."
 
 Aaric exhales, clearly recognizing the dismissal, but pushing forward anyway, "Take a Tyrrish outpost if I can't get my father to pass this—"
 
@@ -96,7 +106,7 @@ He screams internally: he’d committed himself to two women who barely tolerate
 
 "I understand that, Dain, I do. But it had to be done."
 
-"I get it. I'm sorry," Dain groans through grit teeth. "I'll cover up for you as much as I can."
+"I get it. I'm sorry," Dain groans through gritted teeth. "I'll cover up for you as much as I can."
 
 He wants to demand answers, to press Aaric about the decision to send Sloane past the boundary, but he understands the limits. Aaric's signet isn't something he discusses freely, and he'd come to Dain of his own volition, trusting him with information that could get him killed. He doesn't want to become another source of stress, not when Aaric's already shaken from revealing himself and actively avoiding his father. He'd only press just enough that Aaric knows he thinks it was stupid, but he won't push beyond that.
 
@@ -112,13 +122,13 @@ Aaric offers a weak grimace, "Thanks for working with me, and for protecting Slo
 
 "I wasn't sure what would happen to her. I could only see the outcome of the roles bigger than the one she played in, and I know it was unfair to her for me to put that on her."
 
-"Don't thank me for that." Dain hisses. 
+"Don't thank me for that." Dain bites. 
 
 He grabs the cup of coffee Aaric had brought him and downs it before changing the subject, "What are the odds, you think, that my father tries to sabotage my Wing during War Games?"
 
 Aaric gives him one of those *let's-be-serious* looks.
 
-"Probably highly, especially considering he operates with the brain capacity of Halden at his age."
+"Highly, especially considering he operates with the brain capacity of Halden in his old age."
 
 Dain drops his head back to glare at the ceiling.
 
@@ -134,7 +144,7 @@ Once they reach the rotunda, Aaric breaks off for his own posse after sliding hi
 
 Maiselle's signet was one of tricks and foolery; her appearance changed into that of another's at will and she was *constantly* training it.
 
-The surfacing morning light catches on the stone masonry behind them, casting long shadows across the grass where cadets still mill about in loose formation. Dain's taller than he realized, nearly towering over most of the first and second years, his shoulders broader, his frame more imposing than the cadets standing in ranks around them. The brown of his eyes, he notices, is lighter than he'd thought, with amber pooling behind the irises like honey caught in glass. His beard and curls are the same lightly coloured brunette shade, sun-bleached at the edges from hours spent flying over the ocean with no protection from the sun, and he looks exhausted. 
+The surfacing morning light catches on the stone masonry behind them, casting long shadows across the grass where cadets still mill about in loose formation. Dain's taller than he realized, towering over most of the first and second years, his shoulders broader, his frame more imposing than the cadets standing in ranks around them. The brown of his eyes, he notices, is lighter than he'd thought, with amber pooling behind his irises like honey suspended in glass. His beard and curls are the same lightly coloured brunette shade, sun-bleached at the edges from hours spent flying over the ocean with no protection from the sun, and he looks exhausted. 
 
 Deep shadows carve themselves beneath his eyes, and there's a tension in his jaw and shoulders that speaks to weeks of sleepless nights and constant vigilance. Overworked. Strained. The weight of leadership and guilt and responsibility settles into every line of his face.
 
@@ -142,7 +152,9 @@ He can't believe he'd ever wanted this position willingly, especially when he'd 
 
 Dain looks away, uncomfortable with the observation, and focuses on the squad before him.
 
-Silence slithers between the two of them; it's always like this lately, condensed, quiet, and careful. He receives her report, *all conditions normal, all cadets accounted for,* checks it himself, then takes it to Kaori who glances at him, then back at Maiselle *as* him,
+Silence slithers between the two of them; it's always like this lately, condensed, quiet, and careful. Maiselle doesn't push, doesn't ask, and Dain's grateful for it. Bragen had been a fine Executive Officer, more willing to talk, friendly enough, but he'd stepped down on account of discovering Riorson's condition; he couldn't support the type of people who would harbor venin and Dain had accepted his reasoning without a word. Now he notes the flier standing to the left of Cat, all but huddled with Marin and Kai.
+
+Dain receives Maiselle's muster report: *all conditions normal, all cadets accounted for,* checks it himself, then takes it to Kaori who glances at him, then back at Maiselle *as* him,
 
 "I'll never get used to that," their professor mumbles with a dark chuckle; Dain only offers a disinterested smile before retreating. When he returns back to where he'd stood, he has Maiselle dismiss the Wing but requests Iron Squad stay behind—and they do so, albeit reluctantly.
 
@@ -154,7 +166,7 @@ Silence slithers between the two of them; it's always like this lately, condense
 
 There's a deafening silence, and his eyes flicker over to Aaric's, who just nods.
 
-"So just be prepared for that," he amends.
+"Just be prepared for that," he amends.
 
 No one seems surprised.
 
@@ -186,6 +198,8 @@ Dain shudders. Had Ridoc not realized just how close he'd been to death just fee
 
 "King Tecarus decreed any unnecessary flier deaths would be concerning for Navarre." Sawyer adds, shifting his weight onto Matthias for a moment long enough to stand up straighter, "Everyone's already on edge since anyone could be venin when it's convenient for them now, especially us since... you know."
 
+Bragen shuffles uncomfortably where he's planted next to Marin, and Kai busys himself with the dirt patches around his feet and Catriona spits, her brown eyes rolling upwards after glancing at Violet.
+
 Right. *Riorson.*
 
 "We'll be fine, Dain," Aaric adds, then squares his shoulders, "Just a hunch."
@@ -196,27 +210,31 @@ Dain's eyes rip to Aaric's; *praise Zihnal,* that hunch'd better be the best one
 
 She points at her rebellion relic and then to Sloane's.
 
-Imogen looks worse for wear, or at least more than Dain had ever seen her in the three years he'd known her. Quin's death had taken an unbelievable toll on her, then Garick and Bohdi's deaths, compounded by the news of Riorson, all layered with Violet and whatever plan Xaden had been working on.
+Imogen looks worse for wear, or at least more than Dain had ever seen her in the three years he'd known her. Quin's death had taken an unbelievable toll on her, then Garick and Bohdi's disappearances, compounded by the news of Riorson. All of this layered with Violet and whatever plan she and her newly betrothed had been working on in his final moments.
 
-Hedeon knows he'd be the last to know about that. If at all.
+A plan she only mentioned so that she could ask if he’d be able to recover the memories of.
+
+The answer had been no, and he refused to touch her. Dain glances at his feet; he would rather die than see another of Violet's memories. Be it accidental or willing.
+
+Hedeon knows he'd be blamed for whatever he’d find there.
 
 He tilts his head at Imogen, "How are you?"
 
 "About as good as you." she shrugs, brushing wavy pink bangs away from her eyes.
 
-Dain knows she means himself after Draithus, after watching him blow up on Violet so badly Tairn had snarled and snapped at him in the distance. Imogen had been there to witness it all as part of the _Violet-is-no-longer-allowed-to-be-anywhere-by-herself_ rule that Ridoc offered up to Brennan, who accepted it gleefully.
+Dain knows she means himself after Draithus, after watching him blow up on Violet so badly Tairn had snarled and snapped at him in the distance. Imogen had been there to witness it all as part of the *Violet-is-no-longer-allowed-to-be-anywhere-by-herself* rule that Ridoc offered up to Brennan, who accepted it gleefully.
 
-In hindsight, he thinks awkwardly, he should've just said "all right" and walked off, because honestly, what the fuck was he even supposed to do at that point. Everything had already happened. Yelling at her had only been impulsive.
+In hindsight, he thinks awkwardly, he should've just said "all right" and walked off, because honestly, what the fuck was he even supposed to do at that point. Everything had already happened. Yelling at her had only been impulsive. It's not like she could rewind time and make less questionable decisions.
 
 Dain exhales sharply. "We just have to get through War Games."
 
-Then he's done with Basgiath, he could go be some unimportant Lieutenant at an outpost legions away from Basgiath. 
+Then he's done with Basgiath, he could go be some unimportant, unnamed Lieutenant at an outpost legions away from this fucking place. 
 
 "Hopefully we all make it," Imogen responds meekly.
 
 He nods, then bites at his lip, ripping away chapped skin.
 
-"We'd probably be just as miserable, dead either way."
+"We'd probably be just as miserable dead either way."
 
 "You know what," she drawls, rubbing her eyes, "You're right."
 
@@ -314,7 +332,7 @@ But if he lets this continue it'd become some sort of sick dependency.
 
 "Where the fuck are your pants, Mairi?" he grits out after opening his door.
 
-*Quickly, tell her to leave then.* Cath commands, gnawing aggression beating down the shields he'd begun to place.
+*"Quickly, tell her to leave then."* Cath commands, gnawing aggression beating down the shields he'd begun to place.
 
 Dain pokes his head into the hallway and peers left then right; it's not too late for most of the other third years to be where they're supposed to be. He grabs her forearm and drags her into his room. He hasn't even bathed yet and she's there.
 
@@ -338,7 +356,7 @@ She doesn't, so he slams it shut with lesser magic instead.
 
 He doesn’t answer. Not aloud, anyway.
 
-But yes, he _would_ like that.
+But yes, he *would* like that.
 
 Cath explodes into a fit of dragconic laughter.
 
@@ -348,9 +366,9 @@ She pads past him to his bed, makes herself comfortable, then glares at him as i
 
 "Gods, please relax Wingleader, you're freaking me out. You normally close the door after I walk in," she states as her eyes shrink into slivers of suspicion, and tucks her wet hair behind her ears.
 
-Dain freezes—_normally?_
+Dain freezes—_normally?*
 
-_"Glad I could be your comedic relief,"_ he exclaims at Cath, then slams his shields up, grabs his towel and storms out to the bathing chamber.
+*"Glad I could be your comedic relief,"* he exclaims at Cath, then slams his shields up, grabs his towel and storms out to the bathing chamber.
 
 His shower is quick, hot, at first, then so miserably cold he's shivering while drying off.
 
@@ -360,7 +378,7 @@ He moves around her without thinking, sidestepping her as she shifts to examine 
 
 She's drying her hair with one of his towels, blonde strands falling in thick waves that cascade past her shoulders and catch the dim ambience from mage lights. When she bends forward to flip her hair over, the oversized nightshirt pulls taut across her back, revealing the lean rivets of her spine through the thin fabric, the way her waist narrows and flare into the curve of her hip. She straightens, running her fingers through the damp strands, and the movement shifts the fabric again; he catches glimpses of her silhouette, the slim lines of her figure, the way her body moves with agile grace that tells the tale of months of daily training and natural athleticism.
 
-*You're staring.* Cath's voice leaks into his thoughts, heavy with curiousity.
+*"You're staring."* Cath's voice leaks into his thoughts, heavy with curiousity.
 
 Dain forces his attention away, focusing on his armoire and grabbing his sleeping set from it, but he's hyperaware of every shift of clothing, every movement she makes behind him. The tension in the room is thick enough to taste, and he knows she feels it too when he catches her peeking at him all the same.
  
@@ -374,25 +392,23 @@ Once he's hugged in thick cotton, dark black and cushy, he picks up the towel an
 
 He watches as her eyes widen into aquatic saucers and the color drains from her face entirely.
 
-
-
 "Can't do what anymore?"
 
-He whips his head back to see Aaric there, brows raised quizzically.
+Dain whips his head back to see Aaric there, able to open the door but not to pass through the wards, brows raised quizzically.
 
-_Shit._
+*Shit.*
 
 "We aren't fucking," Sloane says to him slowly.
 
-Dain's brows draw together: _why should Aaric care that they are or aren't?_
+Dain's brows draw together: *why should Aaric care that they are or aren't?*
 
-"What? I don't care—_ew,_" Aaric says to her.
+"What? I don't care—*ew,*" Aaric says to her.
 
 Dain grabs Aaric's forearm and pulls him into the room, slamming the door after him. He sits at Dain's desk, settling in like he usually does. The owner of the room is then left with only the bed next to Sloane or the table to the right of the desk.
 
 He groans knowing he's just barely managed to fight off the pending erections and picks the table.
 
-"So... _Wingleader._ And Cadet—" his room becomes uncomfortably quiet when Aaric starts up,
+"So... *Wingleader.* And cadet-that-he-is-not-sleeping-with—" Dain's room becomes uncomfortably quiet when Aaric starts up.
 
 Dain opens his mouth, looks up at the cobblestone ceiling and groans. "Aaric, please, don't."
 
@@ -417,7 +433,7 @@ Aaric hands Dain a parchment scroll and turns to Sloane.
 
 "What is it?" Sloane whispers again, rising from the bed to peek at the parchment.
 
-"Where are your pants?" Aaric taunts her, crossing his arms, "That's not very _'we aren't fucking'_ of you."
+"Where are your pants?" Aaric taunts her, crossing his arms, "That's not very *'we aren't fucking'* of you."
 
 "Why isn't this on an announcement board?" Dain puzzles aloud,
 
@@ -431,7 +447,7 @@ Aaric hands Dain a parchment scroll and turns to Sloane.
 
 Sloane only flicks him off.
 
-Aaric grins. "_Permanently,_ once I'm done convincing this greedy old fuck. Also, I won't be in Aretia with you this rotation. Good luck."
+Aaric grins. "_Permanently,* once I'm done convincing this greedy old fuck. Also, I won't be in Aretia with you this rotation. Good luck."
 
 He gets up and exits as quickly and unannounced as he entered after addressing Sloane, "We can discuss this," he points at Dain, "later."
 
@@ -459,7 +475,7 @@ His resolve falters at her tone, her dejected stance overwhelming him while she 
 
 "Look, it's not my place to share any of what's going on with him."
 
-"Or mine," she snaps. "Since he's _my_ best friend, but he's here consulting with _you._"
+"Or mine," she snaps. "Since he's *my* best friend, but he's here consulting with *you.*"
 
 Dain's eye twitches.
 
@@ -471,24 +487,24 @@ Dain and Aaric had unspoken history between the two of them that he's sure would
 
 And he's starting to *assume.*
 
-All Dain can think of suddenly are the faces Violet made each time he tried, and failed, at doing what he thought was right for her. What he thought _she_ wanted from him—
+All Dain can think of suddenly are the faces Violet made each time he tried, and failed, at doing what he thought was right for her. What he thought *she*F wanted from him—
 
 But Sloane doesn’t argue. Just leaves—quiet, and unreadable.
 
 He sinks into his bed after a few moments, and it's still warm where she’d been and his sheets are poisoned with her lulling scent.
 
-Eventually hours pass but sleep doesn’t come, he can _feel_ Cath about to slander him when the Red finally stirs, but Dain beats the him to it:
+Eventually hours pass but sleep doesn’t come, he can *feel* Cath about to slander him when the Red finally stirs, but Dain beats the him to it:
 
-_"Don't."_
+*"Don't."*
 
-_"You could use the advice,"_ Cath mutters.
+*"You could use the advice,"* Cath mutters.
 
 Dain huffs a breath, half-laugh, half-exhale. Romantic advice from his emotional support apex predator. He doesn’t bother trying to sleep again. The bed feels wrong now, too big, and too empty, and too warm on one side.
 
 Instead, he lies there and thinks about Sloane, and about the way she always shows up without asking. About how he never tells her not to.
 
-_"Ask her why,"_ Cath suggests, deadpan and aggressive, _"At this point we are both plagued with thoughts of her."_
+*"Ask her why,"* Cath suggests, deadpan and aggressive, *"At this point we are both plagued with thoughts of her."*
 
-Dain groans and buries his face in the pillow. _"You could just... not?"_
+Dain groans and buries his face in the pillow. *"You could just... not?"*
 
-Indignation crackles through the wasteland their bond embodies like ice. _"As you could also just not."_
+Indignation crackles through the wasteland their bond embodies like ice. *"As you could also just not."*
