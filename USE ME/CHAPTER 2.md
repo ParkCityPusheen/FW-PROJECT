@@ -666,7 +666,7 @@ Sloane's eyes are a deep blue in the mage light, deep, glistening quarries of aq
 
 "At first I thought he'd turn me in. I thought I was cursed. Honestly I wished Cath would've burned me alive instead of bonding me." Dain's eyes roam the expanse of the bed, of her body, her legs, the soft blonde hairs barely visible on them in mage light.
 
-He continues, hyperaware of how his voice vibrates through the room, "Inntinnsics have a single fate. All possible pathways lead to death unless they can be conveniently controlled. All things are possible with control. And, I learned to love the leash."
+He continues, hyperaware of how his voice vibrates through the room, "Inntinnsics have a single fate and that is that all possible pathways lead to death unless they can be conveniently controlled. All things are possible with control. And, I learned to love the leash."
 
 Sloane snorts softly. Probably agreeing in her own way.
 
@@ -674,9 +674,15 @@ Sloane snorts softly. Probably agreeing in her own way.
 
 She doesn't respond, but that fury in her eyes ignites. Dain remembers his father telling him fires burn the hottest and the most devastating where they're blue, and there, standing over her laid across his bed, Sloane Mairi burns through him. Incandescent, furious, and more dangerous than anything he could imagine even in her most vulnerable state.
 
-"Is that what I need to be? A weapon? For someone?" she mutters, eyes on Dain, but not seeing him, not focused on him.
+"Is that what I need to be? A weapon for someone?" she mutters, eyes on Dain, but not seeing him, not focused on him.
 
-He bends his leg, dropping a knee onto the mattress, "No, Sloane. You could orchestrate the arsenal, decide who wields what and when. A strategist all the same as a soldier. You can be a quartermaster of destruction, or the blade itself, you just need to choose."
+She's exhausted, no doubt.
+
+He bends his leg, dropping a knee onto the mattress and finding himself ready to succumb to sleep. "No, Sloane," he assures her. "You could orchestrate the arsenal, decide who wields what and when. You can be a quartermaster of destruction, or the blade itself, you just need to choose."
+
+"So I hide? Throw away lives while claiming mine matters more; true Navarrian to suggest that, aren't you?"
+
+"A strategist is just as valuable as a soldier."
 
 Sloane scoffs, her eyes water, tears stinging at the corners, blinking slowly, "And what would I use? If I wanted to conduct destruction, what weapon would you suggest?"
 
@@ -686,8 +692,74 @@ Easy, he thinks.
 
 Her head rolls again, facing him with porcelain features that don't change as fat tears roll over her nose and into the blankets.
 
-"Use *me.*"
+"Use me.*"
 
-She licks her lips and swallows heavily, sneering softly before closing her eyes. Dain bends over, lifting up her legs to pull the sheets from underneath her; it's almost too dark but he can see the blush spread across her face all the way to her ears when his shirt betrays her and billows up for a split second. He pretends he doesn't notice and gets in the bed next to her. Sloane doesn't fit herself against him tonight, and tosses and turns in her sleep.
+She licks her lips and swallows heavily, sneering softly before closing her eyes, "Use the inntinnsic as a weapon. Not the wind wielder, or the fire fire wielder—the inntinnsic."
 
-But that's fine since he fights a raging erection thinking about her high cut, pastel-blue panties and the white bow adorned on front seam for hours, before finally succumbing to sleep.
+"I'm a fountain of powerful magic Sloane, you're a siphon, *use me.*"
+
+Sloane rolls her eyes and groans, "Get in the bed Aetos."
+
+"You're laying on the sheets."
+
+"Then you should fix that."
+
+Dain raises a brow, then grabs the sheets by her feet, yanking down. 
+
+The fabric slides from beneath her, and his shirt, oversized on her frame, rides up with the motion. For a split second he catches a flash of pastel-blue fabric, high-cut with a small white bow at the front seam, before the shirt settles back down. Her eyes widen, realizing what just happened.
+
+He clears his throat and quickly pulls the sheets up over her, then begins climbing in next to her,
+
+"There. Fixed."
+
+Pastel-blue. High-cut. A delicate white bow at the center.
+
+Sloane is breathing deeply only minutes later, her legs splayed out like her arms,  but sleep doesn't find Dain the way he thought it would. Instead, blood finds his nether regions and keep him up while he tucks away his erection, hiding it under his palm underneath the waistband of his sleeping pants.
+
+Time passes relentlessly and Cath comes alive in their bond at some point.
+
+*"Do what you usually do."* his dragon advises—as if whipping out his dick and beating it with her sound asleep next to him was normal.
+
+*"Are you insane? She's right next to me."*
+
+Cath grunts.
+
+*"Sounds like a you promblem; formation in four hours."*
+
+*"Perfect. Four hours to contemplate what a shit advisor you are."*
+
+Dain can practically taste Cath's smug satisfaction through the bond.
+
+*"You're welcome."*
+
+*"That wasn't a compliment."*
+
+*"It very well should have been."* the swordtail hisses, reprimanding him with with a sharp tug, *"I've given you plenty of good advice. You just don't listen."*
+
+Dain whines, nearly outloud, *"Name one time."*
+
+*"I told you not to let her sleep in your bed."* 
+
+Dain glances at Sloane, at the way her hair fans across his pillow, the gentle rise and fall of her breathing. *"She clearly needed—"*
+
+*"And now you're suffering the consequences of you decision for the umpteenth time. See? Good advice. Ignored."*
+
+*"She seemed like she needs someone. And she still does."*
+
+Cath's tone softens, just slightly, *"You cannot fix her, Hatchling. You can barely fix yourself."*
+
+*"I'm not trying to fix her."*
+
+"Aren't you?"
+
+"I'm not trying to fix her."
+"Aren't you?"
+The question hangs there, heavier than it should be. Dain shifts, tucking his arm under his pillow. "I just want her to know she's not alone."
+"Then mission accomplished. Now go to sleep before you do something stupid."
+"Like what?"
+"Like wake her up with your incessant brooding."
+Dain huffs, but Cath's presence settles into something steadier, quieter. The rhythm of their bond evens out, and despite himself, Dain feels his breathing slow to match it.
+"Still here?" Cath asks, almost gently.
+"Trying not to be."
+"Good. Keep trying."
+And somewhere between one breath and the next, sleep finally takes him.
