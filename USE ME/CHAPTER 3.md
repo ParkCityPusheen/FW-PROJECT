@@ -1,52 +1,72 @@
 ### [Chapter 3](https://archiveofourown.org/works/63478354/chapters/163769770): Dain | Break
 
-"So, the controls are: person, item. The variables are, amount and... _type_?"    
+They've gathered around Sloane and Ridoc in the the Pit, the squad forming a loose circle as Sloane tests her signet on him for the first time under Dain's guidance and supervision and Matthias inquisitive eye.
+
+Ridoc sits rigid in his seat, his forearm gripped in Sloane's hand while she clutches a dagger close to her stomach with the other; Dain eyes his jaw as it clenches against whatever discomfort Sloane's signet is causing. Imogen stands close, watching Ridoc wriggle against his seat with focused attention, while Matthias positions herself nearby, ready to interject with questions or observations. 
+
+Sawyer leans against the wall ahead of them, peaking through the railing up at them, observing from an arm's distance away. Cat arrives with a runed daggers prepared, waiting for her turn to contribute to the experiment. Dain keeps himself slightly apart from the group fidgeting with his small leather-bound journal, his ink pen poised above a fresh page as he documents each observation of Sloane's signet in action. He's focused, brows creased while doing his damned best to sense Ridoc's magic while Sloane absorbs it. He can only feel the subtle pull of it against their bodies, and can only see the way Sloane's brow furrows in concentration as she works to control the transfer.
+
+"So, the controls are: person, item. The variables are, amount and...*type?*" Matthias questions solemnly, wincing alongside Ridoc as if the pain were shared.
     
-"Strength?" Sloane grits out, "Aetos's magic is downright diabolical, in comparison to say yours, or Aaric's."
+"Yes." Sloane grits out, "Aetos's magic is downright diabolical, in comparison to say Ridoc's, or Aaric's."
     
 Ridoc's head jerks back, "What do you mean diabolical?"  
 
-She glances down at Dain and their eye contact is brief, "He has as much magic as most of our dragons do, and it feels... wrong." she mutters.    
+Behind him Baylor and Aaric bicker, and Dain twists around to level a threatening leer at them, quieting them both successfully.
+
+Sloane glances up at Dain and their eye contact is brief, "It's basically like he has a equivalent amount magic as most of our dragons do." she mutters.    
     
-Ridoc's face snaps to Dain's, "Is that normal? For you I guess?"    
+Ridoc's face snaps to Dain, "Is that normal? For you I guess?"
+
+Dain shrugs, he glances down at the untouched paper then back up to Ridoc; "Allegedly it's my normal."
+
+"So you can recognize the quantity a person has?" Baylor hums, eyes round.
+
+Sloane nods; Dain jots it down, "Yes, and for the most part everyone has about the same amount."
+
+"Except... for Aetos." Matthias remarks, 
     
-"It's been like this since Cath and I bonded. I can still hardly control it." he admits shamelessly.    
+"That's right." Sloane sighs, sweeping her tongue across her upper lip.
+
+Aaric leans over Dain, "Big guy, big magic? What about me?"
+
+"Doubt it, and no thank-you I've had enough." Sloane groans.
+
+Dain's eyes twitches.
+
+"This shit hurts so bad." Ridoc whines, he’s sweating as much as Sloane is, maybe even more, "Are you just unfeeling man?"    
     
-He maintains his eye contact with Ridoc just a bit longer than he would've liked to and feels a sharp jab down his temple, wincing he adds: "Cath always says he is 'simply superior'".    
+"I feel it." Dain admits, "It hurts occasionally."    
     
-"Wouldn't superior have been bestowing you a fully inntinnsic signet then?"    
-    
-Dain's eyes widen, "No. That would be a capitol offense Ridoc."    
-    
-"No like, like Melgren, y'know," He gestures slowly, "Foresight."    
-    
-Dain shakes his head, its still throbbing.    
-    
-"This shit hurts so bad." Ridoc whines, he’s sweating as much as Sloane is, "You normally do this with Aetos?"    
-    
-"He doesn't feel any pain anymore when I do it now. But I can try and make it not hurt, I just have to expend more magic to do it."    
-    
-"Well could you?" Ridoc asks smugly,    
+"Occasionally? Could that be like, not right now?" Ridoc asks smugly while glaring at her,    
     
 Sloane looks him dead in the eyes and serves up an angelic smile, "No."    
     
-_"She is akin to an adolescent."_ Cath grumbles a warm laugh into the bond.    
+*"Unbelievably feisty."* Cath grumbles, after a warm laugh slips into their pathway.    
     
-Dain looks at the dagger she's holding; its the one she began imbuing with Dain's magic originally.    
+Dain looks at the dagger she's holding, the one she'd used last night.
+
+"Maybe we should imbue only one person's magic into a single item." he suggest, holding his hand out to Catriona; from his understanding Catriona had a reasonably exceptional understanding of runes and the tempering of magic involved in the process. Dain runs his thumbs across the rune whittled into the wooden handle, he wonders maybe if Catriona and Sloane might ever become familiar enough to work together.
+
+He watches Sloane's eyes flick from himself, to the dagger, and then slowly to Catriona's face in disgust before breathing slowly and controlled.
     
-"I think..." he begins, holding the small leather-bound journal he picked up from the archives to document his findings on Sloane's signet, "You need to use the same item for each person."    
+"In case there *is* and aspect that magic isn't all one type, but rather baring traits discerned by it's wielder, we probably shouldn't cross contaminate."   
     
-"Yeah, daggers." Imogen says back, she's watching Ridoc wriggle against his seat.    
+Imogen raises a brow at him, "What gave you that bright idea?"    
     
-"No," He points to the leather shaft of the dagger that Sloane clutches close to her stomach, "Initially she used that one with my magic, she's trying to fill it with Ridoc's magic and its being... rejected by mine."    
+"I can feel my magic even after it's transferred to a new vessel." He answers.    
+
+He can only attest to his statement w
     
-Imogen raises a brow at him, "And how would you know?"    
+"You... can feel it?" Matthias parrots, and Dain sets the journal across his lap.
     
-"I can see it." He answers.    
-    
-"You... can see it?" Matthias parrots, "Like our magic with runes?"    
-    
-"No... Like every time Mairi activates her signet, I can see the flow of my magic where she's put it." He pauses, "So actually yes. Well, no. Only when she uses that dagger, and it doesn’t go away even after she’s finished imbuing."    
+"Every time Mairi activates her signet, I can feel the flow of my magic, where she's taking it from, and where she put it." He pauses, "Not sure what I'm getting at, its all baseless and hypothetical."
+
+"So you're thinking since Ridoc has an elemental signet she might be siphoning elemental magic as it leaves his body?" Aaric presses.
+
+He drives his knee into Dain's back, shoving against him, and Dain tips his head back to glare at the first-yearm "& that. And yes."
+
+    
     
 Sloane's listening and she removes her hand from Ridoc's arm, "So if I..." she grabs another dagger, it's wrapped at the hilt in a decaying wrap, and begins imbuing with Ridoc's magic again. She's sweating like she's been on the mat.    
     
@@ -180,31 +200,31 @@ Her brown eyes widen in concern, "Magic?"  
     
 "Gonna go, keep training." he grits out, placing his hand over his mouth and retreating before anyone else can ask him anything else. He's weak and barely walking when he stumbles through the rotunda.  
     
-_"Please, Cath."_    
+*"Please, Cath."_    
     
-_"Where are you?"_ the swordtail immediately responds,    
+*"Where are you?"_ the swordtail immediately responds,    
     
-_"Rotunda."_ Dain drags his feet towards the formation field. His body convulses and he spews bright red blood, thick and mottled across the floor. Launching from where they hold formation is frowned upon, but not punished-unless of course, your dragon lands on someone.
+*"Rotunda."_ Dain drags his feet towards the formation field. His body convulses and he spews bright red blood, thick and mottled across the floor. Launching from where they hold formation is frowned upon, but not punished-unless of course, your dragon lands on someone.
 
 There's a handful of riders at his side almost immediately as he makes his way into the clearing from the rotunda and their memories begin to flood into him as they offer him support, leaning him against themselves while his head lolls useless on his shoulders. He can hear, and taste, and see them so vividly that an unnatural migraine splits through his face. The light emitting from the sun practically blinds his and he stumbles, dropping to his knees as their voice raise in panic around him. Someone begins pulling him away and back towards the rotunda and he groans in protest; he _needs_ Cath, needs to be with his dragon _now_. He forces himself to watch the skies for his gleaming scales as he digs his heels into the grass.  
     
 Cath is there minutes later, scattering screaming riders and fliers across the field as his shadow crashes down towards them. Dain takes off in a sprint for him, falling first as he dodges the Cadets gathered around him. Cath extends his wing in a show of mercy and haste, his scales shift along his vertebrae and the membranes pull tight at the spread so much that Dain's boots _tap, tap, tap_ as he sprints across Cath’s wing and onto his back, then into his seat. He's still spitting up blood when Cath coils back and plummets into the sky. He can hear the others behind him, and notes Sloane's blonde braid whipping fiercely against the force of Cath's trajectory. He bends over in the seat and closes his eyes as Cath finally evens out beneath the clouds, circling the college and effectively putting Dain to sleep.    
     
-_"Be at ease... Be at ease..."_ Cath grumbles into the bond, as he soothes him with bouts of concern, reassurance, and thick, blanketing magic.    
+*"Be at ease... Be at ease..."_ Cath grumbles into the bond, as he soothes him with bouts of concern, reassurance, and thick, blanketing magic.    
     
 When he comes to, they're still above the rotunda.    
     
-_"You took a break and landed right?! What time is it?"_    
+*"You took a break and landed right?! What time is it?"*    
     
-_"I did, you were sleeping soundly. It is before the sun. I am going to tell the lesser leader you are unfit to attend the morning formation."_ Dain doesn't argue with him, he doesn't want to anyway. He peers down and see the neatly packed rows of riders. 
+*"I did, you were sleeping soundly. It is before the sun. I am going to tell the lesser leader you are unfit to attend the morning formation."_ Dain doesn't argue with him, he doesn't want to anyway. He peers down and see the neatly packed rows of riders. 
 
 Dain can feel his face wrinkle into a scowl. Cath really flew into the next morning? He'd been sleep for near eighteen hours then.  
     
-_"Can you walk?"_ Cath prods, "_I will take you to the canyon, they will not bother you."_  He begins his ascent, his wings beating above them. He dismounts without Cath's help, and rests again the swordtail's forelegs before walking ahead him,    
+*"Can you walk?"_ Cath prods, "_I will take you to the canyon, they will not bother you."_  He begins his ascent, his wings beating above them. He dismounts without Cath's help, and rests again the swordtail's forelegs before walking ahead him,    
     
 "Thank you." Dain smiles at him, "I'm sorry for throwing up on you."    
     
-_"Did you? I cannot tell."_ Cath blows, hot sulfuric breath at him, _"Begone, rest properly."_  
+*"Did you? I cannot tell."_ Cath blows, hot sulfuric breath at him, _"Begone, rest properly."*  
 
 ---
 
@@ -224,15 +244,15 @@ He does. He crosses the threshold of the bedroom and his father lays claim to hi
     
 "Yes, General." Dain manages, standing up and pitching to attention.    
     
-_"If he-"_    
+*"If he-"*    
     
 He slaps Dain this time, and sneers when his head snaps against the doorframe. He winces and sees _red_, and fixes himself again, perfectly at attention.    
     
-_"Dain Aetos."_ Cath snarls over the bond.    
+*"Dain Aetos."_ Cath snarls over the bond.    
     
 In the distance there's an ominous vociferation, unmissably a dragon, but putrid and alien. Its one immediately discernable wherever its released, an eldritch baritone that roots itself into the memory of those who are folly to hear it—_forever_. It washes over the college like a virus, and everything around them vibrates. Dian’s nervous system overrides with anger seasoned with ancient rage and vile intent. His body shakes violently at the sight of his father.  
     
-_"He will keep his hands off of you."_ Cath warbles in an unsettling synthesized wave of growls.  
+*"He will keep his hands off of you."_ Cath warbles in an unsettling synthesized wave of growls.  
     
 Dain eyes shift downwards.    
     
@@ -248,9 +268,9 @@ As Cath would say, its before the sun.  
     
 Fourth and Second Wing are preparing to leave for Aretia. The rumors about his father beating the piss out of him have already made their rounds through the college, and even if they hadn't, it shows. The left side of his face is busted and split, to include his eyelid and eye, which is a deep maroon besides the top when he looks left or right. His nose is painfully, obviously broken, and he still feels sick. Every cough, every sniffle, every roll of nausea makes pain shoot like crossbolts through his nervous system. The thundering migraine he's had since Signet Sparring is ever present and makes him sensitive to every sense he has.    
     
-_"Will you be upset if I fall asleep."_ he asks Cath out of respect; dragon appearances and all.    
+*"Will you be upset if I fall asleep."_ he asks Cath out of respect; dragon appearances and all.    
     
-_"You need to."_ Cath grumbles low in his throat, out loud, and Matthias eyes snap up to is swordtail, her hands drop to her sides.    
+*"You need to."_ Cath grumbles low in his throat, out loud, and Matthias eyes snap up to is swordtail, her hands drop to her sides.    
     
 "You should see Nolon before we-,"    
     
@@ -258,11 +278,11 @@ _"You need to."_ Cath grumbles low in his throat, out loud, and Matthias eyes s
     
 "Can you get in the seat? You look like you're gonna keel over." Sawyer says, then he flinches, "Oh."  Sawyer looks up at Cath, furrowing his brow, "Sorry, Cath."    
     
-_"I'm sorry... I'll probably n-"_    
+*"I'm sorry... I'll probably n-"*    
     
 Cath stalks off farther down the field where no dragon, rider, or flier gathers before spreading his wings to their full height and length, he fans them out across the field and tips down his right one. He's magnificent, a living carving of garnet, it’s almost as if he's painted in blood that never dries. His scales raise and set along the vertebrae of the wing, and Dain sees the thinner membrane harden. Dain manages the steep incline of his wing well enough, stumbling a bit and almost losing his footing when Cath's tail sweeps behind him, its a massive scaled wall that catches him and forces him to lean forward. He can’t see the riders’ eyes stretched wide at Cath’s show of assistance to him, the mouths hanging open in disbelief.  
     
-_"Thanks."_    
+*"Thanks."*    
     
 Cath lifts his neck around so he can watch Dain step onto his back, then he snaps his wings close to his body, waiting for the rest of the Wing to mount. Fifteen minutes into the flight he's asleep, cocooned by Cath's magic that holds him firmly against his spine and keeps the wind out of his eyes, lulled at the steady altitude he keeps to Aretia.    
     
@@ -324,7 +344,7 @@ She walks forward, slamming her hands onto the assembly table, "If this is happe
 
 "Its not a waste of time to worry about my best friend!" she practically screams, and tears dot her waterline, "I'm sorry I casted you aside but it was clear to me where you stood and now that you've redefined those lines I feel like we should be able to recover our relationship, and even if we don't there's no way I'm going to let your dad beat you like he used to. Imagine what mine would say to him if he found out?!"
 
-_Like he used to._
+_Like he used to.*
 
 Varrish used to call him a _master of memories._ It took him only months to go unaffected by the remembrances of others. Took him seconds to blanket heated emotions that were inevitably pulled into him with their sentiments. His own he voided from existence, and he did it well, almost as if they never had in the first place.
 
@@ -338,7 +358,7 @@ _“Be still.”_ Cath mutters,
 
 He wipes his nose again. 
 
-_What the hell?_
+_What the hell?*
 
 He glances down at the back of his hand eyes flaring wildly at the sight of his blood, it’s all over the floor, his uniform, probably smeared across his face and splattered all over the table. 
 
