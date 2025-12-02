@@ -764,11 +764,10 @@ That fucking bow on her panties.
 
 *"It helps."*
 
-*"Very well."* The swordtail's presence settles deeper into their bond, a comforting weight that Dain has come to rely on. *"The ground was rough beneath my claws when I first broke free from my shell, cracked and dry. I remember how strange the sand felt; something entirely new to me. The sky stretched endlessly above, gray and vast. I can recall clearly, the way the wind felt against my scales for the first time, how I could hear my den-mates moving around me, their claws scraping against the earth..."*
+*"Very well."* The swordtail's presence settles deeper into their bond, a comforting weight that Dain has come to rely on. *"The ground was rough beneath my claws when I first broke free from my shell. I remember how strange the sand felt; something entirely new to me. The sky stretched endlessly above, gray and vast. I can recall clearly, the way the wind felt against my scales for the first time, how I could hear my den-mates moving around me, their claws scraping against the earth..."*
 
 Dain recognizes it immediately; the place Cath describes exists right there in his mind, in the wasteland their bond embodies. He sees the cracked earth stretching endlessly, feels the rough sand beneath his boots, watches the overcast sky that never seems to change. It's the same desolate landscape he's walked through countless times in the bond, the same place where he first met Cath. The familiarity of it settles over him like a heavy blanket, and Dain feels his breathing slow, his muscles relaxing one by one.
 
 *"Keep talking."* Dain mumbles when Cath eventually stops and his eyelids are too heavy to keep open.
 
 The Red's draconic laughter is an addictive baritone of rumbling vibrations, akin to the sound of thunder rolling over Aretian mountaintops before storms would settle in, ripping the sky open and weathering those exposed below. But, Cath does, his voice a steady guide in the dark, until Dain's mind finally slips into the void of sleep just like he has so many nights before.
-
