@@ -40,73 +40,13 @@ Dain's eyes twitches.
     
 "Occasionally? Could that be like, not right now?" Ridoc asks smugly while glaring at her,    
     
-Sloane looks him dead in the eyes and serves up an angelic smile, "No."    
-    
-*"Unbelievably feisty."* Cath grumbles, after a warm laugh slips into their pathway.    
-    
-Dain looks at the dagger she's holding, the one she'd used last night.
+Sloane looks him dead in the eyes and serves up an angelic smile, "No."
 
-"Maybe we should imbue only one person's magic into a single item." he suggest, holding his hand out to Catriona; from his understanding Catriona had a reasonably exceptional understanding of runes and the tempering of magic involved in the process. Dain runs his thumbs across the rune whittled into the wooden handle, he wonders maybe if Catriona and Sloane might ever become familiar enough to work together.
+*"Unbelievably feisty."* Cath grumbles, after a warm laugh slips into their pathway.
 
-He watches Sloane's eyes flick from himself, to the dagger, and then slowly to Catriona's face in disgust before breathing slowly and controlled.
-    
-"In case there *is* and aspect that magic isn't all one type, but rather baring traits discerned by it's wielder, we probably shouldn't cross contaminate."   
-    
-Imogen raises a brow at him, "What gave you that bright idea?"    
-    
-"I can feel my magic even after it's transferred to a new vessel." He answers.    
 
-He can only attest to his statement w
-    
-"You... can feel it?" Matthias parrots, and Dain sets the journal across his lap.
-    
-"Every time Mairi activates her signet, I can feel the flow of my magic, where she's taking it from, and where she put it." He pauses, "Not sure what I'm getting at, its all baseless and hypothetical."
 
-"So you're thinking since Ridoc has an elemental signet she might be siphoning elemental magic as it leaves his body?" Aaric presses.
-
-He drives his knee into Dain's back, shoving against him, and Dain tips his head back to glare at the first-yearm "& that. And yes."
-
-    
-    
-Sloane's listening and she removes her hand from Ridoc's arm, "So if I..." she grabs another dagger, it's wrapped at the hilt in a decaying wrap, and begins imbuing with Ridoc's magic again. She's sweating like she's been on the mat.    
-    
-"It hurts even more now Sloane, what the fuck!"    
-    
-She gives Dain an anticipatory glance and he locks into their stance. He can't see anything and shakes his head at her.    
-    
-"And now?" she sheathes that dagger and picks up the leather-hilted one again and sure enough the iridescent remnants of his magic glow subtly against the blade.    
-    
-"It's... there."    
-    
-"What the fuck." Sawyer grumbles. "So can you see your magic in the other dagger?" he asks Ridoc, and Sloane holds up the other one for him, he's rubbing his arm.    
-    
-"No, but my asshole is gonna start puckering if we keep starting and stopping."    
-    
-Sloane wretches away from him in disgust, "You're so repulsive," she hisses.    
-    
-"I think it's just me." Dain says to Imogen, "But I'm not sure if I put this down as a condition related to myself or her."  
-
-He scribbles down the information.  
-    
-"Maybe just a anecdote off to the side; either way its a good observation. Its not like you can see your magic in other objects outside of ones you've set runes into anyway."    
-    
-Dain considers runes for a moment. With runing, magic is stored in different mediums for later or immediate utilization, in repeating or single-use, and can be layered almost infinitely if the person placing them is skilled enough. With Sloane’s siphoning, it seemed she could only pass into and imbue, or pass through to be used.  
-    
-"What if you tried setting runes in the dagger with the magic you siphon from me?" he asks Sloane,    
-    
-"I'll get sick again if I use your magic, and I get to go home soon." she grumbles.    
-    
-He winces. Another note that had been recorded in his siphon journal was that Sloane came down with an illness every time she siphoned from Dain for substantial periods of time. Her recovery and adaptation to the symptoms increased each time but it was something he'd like to avoid if he could; their rotation to Aretia was in three days.    
-    
-"You want to try it in Aretia then?"    
-    
-She nods, "Professor Trissa is there too, maybe she can sit in with us for it?"    
-    
-Dain nods back, "She'd probably like that."    
-    
-Imogen stretches between him and Matthias, "Violet is gonna flip when she hears you're training."    
-    
-Sloane grins.  
+---
     
 At night Dain reaches for his dragon through their bond. He plants himself at his desk and feels through his mind, sees their flag and the wasteland, but there are no ramparts to be seen. He hasn't felt a single emotion or shield from Cath, or even heard from him. It's been a full day and Dain begins to worry.    
     
