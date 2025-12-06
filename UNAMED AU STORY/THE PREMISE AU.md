@@ -8,6 +8,8 @@ Sloane Mairi answers that ad. She's only on the site in the first place because 
 
 Two people who shouldn't be there. One ad that changes everything.
 
+**30, single male, will host after meeting for verification. Not here for what you think. Recently lost my constant. Looking for someone who'll sit with the variable. No solution required.**
+
 ---
 
 ## CHARACTERS
@@ -57,7 +59,6 @@ Two people who shouldn't be there. One ad that changes everything.
 - **Background:** Sloane's best friend; attends the same college
 - **Role:** Uses the meet-up site as a side gig for money
 - **Key Detail:** The catalyst for Sloane being on the site in the first place
-- **Dain's Perception:** He does NOT like her—too much drinking, too much partying, too much sex. He thinks Sloane should stay away from her and vocalizes it too forcefully at some point. (Source of conflict.)
 
 ### Violet (Deceased)
 - **Role:** Dain's best friend
@@ -94,36 +95,10 @@ Two people who shouldn't be there. One ad that changes everything.
 
 ## STORY DETAILS
 
-### The Ad
-Dain's meet-up post is brief, cryptic, sad, and desperate—but with zero sarcasm. He's not asking for anything physical. There's a subtle math reference that would fly over most heads but makes Sloane pause.
-
-**Draft:**
-> "30. Not here for what you think. Recently lost my constant. Looking for someone who'll sit with the variable. No solution required."
-
-*(Sloane clocks the math language. It's weird, but it pangs her empathy. She responds.)*
-
----
-
-### First Meeting
-
-**Location:** The lobby of Dain's building—a little cafe there. Then up to his loft.
-
-**Dain's state:** Tired, frazzled, struggling to find common ground. What the audience doesn't know: Cam was just there, riling him up, then had an emergency and left—so Dain is *edged* and barely holding it together.
-
-**Sloane's state:** Expert at carrying conversation, so she keeps things moving. She doesn't think it's too bad, even if he's struggling.
-
-**The ending:** Dain falls asleep while they're talking. Sloane leaves her number before she goes.
-
-*(She saw something underneath the mess. Something worth a second try.)*
-
----
-
 ### Key Conflicts
 - **Political Divide:** Sloane's family is deeply tied to politics (military powerhouse); Dain's father is actively funding someone Sloane's family deems "a great evil." Sloane hates political speech and refuses to engage with it—but this revelation will force her to confront it. Major source of tension.
 
 - **Communication Clash:** As they grow closer, Sloane feels Dain is severely undermining the things that stress her out. He sees her as dramatic and unorganized; she's actually stressed and actively working through it by struggling out loud (verbal processing). They'll need to learn each other's coping styles—his internal/controlled vs. her external/verbal.
-
-- **The Avalynn Problem:** Dain doesn't like Avalynn (too much drinking, partying, sex) and thinks Sloane should stay away from her. He vocalizes this too forcefully one day—criticizing Sloane's best friend and the very person responsible for them meeting. Hypocritical and guaranteed to cause a fight.
 
 ---
 
