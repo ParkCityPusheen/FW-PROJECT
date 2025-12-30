@@ -98,6 +98,8 @@ There's a moment where there's just the bass of an ending song booming between t
 
 Sloane retches dramatically.
 
+She didn't care that Avalynn broadcasted every crease and crevice on her body, she just didn't want any part of it.
+
 "I'd rather salute the flag, but thanks." she hisses.
 
 "Yeah," Avalynn groans, "no. Anyway, you really do need to like relax. You said it's only the beginning of the semester for you and you've got what, one exam and two projects already?"
@@ -134,13 +136,21 @@ The scrutiny never stopped. Every move she and Liam makes gets dissected. Every 
 
 First through a video, then the audio recording.
 
-Both clear enough to stop her father from renlisting and pursuing his career in politics.
+Both clear enough to stop her father from renlisting and almost prevent pursuing his career in politics.
 
-Enough that her mother was actually concerned more for her and less with what she'd done.
+Enough that her mother was actually concerned more for Sloane and less with what had happened.
 
 The redhead turns her chin upwards, "Make it a contract, and make it with someone who has something to lose."
 
+"How am I conveniently supposed to come aross something like that?"
 
+Avalynn grins, ear-to-ear, bushy-tailed and bright-eyed, 
+
+"Oh Sloane I'm so glad you asked."
+
+The red head ducks underneth their table—*ew*—and slides up into Sloane's booth while sliding her thumb across her phone screen, still grinning.
+
+"You never ask me about my work so I don't ever talk to you about this, but I use it to find my features
 
 
 
