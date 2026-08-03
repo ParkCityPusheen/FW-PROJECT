@@ -312,7 +312,7 @@ He then stands the same as Cath, slow, to avoid aches, and begins limping back t
 
 Cath lowers his head so that his bottom jaw blocks out Dain's vision, *"And what other choice might I have, Hatchling? Assist the mountain in vanquishing you with landslide while trampling it alongside you? A nice morning stroll, is that what that sounds like to you?"*
 
-Dain throws his palms up with scathing indigence, *"You want me to climb you with a nearly dislocated hip when there's no immediate danger? Sounds just as bright if you ask me."*
+Dain throws his palms up with scathing indignance, *"You want me to climb you with a nearly dislocated hip when there's no immediate danger? Sounds just as bright if you ask me."*
 
 *"Ask for help when you need it. How many ways must you suffer before you finally learn this lesson?"* Cath spits, teeth shining bright in the sun eclipsing against the cliffs ahead of them; it reminds Dain it's been a full thirty-two hours since he'd brushed his own,
 
@@ -400,101 +400,60 @@ Dain meets those marigold eyes and smiles, *"Are you going to rest?"*
 
 ---
 
-He should have never left.
+He sees Brennan first, hoping their personal relationship will have him mended before some other cadets with infinitely more serious injuries.
 
-Nothing about this is *okay.*
+It does, but with consequence.
 
-Nothing about *any* of this is okay.
+"What's up with you?"
 
-And, his eyes meet Violet's calico ones, Dain realizes he's not being spoon-fed this information because he's trusted.
+Brennan hasn't said a word, or rather any in addition to a forced greeting that Dain had offered upon arrival. He clocks Dain as easily as the healers from yesterday and mentions it just as so,
 
-Violet needs something from him, she's brought Matthias and Ridoc with her for good measure, but the odds aren't in his favor if the pairs' body language is anything to go by,
+"A lot."
 
-"Aetos? Hello?"
+Brennan's eyebrows meet his hairline at that; there's no point in Dain hiding here, not with Brennan, or anyone else.
 
-For a moment Dain finds himself suspended in his own hysterical disbelief.
+"Want to tell me?" Brennan's face screws up as he finishes with Dain's shoulder, watching from just a foot away while he undoes his pants and pulls them downwards enough to reveal the purpled skin around his injured hip, "You don't have to if you don't want to. But I'm guessing Violet or Xaden?"
 
-He wonders if being invited on Violet's Isles expedition was just a hazing tactic, maybe a way to really get his nose rubbed in the dirt, to have him there standing in the presence of several capable bodies humiliated once his sole purpose was invalidated by Aaric. Especially since he and Violet hardly spoke; if anything, even Riorson had shown him more grace than she had.
+To both of their suprise, Dain bites out a garbled *no* as Brennan's signet activates. It generates pain and heat while pulling the bone back to where it's meant to sit, the muscles and tendons fitting back against themselves, and the bruising fading all at once.
 
-The heat of embarrassment and the indignance of it raze over him, searing his blood, flushing his neck and face. Cath, in the bond, asleep but still attuned with Dain's emotions, stirs. He gulps down the anger, and the pointless fury and eyes Violet the same that she does himself, breathing roughly through his nose.
+"Your dad?"
 
-Then, there's the actual slap itself on Zihnal's Isle.
+Again, another no.
 
-In reality, *that's* the only thing that was actually embarrassing.
+"Okay. Tell me. Never been around you so quiet, I mean not when it's just the two of us." Brennan glances at the open door of his office, then back. He circles around his desk and sits in the padded chair behind it, thrumming his fingers against a heavy wooden desk before speaking again,
 
-Dain's head snaps to Matthias, shaking himself out of his own head, "Yeah? Sorry, just give me a second."
+"Something upsetting you?"
 
-Cath is quiet, his magic is dull, blurred, misted about in the bond, not glittering and alive with agitated sharpness like it usually would be when he's listening in. He selfishly wishes Cath had not decided to rest as his eyes drag over Ridoc and to Violet who looks tense, and ready to retaliate no matter what he might say in response to the onslaught of confessional information she'd brought to him.
+Dain buttons his pants back up and carefully slides into one of two chairs ahead of Brennan's desk. He leans into it, relishing the soft cushions along the back of it, and thinks it's the most comfortable seat he's had in weeks probably. He feels around for Cath, finds him in the bond, bright and warm, and looks over at Violet's brother once more.
 
-Dain knew something was off when they had left the Isles, but this isn't, and wasn't a variable he'd ever considered. He's got to stop thinking about himself, about *his* feelings, about *his* decisions: nothing regarding Dain Aetos is ever relevant.
+"I don't know. I think I'm tired."
 
-"He's been venin. For—"
+"Of what?" Brennan asks, almost instantly.
 
-Violet cuts him off, voice carrying in the empty office she'd crowded him into, "Yes. That's what I said."
+"Probably..." Dain thinks, really thinks, then: "I don't know, probably of existing."
 
-Dain flinches at her tone, then sinks into a seat adjacent to where he'd been standing,
+Cath's presence in their bond becomes more bold than it has this whole year, he's behind Dain's eyes, at his ears, swimming through his rider's mind.
 
-"Alright."
+Brennan's face crunches, his brows furrow underneath reddish-brown curls, "What brought this on?"
 
-Violet blanches, body coiling it's tightest yet; her tells are there, the ones that send off warning bells in his mind that he's not reacting the way Violet wants him to.
+Dain sinks as far back into his chair as possible.
 
-"Can I get like a day to digest this?"
+"Everything. The death, the lies, the uncertainty; the part I played in all of this. I can't right my wrongs, and I can't catch up, and there's no time or point in feeling sorry for myself. I just feel numb. I want to sleep more."
 
-Rhiannon gives him an icey glare, "We don't have a—"
+The older of the two prods more, sitting up at his desk, body now taught with concern,
 
-"I'm not fucking asking *you—*" Dain spits, just as maliciously back to her, his head swivels back to Violet; he needs to stay on track here, "And, why wouldn't *we* have the time. Surely there's someone you trust more to help you?"
+"Is that where you disappeared to? To sleep somewhere?"
 
-There's only irritation in Violet's face, only anger in her eyes, but he thinks maybe that's desperation playing in her body language,
+Dain chuckles, "Yeah. Went to Cath's den to check on him, I just slept there with him."
 
-"It's because you're the only one I can think to do what I need you to do."
+Relief braids through Brennan's body language and Dain recognizes in what regard almost instantly, he can't help it that his mouth moves faster than his brain,
 
-What the *fuck.*
+"Don't worry; I wasn't feeding my father any information to get anyone else killed. I was..."
 
-He works it over: Bohdi missing, Garrick missing, Riorson *missing.* Several others and some dead elders. Some missing eggs... What the fuck could Dain possibly do for her in this situation?
+Dain's voice cracks miserably.
 
-"Wait, you—"
+"...I was just seeking comfort from the only friend I have."
 
-Violet perks up.
+Brennan opens his mouth, then shuts it immediately. Dain blathers on even more,
 
-"No, nevermind."
-
-Violet's brow pinches.
-
-"What's your issue right now? Why are you so..." she saves a hand at him, "You seem off."
-
-"I am."
-
-She takes a deep breath, then asks: "Why?"
-
-Dain's eye twitches.
-
-"We don't have to do this, Violet. Thanks."
-
-"Look I know it sounds bad, and you probably would appreciate more context—"
-
-"I just need to get through today."
-
-The words gush out of him, so easily at that, so easy to confess to such a familiar face.
-
-"I need to get back to Cath after I do all the Wingleader shit. He's hurt."
-
-She blinks owlishly at him, so surprised he nearly chuckles, maybe he might have if they were friends,
-
-"Wingleader... shit?" She echoes.
-
-"Right. Headcounts, watchbills, patrols, I'm done after today."
-
-"I'm sorry," she rubs her hand down her face, "You're done? With what?"
-
-"Basgiath. I need to leave."
-
-Ridoc's shoulders gather as he steps up next to Violet, "Your dad?"
-
-"No. Everyone, everything. I, uh, I'm *done.*"
-
-Matthias steps up this time, eyes wide, "So you're just disregarding your Wing—"
-
-Dain lifts his palms up.
-
-"Think about this, what I am here. Besides being a pain in everyone's ass, or an eyesore, or gettinng someone killed? What have I done?" he doesn't let them answer, instead he shoots up out of his chair, "Mostly I'm just disregarded, so I'm speeding up the process. Surely there's somewhere where my death will actually mean something to someone. So, I just need to get through today."
-
+"I don't want to be a Wingleader anymore."
