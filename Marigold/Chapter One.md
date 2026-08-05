@@ -1,4 +1,4 @@
- It's surreal, this hopelessness that Dain is feeling.
+It's surreal, this hopelessness that Dain is feeling.
 
 It's pulled him down into the throes of his emotions, past his concerns and into unmentionable eventualities that he's forced to hide from the Red who lies awake and aware at the corners of his mind. Beyond reasoning and meaning, here, where he's curled into himself, there is only despair. He's enshrouded in it, suffocated by this faceless, uninvited feeling that fears neither man, nor dragon, and bears no weaknesses. Between despair and himself, there is only the harsh reality ahead and there is no way to plan for it.
 
@@ -156,7 +156,7 @@ Dain nods to Kaia and Darius both in farewell, and without another word, pivots 
 
 Dragons rest in intricately designed tunnels, with channels connecting to different sized, thoroughly excavated caves. Some slept in hoards by the dozen, and others alone; all arrangements were determined simply by preference and when in groups, by hierarchy. Cath gives directions to his current whereabouts more cautiously than stubbornly and Dain takes all of about an hour, limping, to arrive there.
 
-His body screams at him, his shoulder still not healed from his embarrassing show of weakness in the Isles. His hip, newly injured, echoes fleshy noises and jolts of harsh pain randomly in warning of something even more unfavorable. This is all fine, Dain thinks, thinks of nothing more, at all. He looks up at the sky, then down at his filthy uniform, still covered in blood, his flight leathers tattered. He takes off his Flight jackets and tosses it to the floor—he's surprised himself as the fabric slips past his fingers and to the floor, he leaves it there though and turns his face up to his bond's home.
+His body screams at him, his shoulder still not healed from his embarrassing show of weakness in the Isles. His hip, newly injured, echoes fleshy noises and jolts of harsh pain randomly in warning of something even more unfavorable. This is all fine, Dain thinks, thinks of nothing more, at all. He looks up at the sky, then down at his filthy uniform, still covered in blood, his flight leathers tattered. He takes off his Flight jacket and tosses it to the floor—he's surprised himself as the fabric slips past his fingers and to the floor, he leaves it there though and turns his face up to his bond's home.
 
 Cath's den is located just barely directly beneath Riorson House, nestled in the amalgamation of white mountain rocks, veined with marble and granites, it's yawning entrance masked by the shadows provided from jutting rock ceiling above. There are no birds here, though they remain well above the sea line, and Dain is forced to listen to his laborous breathing between gusts of chilly air. He wills himself to breathe more easily, settling into a crook of rocks nearly as tell as himself just before the giant ones the dragons have plowed through. *In,* he breathes, eyes closing at the end of his inhale, and squeezing shut as he pushes it all back out, unthinking, *calm.*
 
@@ -388,7 +388,7 @@ Dain smirks, then he leans farther back into the seat, *"Think so?"*
 
 *"I don't think I want to be needed anymore."*
 
-Cath doesn't respond to that, he take silent refuge in Dain's mind as he tallies up the tasks most likely needing tending to upon their arrival, then, as Dain dismounts carefully and just before Riorson House courtyard, he speaks.
+Cath doesn't respond to that, he takes silent refuge in Dain's mind as he tallies up the tasks most likely needing tending to upon their arrival, then, as Dain dismounts carefully and just before Riorson House courtyard, he speaks.
 
 *"When you have finished your duties you will return here to me. Expeditiously, do you understand?"*
 
@@ -400,60 +400,182 @@ Dain meets those marigold eyes and smiles, *"Are you going to rest?"*
 
 ---
 
-He sees Brennan first, hoping their personal relationship will have him mended before some other cadets with infinitely more serious injuries.
+The theatre is an entirely new environment upon Dain's return. He doesn't see Kaia, but Darius is there with a heavy plaited basket hanging painfully inside his elbow. There are even more professors mixed in with the riders and fliers alike now, and through it Darius works silently. He applies ointments, creams, hands out tonics, documents vitals, and even notices Dain when he reenters the space; the man is vigilant and Dain appreciates that. They lock eyes, Dain's brown irises meeting Darius's much darker ones, and look in opposite directions after the acknowledgement of the each other.
 
-It does, but with consequence.
+His Wing is mostly here, safe for Second Squad's first years. Dain rolls his eyes, *all* of Second Squad is missing and has been for hours. Sawyer in particular was still considered actively participating the Healer's rehabilitation program which meant Dain was no longer his point of contact regarding his whereabouts.
 
-"What's up with you?"
+"Sir?"
 
-Brennan hasn't said a word, or rather any in addition to a forced greeting that Dain had offered upon arrival. He clocks Dain as easily as the healers from yesterday and mentions it just as so,
+Dain's eyes refocus onto the rider ahead of him, thin, unassuming, "Royce."
 
-"A lot."
+"Eastern entrance post, guard tower, hasn't turned over the watch. Uh, the current post is complaining for food, she wanted me to report this to you."
 
-Brennan's eyebrows meet his hairline at that; there's no point in Dain hiding here, not with Brennan, or anyone else.
+Royce looks probably as well as anyway one else can in the Fortress, and he seems visibly upset having to relay his peer's message. Dain chews on the inside of his cheek and reaches into the thigh pocket of his uniform pant for his field note; he'd be angry too if he had to turn around and fly twenty minutes back to Riorson House just to circumvent and possibly head back *again* to then continue his own patrol of each post. Fucking post patrol. Worst watch to have and Dain doesn't miss it, lavishes in the fact that he'll never do it again.
 
-"Want to tell me?" Brennan's face screws up as he finishes with Dain's shoulder, watching from just a foot away while he undoes his pants and pulls them downwards enough to reveal the purpled skin around his injured hip, "You don't have to if you don't want to. But I'm guessing Violet or Xaden?"
+(That's a lie too, he does it often because being with Cath is a great alternative to anything.)
 
-To both of their suprise, Dain bites out a garbled *no* as Brennan's signet activates. It generates pain and heat while pulling the bone back to where it's meant to sit, the muscles and tendons fitting back against themselves, and the bruising fading all at once.
+His mind bares the knowledge of Second Squad while he pilfers through his journal, tapping at the names of those who should be at what post and who *can* be when they're not. 
 
-"Your dad?"
+The proper course of action here, considering the literal war they faced, the injured cadets in front of him, the dead ones far gone from the earth itself, would be to run this observation up the chain of command. There's no point in leaving his place on the dais in search of Violet and Sloane and their associates because he knows he won't find them. Violet in particular does what she wants and has the parameters to do so with her own wit, Sloane he's sure is safely tucked against Violet somewhere.
 
-Again, another no.
+He finds four names, three second years and one third who haven't been on post in over a week to give Royce the option of picking from. Then scribbles them onto a blank sheet.
 
-"Okay. Tell me. Never been around you so quiet, I mean not when it's just the two of us." Brennan glances at the open door of his office, then back. He circles around his desk and sits in the padded chair behind it, thrumming his fingers against a heavy wooden desk before speaking again,
+It's not in his intent nor care what happens to them as a consequence but... Dain sits up, then immediately sinks back down. He knows damnned well it's not in his interest to do what he's supposed to and he knows not a singular living soul gives a flying fuck about what he needs to do.
 
-"Something upsetting you?"
+He needs only to care and be cast aside, as per usual.
 
-Dain buttons his pants back up and carefully slides into one of two chairs ahead of Brennan's desk. He leans into it, relishing the soft cushions along the back of it, and thinks it's the most comfortable seat he's had in weeks probably. He feels around for Cath, finds him in the bond, bright and warm, and looks over at Violet's brother once more.
+But, Dain caring too much gets people killed.
 
-"I don't know. I think I'm tired."
+It's only been four fucking hours since Dain strode back into Riorson House. Immediately he's forced into the throes of leadership, face covered in the fabric of it's dread, the slow dripping of responsibility pulling him into a mental volley.
 
-"Of what?" Brennan asks, almost instantly.
+He imagines what it might be like to be Violet in this moment, or anyone in her band of trusted persons. He's sure recognition amongst your peers is wonderful thing outside of being a tool for success. Less than a tool even, Dain is sure he's seen as some type of rune that's sole purpose is the shape and symbol carved into it. Here in this room surrounded by other warm bodies he's not sure he's seen as human, he's not someone a meal would be shared with, let alone a secret. And even then, in his duty, as he thinks about how to handle Second Squad being entirely absent, he's somehow the burden. Dain wants, for one ugly second, to be more than either thing: tool or weight.
 
-"Probably..." Dain thinks, really thinks, then: "I don't know, probably of existing."
+Cath doesn't like this mild daydreaming in the heat of Dain's tasking, and the bond blisters with the white-hot heat of his Red's temperament, *"None of that. Tairn would never accept you."*
 
-Cath's presence in their bond becomes more bold than it has this whole year, he's behind Dain's eyes, at his ears, swimming through his rider's mind.
+Dain roll's his eyes, he wouldn't dare imagine being another dragon's rider, and he doesn't want to be anyway.
 
-Brennan's face crunches, his brows furrow underneath reddish-brown curls, "What brought this on?"
+*"What does Tairn have to do with any of this?"*
 
-Dain sinks as far back into his chair as possible.
+Cath snorts hard and heavy in Dain's head, *"Then focus on the task at hand."*
 
-"Everything. The death, the lies, the uncertainty; the part I played in all of this. I can't right my wrongs, and I can't catch up, and there's no time or point in feeling sorry for myself. I just feel numb. I want to sleep more."
+*"Shouldn't you be resting? You said you would be resting."*
 
-The older of the two prods more, sitting up at his desk, body now taught with concern,
+*"How can I rest when my Hatchling insists on running pointlessly through his thoughts."*
 
-"Is that where you disappeared to? To sleep somewhere?"
+Dain rips the sheet of paper from its stitched binds indignantly before smoothing it, then handing it to Royce. He hopes his gesture will look less pompous this way,
 
-Dain chuckles, "Yeah. Went to Cath's den to check on him, I just slept there with him."
+*"They're **my** thoughts?"* Dain heaves, shielding, but unsuccessfully in Cath's wake.
 
-Relief braids through Brennan's body language and Dain recognizes in what regard almost instantly, he can't help it that his mouth moves faster than his brain,
+Cath snorts, *"A child."* As if Dain's inability to shield proved a valid point.
 
-"Don't worry; I wasn't feeding my father any information to get anyone else killed. I was..."
+Asshole.
 
-Dain's voice cracks miserably.
+"Sir, leadership are all working out of one of the larger offices in the west wing," the second-year's eyes bounce around the theatre, "I'm sure it's much quieter there than it is in here." the rider suggests, taking the sheet of paper without issue.
 
-"...I was just seeking comfort from the only friend I have."
+Dain nods dismissively, "I'm sure. Let me know if any of those four are willing to volunteer, they haven't been in rotation since before Draithus."
 
-Brennan opens his mouth, then shuts it immediately. Dain blathers on even more,
+"Understood."
 
-"I don't want to be a Wingleader anymore."
+"Royce." Dain barks, as Royce pushes the theatre door open, "Volunteer or volun-told. Understood?"
+
+"Yes sir."
+
+The second-year vanishes without qualm.
+
+*"Stop running."*
+
+Dain feels his eyes twitch, *"I'm not, Cath, I promise."*
+
+Cath is obviously unconvinced, as per usual. But he is occasionally like Dain's father and the cadet can't help cross-examining the few caricatures the two share in certain moments.
+
+He finds odd comfort in Cath's sudden stubbornness, familiarity in having the stops pulled out all at once at a minor inconvenience, hesitation in maintaining boundaries where privacy can't exist.
+
+*"Do not compare me to that fiend. I have never treated you in such a way."*
+
+——Dain shakes his head, runs his hands across his jaw and down his throat, presses in the hard notch of his adam's apple, *"I'm not saying the two of you are alike. You're not, you know this."*
+
+*"...you do not lie often. Continue to choose not to."*
+
+*"I'm not lying!"*
+
+Dain feels his back sliding down the chair he'd shoved haphazardly into the corner of the theatre's dais. His legs spread wide, head rolling onto the back of the chair, sighing he groans out another response to his Red.
+
+*"It's just familiar is all. I know Dad wasn't the best of people—"*
+
+Cath chuffs, *"Historically, one of the worst."*
+
+*"—right. You just, kind of remind me of him sometimes. And I don't miss him—"*
+
+*"And I did not ask for this monologue."* Cath gripes, lukewarm in the bond, but yet, all present in his senses. Dain drops his arms to his side and his knuckles sweep across the dais floor.
+
+*"—and I'm disgusted with his decisions—"*
+
+The swordtails releases a metallic chortle into Dain's mind, *"The decisions he actively continues to make."*
+
+*"—but I—"*
+
+*"But you nothing."* his dragon bellows, *"I will not allow you the empathetic capacity for a man who shunned his own blood."* Cath's words are sharp, but his emotions in the bond are *sharper.* They are spat out with intention and disdain, cured in their nature by the sharp draconic dragging of Cath's voice, heavy with contempt that hasn't passed since even the first time Cath had observed his father.
+
+Through Cath's molten aggression there's the soft underbelly of the fondness he holds for Dain and he doesn't spare effort to hide it. It's warm and glittering.
+
+His dragon *likes* him.
+
+*"You are an imbecile."* Cath snaps, then shields (always successfully), cutting Dain out entirely.
+
+And, as if Zihnal were sitting in the audience of bruised and broken riders, listening to Dain speak his frets into the air at dais in a sad, coped performance, some of Second Squad appears. His problem miraculously resolves itself, and as if a cruel declaration from the Gods, Dain notes they hadn't even needed him to cover for them anyway.
+
+"Oh, Wingleader! Second Squad—" Ridoc begins.
+
+Dain takes a page from Cath's book and cuts the conversation short, "It's fine. You're all accounted for."
+
+Matthias is at Ridoc's heel, with Sawyer hobbling behind her, her face is painted with colors of disbelief and suspicion,
+
+"Violet has a message for you regarding our whereabouts."
+
+"Okay. It's fine." Dain rushes out, sitting up straight as their first-years pile in behind them, "I understand."
+
+Sloane, peaking out from behind Ridoc sneers, "You sure you don't want to *hear* the message? So that you can actually understand it?"
+
+Dain doesn't spare her a glance. She likes banter, lives for it. She isn't at all like her brother and he can't bare to look at her unless seeing Liam looking at him all over again is warranted. Especially knowing he'd just narrowly missed her flying into the frey back in Draithus.
+
+"If you'd like." He says, evenly, instead.
+
+He doesn't see Aaric there with them. Makes note of that.
+
+"She wanted to let you know she'll be with the Assembly until further notice." Matthias announces, shifting her weight when Sawyer moves to awkwardly lean on her,
+
+Dain nods and makes eye contact with Matthias, "Right."
+
+"You didn't go see the mender yet?"
+
+Dain and Second Squad's heads' twists up to follow Darius's booming voice and finds himself with an accustoary finger pointed in his direction, "You were gone for three whole hours and you didn't go get yourself looked at? You have a bum shoulder and," Darius tuts, "a nearly dislocated hip. You got a thing for pain?"
+
+Chuckling, Dain responds with a nonchalant shrug, "I told you I was just going to see my dragon."
+
+Darius begins making his way down the seats towards Dain,
+
+"Yeah I was thinking it could fix you."
+
+*"There is no fixing him."* Cath snaps, back for commentary yet again.
+
+"Nope, we just talked a bit."
+
+"For four hours?!"
+
+Dain chews his bottom lip, "We took a nap."
+
+*"We did."* Cath hums.
+
+"Go."
+
+Dain blinks, "Huh?"
+
+Darius narrows his eyes as he steps just before the dais, neck bent up to percieve Dain, the healer looks exaushted himself, "They're working you to death, go. You were shaking earlier. And go see Kaia, you need to get some proper rest."
+
+"Go see Kaia where? I don't know where she went."
+
+"Dain, brother, in medical. You're delirious go. Have you even eaten since you've gotten back from Draithus?"
+
+"No..." Dain grumbles, rubbing at his eyes, "Had to write up the post rotations and—"
+
+"Don't you have a second-in-command or something?"
+
+"I used to. But, no. No I don't."
+
+Darius throws his hands up and swats the air, then points at the door, "Get out."
+
+"But someone has to be here." Dain mutters stupidly.
+
+Darius sticks his chin out, "Do yourself a favor and take care of you because no one else is. You're working your ass off so hard you don't even realize you're sleep deprived and starving? Get out before I have filed unfit for duty."
+
+*"He speaks of you as if he knows you or cares for you. A fool playing the friend."*
+
+"Alright, alright, fine." Dain makes his way off the dais and crosses through Second Squad who are all listening to the exchange with their mouths hanging open. Darius isn't finished yet, though:
+
+"Make way! Are you blind?!"
+
+Surprisingly they obey, so Dain limps out the doors and towards Brennan's office, just barely catching Sloane demanding to Darius:
+
+"Are you guys friends or something?"
+
+And, Darius responding flatly, "Why? You jealous?"
