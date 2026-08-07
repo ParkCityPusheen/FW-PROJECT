@@ -182,7 +182,7 @@ Dain shrugs, *"Maybe I'll sleep out here."*
 
 *"You will miss the muster."* Cath declares.
 
-*"I know, it's fine. They'll..."* Dain's sight drops down, low to where his feet are shoved into busted leather boots, *"They'll figure it out. I have an Executive Officer for a reason."*
+*"I know, it's fine. They'll..."* Dain's sight drops down, low to where his feet are shoved into busted leather boots, *"They usually don't need me."*
 
 *"And what will you tell them? Your whereabouts; will you tell them you were dallying around a dragon den?"*
 
@@ -502,23 +502,27 @@ His dragon *likes* him.
 
 *"You are an imbecile."* Cath snaps, then shields (always successfully), cutting Dain out entirely.
 
-And, as if Zihnal were sitting in the audience of bruised and broken riders, listening to Dain speak his frets into the air at dais in a sad, coped performance, some of Second Squad appears. His problem miraculously resolves itself, and as if a cruel declaration from the Gods, Dain notes they hadn't even needed him to cover for them anyway.
+And, as if Zihnal were sitting in the audience of bruised and broken riders listening to Dain's mind speak aloud his frets at the edge of the dais in a pathetic, desperate performance: some of Second Squad appears. His problem miraculously resolves itself, a cruel declaration from the Gods; Dain notes, they hadn't even needed him to cover for them anyway.
 
-"Oh, Wingleader! Second Squad—" Ridoc begins.
+"Oh, Wingleader! Second Squad—" Ridoc begins, face bearing a harmless smile that makes Dain feel small.
 
-Dain takes a page from Cath's book and cuts the conversation short, "It's fine. You're all accounted for."
+He takes a page from Cath's book and cuts the conversation short, "It's fine. You're all accounted for." Matthias is at Ridoc's heel, with Sawyer hobbling behind her, her face is painted with colors of disbelief and suspicion,
 
-Matthias is at Ridoc's heel, with Sawyer hobbling behind her, her face is painted with colors of disbelief and suspicion,
+"Violet has a message for you regarding our whereabouts." she states, calmly while brushing back long, braided tresses.
 
-"Violet has a message for you regarding our whereabouts."
-
-"Okay. It's fine." Dain rushes out, sitting up straight as their first-years pile in behind them, "I understand."
+"It's fine." Dain rushes out, sitting up straight as their first-years pile in behind them, "I understand."
 
 Sloane, peaking out from behind Ridoc sneers, "You sure you don't want to *hear* the message? So that you can actually understand it?"
 
-Dain doesn't spare her a glance. She likes banter, lives for it. She isn't at all like her brother and he can't bare to look at her unless seeing Liam looking at him all over again is warranted. Especially knowing he'd just narrowly missed her flying into the frey back in Draithus.
+Dain doesn't spare her a glance. Mostly because she's too easy on his eyes—
 
-"If you'd like." He says, evenly, instead.
+*"You are the easy one."*
+
+Dain's poised stance nearly faulters, *"Fuck off."*
+
+—and she likes banter, lives for it, *thrives* underneath his skin. She isn't at all like her brother and he can't bare the risk of seeing Liam in her unless absolutely necessary. Especially knowing he'd just narrowly missed Sloane flying into the frey back in Draithus.
+
+"Alright." He responds, evenly, instead, then tempers his shields by overloading them with his magic; he doesn't want to see the man he's killed, not even in her memories.
 
 He doesn't see Aaric there with them. Makes note of that.
 
@@ -528,7 +532,7 @@ Dain nods and makes eye contact with Matthias, "Right."
 
 "You didn't go see the mender yet?"
 
-Dain and Second Squad's heads' twists up to follow Darius's booming voice and finds himself with an accustoary finger pointed in his direction, "You were gone for three whole hours and you didn't go get yourself looked at? You have a bum shoulder and," Darius tuts, "a nearly dislocated hip. You got a thing for pain?"
+Dain and Second Squad's heads' twists up to follow Darius's booming voice. Dain finds an accustoary finger pointed in his direction, "You were gone for four whole hours and you didn't go get yourself looked at? You have a bum shoulder and," Darius tuts, "a nearly dislocated hip. You got a thing for pain?"
 
 Chuckling, Dain responds with a nonchalant shrug, "I told you I was just going to see my dragon."
 
@@ -560,15 +564,15 @@ Darius narrows his eyes as he steps just before the dais, neck bent up to percie
 
 "Don't you have a second-in-command or something?"
 
-"I used to. But, no. No I don't."
+"No, I don't."
 
 Darius throws his hands up and swats the air, then points at the door, "Get out."
 
 "But someone has to be here." Dain mutters stupidly.
 
-Darius sticks his chin out, "Do yourself a favor and take care of you because no one else is. You're working your ass off so hard you don't even realize you're sleep deprived and starving? Get out before I have filed unfit for duty."
+Darius sticks his chin out, "Do yourself a favor and take care of you because no one else is. Get out before I have you designated unfit for duty."
 
-*"He speaks of you as if he knows you or cares for you. A fool playing the friend."*
+*"Speaking to you as if he knows you or cares for you. Quite the jest."*
 
 "Alright, alright, fine." Dain makes his way off the dais and crosses through Second Squad who are all listening to the exchange with their mouths hanging open. Darius isn't finished yet, though:
 
@@ -579,3 +583,74 @@ Surprisingly they obey, so Dain limps out the doors and towards Brennan's office
 "Are you guys friends or something?"
 
 And, Darius responding flatly, "Why? You jealous?"
+
+---
+
+Dain does not go to see Brennan, instead he takes a long, hot shower and retreats back into the dorm room he'd been assigned in the last room of the top floor of Riorson House. Cath is equally as irritated as Dain is by the time he's limped back into his room,
+
+*"This is why you should've seen the Mender first."*
+
+Dain removes his towel from his waist and drags it across his head, watching the rough fabric ruin his curls,
+
+*"I'll be fine."*
+
+*"That is not the point, Hatchling."*
+
+The *point* slips up his body directly to his healing shoulder as he continues swiping at his hair with his towel. He winces and lowers his arm slowly, legs shuflling in revers until he feels his matress smack the back of his knees. Cath is gracious and says nothing, only lights up the bond with bright annoyance.
+
+*"I'll just sleep. I'll rest and then I'll go see Brennan."*
+
+*"No. Now."*
+
+*"Cath I can't go see him like this. I'm not well right now. I think if I sleep it'll be better for me."*
+
+Cath, who Dain knows is aware that he is running on a gold piece and a dream, sighs,
+
+*"Then once you rise. Dawn comes quickly, cover yourself and sleep well."*
+
+... Is what his Red told him to do but Dain narrowly remembers he's fallen asleep completely naked when a series of coordinated knock pull him out of his slumber. He sits up, rubs at his eyes and grabs a set of pants from his nightside table, they hardly stay on his waist but it'll have to do.
+
+He's too tired make himself any more presentable so he stalks to the door and stares at the heavy reinforced handle, finally opening it when the knocks sound again,
+
+"Yes?" he clips out, squinting at the magelight sconce just ahead of his door,
+
+"What are you doing?"
+
+Dain blinks, sees the inky top of a woman's head, then lowers his chin enough to meet the eyes of Catriona Cordella.
+
+"I was sleeping." He tells her, "Are you okay?"
+
+She presses a finger into his chest and shoves hard, "Am I okay? Are you okay? You've been unspoken for, for like six hours."
+
+Dain scratches at his beard, "Just sleeping."
+
+"Have you seen Violet?"
+
+"No, do you—" he yawns, eyes watering, "Can you just come in or something my hip is killing me."
+
+He leaves it at that, and saunters back to his bed hoping she shuts the door if she decides not to come in. He hears it click shut as he carefully lowers himself back onto the matress,
+
+"Aetos that looks really bad."
+
+"Probably is."
+
+Theres a small table by the armoire shoved into the corner of his room and Catriona sits at on one of the shairs occupying it's thick edges. She doesn't look any better herself, hair straying wildly from it's thick braid, her uniform tattered, boots busted. Dain brings the magelights suspeded from his cieling alive, allowing his eyes to adjust to amberlight as it slowly fills the room.
+
+He looks down at where his hip disappears behind the the thick fabric of his night pants and lets out a hiss; the skin has mottled past purple into a sick reddish brown where the blood has begun to blister against the bone. In the morning he might not be changing into his uniform to get to Brennan.
+
+"Look at your shoulder too while you're at it. It looks more busted now than it did in the Isles." she demands, "You've just been in here broken?"
+
+"Yeah."
+
+Her eyes buldge, "What the *fuck* is going on in here? Violet has been fucking missing and swept away by rank left and right, Riorson hasn't shown his face at all, and you're hiding out in your fucking room? Am I missing something?"
+
+"Did you come in here looking for pointers? Because I don't have any. I know less than you and want it to stay that way."
+
+"What the fuck does that mean? You're done slaving away for your first love?"
+
+Dain shrugs, "I'm done with a lot of things Catriona."
+
+"Are you kidding me?"
+
+
+---
