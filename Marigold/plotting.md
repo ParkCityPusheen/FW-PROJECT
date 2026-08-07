@@ -40,6 +40,67 @@ Primary: Dain, Cath, Sloane, Aaric (+ their dragons)
 Major recurring: Dain’s father, Catriona, Marin, Violet, Ridoc, Violet’s squad broadly, primarily-mentioned canon fliers
 Supporting: possible OCs as needed; keep them in orbit, not center
 
+---
+
+# Character Sheet (dialogue roster)
+Living doc. Track anyone who speaks on-page. Update appearances only from text (or clear canon baseline noted as such). Ch 1 = current source unless marked otherwise.
+
+### Dain Aetos
+- **Role:** POV; Fourth Wing Wingleader; Cath’s rider; inntinnsic
+- **Synopsis:** Rotting foundation of duty/loyalty/father’s world. Feels useless outside leadership, lonely as a function (tool or weight), hated loudly by Violet’s orbit, starting to want more than the role. Performs competence while withdrawing. Hungry to be deadly/useful; signet is strategic, not combative.
+- **Appearance (on-page):** Brown eyes; curls (wind-pulled from Draithus flight); bloodied boots; filthy/tattered flight leathers and uniform after battle; injured shoulder (Isles), nearly dislocated hip; pinpoint pupils / shaking / cold sweats when spiraling. Cath’s bond can affect his eyes.
+
+### Cath
+- **Role:** Dain’s Red swordtail; primary emotional engine with Dain
+- **Synopsis:** Surface dry/sardonic; reality brutish, controlling, fond. Stamp personality: approve/deny, contain, do not advise (prior rider wound). Clocks Dain’s big feelings and often cannot help; presence without remedy. Possessive of Dain; contempt for Colonel Aetos; misreads human care (e.g. Darius) as false. No Cath POV.
+- **Appearance (on-page):** Red / ruby-garnet scales; deep marigold eyes (slits); enormous (Dain ~ size of a talon); swordtail; smooth baritone in the bond. Post-Draithus: claw marks up chest and across snout; left wing injured (braced/hidden, still usable with pain); magic heat used toward recovery.
+
+### Darius
+- **Role:** OC healer; with Kaia for the week post-Draithus; pushes Dain toward rest/medical
+- **Synopsis:** Blunt caretaker energy. Watches Dain, calls him on neglect, forces him off the dais. Speaks like a friend (“brother”); Cath rejects that as jest. Seeds that someone in the room does care, even if Dain can’t receive it.
+- **Appearance (on-page):** Pale blue healer hood (pushed to shoulders when speaking); heavy locked tresses; deep / booming voice; broad shoulders; darker eyes than Dain’s brown; exhausted post-battle; tall enough that Dain on the dais still has him looking up.
+
+### Kaia
+- **Role:** OC healer; Darius’s year-mate / partner on rotation
+- **Synopsis:** Softer approach than Darius; names them both, suggests courtyard/air without framing it as an order. Practical kindness. Sent Dain toward Cath’s den orbit early; later referenced as medical rest contact.
+- **Appearance (on-page):** Woman healer; limited physical detail so far (voice “pipes up”). **TBD:** expand when described.
+
+### Royce
+- **Role:** OC second-year rider; post-patrol messenger
+- **Synopsis:** Relays eastern entrance / guard tower watch failure and food complaint. Visibly unhappy about the errand. Receives Dain’s four-name volunteer list and “volunteer or volun-told.” Functional Wing texture; not center.
+- **Appearance (on-page):** Thin, unassuming.
+
+### Ridoc Gamlyn
+- **Role:** Canon; Violet’s squad; comic/softener who still lands punches
+- **Synopsis:** Opens Second Squad’s return with a harmless smile that makes Dain feel small. Cut off mid-report by Dain’s shutdown. Part of the orbit Dain both envies and cannot enter.
+- **Appearance (on-page):** Harmless smile in this beat. **Canon baseline:** keep consistent with Fourth Wing unless contradicted on-page.
+
+### Rhiannon Matthias
+- **Role:** Canon; Violet’s squad; delivers Violet’s message
+- **Synopsis:** Calm messenger. Announces Violet with Assembly until further notice; supports Sawyer physically. Disbelief/suspicion read on her face at Dain’s “it’s fine” shutdown.
+- **Appearance (on-page):** Long braided tresses; calm delivery. (Called “Matthias” in Ch 1 dialogue tags.) **Canon baseline:** otherwise per Fourth Wing.
+
+### Sawyer Henrick
+- **Role:** Canon; Violet’s squad; healer rehab / injured
+- **Synopsis:** Hobbles in with Second Squad; leans on Matthias. No spoken lines in Ch 1 yet; present as body/witness. Dain no longer his point of contact re: rehab whereabouts.
+- **Appearance (on-page):** Hobbling; face painted with disbelief and suspicion. **Canon baseline:** otherwise per Fourth Wing.
+
+### Sloane Mairi
+- **Role:** Canon; Marked One; slow-burn love interest (later); Liam’s sister
+- **Synopsis:** Banter predator; sneers at Dain’s refusal to “hear” Violet’s message. Dain finds her too easy on his eyes, won’t look (Liam / Draithus / memory risk); overloads shields against her memories. Cath needles him (*easy one*). Exit: asks Darius if he and Dain are friends; Darius: “Why? You jealous?” Seeds curiosity against her will.
+- **Appearance (on-page):** Peeks from behind Ridoc; sneer; Dain-coded as visually striking (“too easy on his eyes”). **Canon baseline:** rebellion relic / Marked; otherwise per Fourth Wing unless contradicted.
+
+### Mentioned / message-only (no direct spoken dialogue yet in Ch 1)
+- **Violet Sorrengail:** Assembly; message via Matthias; orbit of trust Dain envies and withdraws from. Note from Brennan: *I've got Vi.*
+- **Brennan Sorrengail:** Medical / mender path; note on muster papers; Dain limps toward his office at segment end.
+- **Aaric Graycastle:** Isles reinforcements (overheard); absent from Second Squad return; Dain notes it.
+- **Colonel Aetos (Dad):** No on-page dialogue yet; living wound; Cath’s contempt; disownment in Dain’s reality.
+- **Unnamed strawberry-blonde first-year healer:** Early dais inquiry; no quoted lines yet.
+
+**Update rule:** When a new character speaks, add them here. When appearance is established or revised on-page, overwrite the appearance line; do not invent.
+
+---
+
 ## Pressure That Keeps Him In
 - Dain’s honor/duty: he can’t quit because duty is all he believes he has left
 - Cath’s love (unnamed): Cath won’t let him quit into self-erasure
