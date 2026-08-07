@@ -586,11 +586,29 @@ And, Darius responding flatly, "Why? You jealous?"
 
 ---
 
-Dain does not go to see Brennan, instead he takes a long, hot shower and retreats back into the dorm room he'd been assigned in the last room of the top floor of Riorson House. Cath is equally as irritated as Dain is by the time he's limped back into his room,
+Dain does not go to see Brennan, instead he takes a long, hot shower; brushes his teeth until his gums bleed, and retreats back into the dorm room he'd been assigned in the last room of the top floor of Riorson House. The trek from room to bathing chamber here and viceversa is eons different from what it is at Basgiath.
+
+In Riorson House the Poromish tapestries and wrought iron magelighting are reoccuring, they warm the space and make it human along with dyed rugs, faded and nailed into the stone floors. Runes aren't hidden behind fixtures and faux furniture like they are at the war college either, they're carved and displayed proudly, decorated by fleeting Tyrrish decorations and rope work that Dain recognize from books he'd read about them.
+
+He recalls the long nights his he'd spent reading about Tyrrish history and culture, ingesting it greedily to make his father proud. Dain wonders at the irony of the refuge he's taken now, tucked away in a Fortress thought to be destroyed by the likes of dragons and their riders, the mountains and cliffsides he finds himself watching Cath emerge from, the tunnels housing his Red's kind, and the hatching ground proudly and valiantly protected as it's twin in the Vale.
+
+Would his father smite him more to discover gryphons excited him just as equally as any dragon would? That he wished to feel their fur just as much as he did Cath's scales? How badly would he have been disciplined for slipping into elementrary Krovlish with a flier from Cygnisen just to ensure they're comfort amongst tides of riders and dozens of hours away from their homeland? He can't believe he'd been disowned for fighting for the future of all of humankind rather than just Navarre.
+
+He knows his father would sneer at him if Dain vocalized his disappointment in Quest Squad skipping Loial's Isle, in his inability to pray in her chapples as his mother would've wanted him to. He knows the side eye he'd recieve if it were discovered that he'd already been to Amari's temple here in Aretia.
+
+Previously these acknowldgements might have left him feeling numb and lesser, but now?
+
+He grabs the handle of his door and opens it, slamming it shut and dropping his back against it. 
+
+There's only irritation festering into a feirce rage.
+
+
+
+Cath is equally as irritated, but mostly at Dain, rather than for him, by the time he's limped back into his room,
 
 *"This is why you should've seen the Mender first."*
 
-Dain removes his towel from his waist and drags it across his head, watching the rough fabric ruin his curls,
+He's not about to argue with him when every step sends pain richoceting across his body. Dain removes his towel from his waist and drags it across his head, watching the rough fabric ruin his curls,
 
 *"I'll be fine."*
 
@@ -600,9 +618,11 @@ The *point* slips up his body directly to his healing shoulder as he continues s
 
 *"I'll just sleep. I'll rest and then I'll go see Brennan."*
 
+In the armoire here he's got two hanging uniforms, the tattered one he'd worn in Draithus in a linen bag to take to wash, and some other personal affects. He takes a whole ten seconds to hinge himself downwards enough to grap his grooming kit. He swipes on some cologne at his collarbone, smells the tin itself, and drops everything back into it's place.
+
 *"No. Now."*
 
-*"Cath I can't go see him like this. I'm not well right now. I think if I sleep it'll be better for me."*
+"Cath I can't go see him like this. I'm not well right now. I think if I sleep it'll be better for me." his voice fills the room, dry and rasping as he drops down onto the matress, "I'm sure Bren thinks I might want to be on Dad's good side or something and I've now disappeared twice for multiple hours. He might know me but he doesn't trust me."
 
 Cath, who Dain knows is aware that he is running on a gold piece and a dream, sighs,
 
