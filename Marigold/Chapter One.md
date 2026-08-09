@@ -250,7 +250,7 @@ Cath's eyes slide shut, his head drops to the side; he's lounging fully into the
 
 From his place on the floor, palms surely bleeding by what he's feeling underneath them, Dain peers up at Cath,
 
-*"Why not break our bond and find someone worthy?"*
+*"Why not find someone worthy?"*
 
 *"You deign think any human is worthy the magic you can so barely tolerate?"* Cath's draconic laughter is sickening, otherworldly, *"You are just as much a fool as any other, worthy or not."*
 
@@ -258,13 +258,13 @@ From his place on the floor, palms surely bleeding by what he's feeling undernea
 
 *"I am."*
 
-*"Talk to me more."*
+*"Talk to me more."* he demands,
 
 *"I will."*
 
-*"Let me sleep here."*
+*"Don't leave me."* he begs.
 
-Cath's eyes blink open, then, he raises his head leaving enough room for Dain to walk between Cath's forelegs then under his snout and chin, *"You will do so here, then. Always so difficult."*
+Cath's eyes blink open, then, he raises his head leaving enough room for Dain to walk between Cath's forelegs then under his snout and chin, *"Always so difficult."*
 
 *"No, not really."* Dain grumbles, stumbling between walls of red scales, then collapsing against Cath's chest and the crook of one of his arms, far away from where wyvern have injured him. Cath only chuffs, lowering his head, caging Dain in ruby tranquility and not even the coming moonlight seeps through,
 
@@ -586,35 +586,35 @@ And, Darius responding flatly, "Why? You jealous?"
 
 ---
 
-Dain does not go to see Brennan, instead he takes a long, hot shower; brushes his teeth until his gums bleed, and retreats back into the dorm room he'd been assigned in the last room of the top floor of Riorson House. The trek from room to bathing chamber here and viceversa is eons different from what it is at Basgiath.
+Dain does *not* go to see Brennan, instead he takes a long, hot shower and brushes his teeth until his gums bleed. The trek from room to bathing chamber here and viceversa are eons different from what it is at Basgiath.
 
-In Riorson House the Poromish tapestries and wrought iron magelighting are reoccuring, they warm the space and make it human along with dyed rugs, faded and nailed into the stone floors. Runes aren't hidden behind fixtures and faux furniture like they are at the war college either, they're carved and displayed proudly, decorated by fleeting Tyrrish decorations and rope work that Dain recognize from books he'd read about them.
+Riorson House bares Poromish tapestries and wrought iron magelighting that are endlessley reoccuring, but in this war-castle made home, they warm the space in an attempt at making it more domestic. Along with dyed rugs, faded and nailed into the stone floors in certain areas, there are stands with weapons long ago decomissioned or retired down the wide hallways. Even in the shared bathing chambers there's intention and character within the architechture that Dain finds himself admiring. Runes also aren't hidden behind fixtures and faux furniture like they are at the war college either, they're carved and displayed proudly, right alongside fleeting Tyrrish decorations and rope work that Dain recognizes from the books he'd read.
 
-He recalls the long nights his he'd spent reading about Tyrrish history and culture, ingesting it greedily to make his father proud. Dain wonders at the irony of the refuge he's taken now, tucked away in a Fortress thought to be destroyed by the likes of dragons and their riders, the mountains and cliffsides he finds himself watching Cath emerge from, the tunnels housing his Red's kind, and the hatching ground proudly and valiantly protected as it's twin in the Vale.
+He momentarily recalls the nights he'd deemed pointless, spent reading about Tyrrish history and culture, nonetheless ingesting it greedily to make his father proud. Dain wonders at the irony in the refuge he's taken now, tucked away in the Aretian fortress thought to be destroyed by the likes of dragons and their riders. There's something so insanely bittersweet that he would much rather be *here* eyeballing mountain tops and cliffsides to guess which Cath will emerge from, memorizing the tunnel entrances that house his Red's kin, and looking down from his back on the hatching ground guarded as proudly and valiantly as it's twin in the Vale.
 
-Would his father smite him more to discover gryphons excited him just as equally as any dragon would? That he wished to feel their fur just as much as he did Cath's scales? How badly would he have been disciplined for slipping into elementrary Krovlish with a flier from Cygnisen just to ensure they're comfort amongst tides of riders and dozens of hours away from their homeland? He can't believe he'd been disowned for fighting for the future of all of humankind rather than just Navarre.
+Would his father smite him more to discover gryphons excited him just as equally as any dragon would? That he wishes to feel their fur and feathers just as much as Cath's scales? How badly would he have been disciplined for slipping into elementrary Krovlish with a flier from Cygnisen, simply to ensure their comfort amongst tides of riders while being dozens of hours away from their homeland?
 
-He knows his father would sneer at him if Dain vocalized his disappointment in Quest Squad skipping Loial's Isle, in his inability to pray in her chapples as his mother would've wanted him to. He knows the side eye he'd recieve if it were discovered that he'd already been to Amari's temple here in Aretia.
+Dain snarls, biting into his cheek as pain shoots up his hip when he begins to limp down the corrider as quickly as he can manage. He can't believe he'd been disowned for fighting for the future of all of humankind rather than just Navarre.
 
-Previously these acknowldgements might have left him feeling numb and lesser, but now?
+He knows his father would sneer at him if Dain vocalized his disappointment in Quest Squad skipping Loial's Isle, in his inability to pray in her chapples as his mother would've wanted him to. He knows the side eye he'd recieve if it were discovered that he'd already been to Amari's temple here in Aretia. Honestly, if he were anywhere else besides Basgaith, if he were acknowledging any God more deeply than Malik.
 
-He grabs the handle of his door and opens it, slamming it shut and dropping his back against it. 
+Previously these acknowledgements might have left him numb and sealed over, smaller somehow, and much easier to carry. Now his skin is shower-cooled and still wet beneath the towel, and the hallway air finds every uncovered inch; Dain's thoughts do the same, arriving suddenly and stabbing where he used to be dull.
 
-There's only irritation festering into a feirce rage.
+He sidles into his room, back falling agasint the door before it can shut on it's own, slamming it closed. The sound of reinforced wood rings through his tiny, personal space, and Dain listens to it beat against the stone walls, and he feels it stutter against his tiny window. His magic is absorbed into the runed chandelier centered against the cieling, it's nothing fancy, but it's wrought iron and surpassing the test of time, and it bathes him and the sparse furniture in soft amberlight.
 
+There's only irritation festering into a fierce rage that encompasses any other feelings threatening to surface.
 
+There's no reason to carry the burden of what he was meant to be here in Aretia; no one has a singular expectation of him anymore, he's nothing and that's more than destiny will ever allow.
 
-Cath is equally as irritated, but mostly at Dain, rather than for him, by the time he's limped back into his room,
+Cath's nerves have peaked hot as Dain calms back into an unfeeling numbness by the time he's limped away from the door farther into the room, shivering and aching, *"This is why you should have seen the Mender first."*
 
-*"This is why you should've seen the Mender first."*
-
-He's not about to argue with him when every step sends pain richoceting across his body. Dain removes his towel from his waist and drags it across his head, watching the rough fabric ruin his curls,
+He's not about to argue with Cath when every step sends pain richoceting across his body. Dain removes his towel from his waist and drags it across his head, watching the rough fabric ruin his curls,
 
 *"I'll be fine."*
 
 *"That is not the point, Hatchling."*
 
-The *point* slips up his body directly to his healing shoulder as he continues swiping at his hair with his towel. He winces and lowers his arm slowly, legs shuflling in revers until he feels his matress smack the back of his knees. Cath is gracious and says nothing, only lights up the bond with bright annoyance.
+The *point* slips up his body again, but this time upz to his healing shoulder as he continues swiping at his hair with his towel. He winces and lowers his arm slowly, legs shuflling in revers until he feels his matress smack the back of his knees. Cath is gracious and says nothing, only lights up the bond with bright annoyance.
 
 *"I'll just sleep. I'll rest and then I'll go see Brennan."*
 
@@ -622,41 +622,41 @@ In the armoire here he's got two hanging uniforms, the tattered one he'd worn in
 
 *"No. Now."*
 
-"Cath I can't go see him like this. I'm not well right now. I think if I sleep it'll be better for me." his voice fills the room, dry and rasping as he drops down onto the matress, "I'm sure Bren thinks I might want to be on Dad's good side or something and I've now disappeared twice for multiple hours. He might know me but he doesn't trust me."
+"Cath I can't go see him like this. I'm not well right now. I think if I sleep it'll be better for me." his voice fills the room, dry and rasping as he drops down onto the matress, "I'm sure Bren thinks I might want to be on Dad's good side or something still, and I've now disappeared twice for multiple hours. He might know me but he doesn't trust me."
 
-Cath, who Dain knows is aware that he is running on a gold piece and a dream, sighs,
+Cath, who Dain knows is aware that his Hatchling is running on a gold piece and a dream, sighs,
 
 *"Then once you rise. Dawn comes quickly, cover yourself and sleep well."*
 
-... Is what his Red told him to do but Dain narrowly remembers he's fallen asleep completely naked when a series of coordinated knock pull him out of his slumber. He sits up, rubs at his eyes and grabs a set of pants from his nightside table, they hardly stay on his waist but it'll have to do.
-
-He's too tired make himself any more presentable so he stalks to the door and stares at the heavy reinforced handle, finally opening it when the knocks sound again,
+... Is what his Red told him to do but Dain narrowly remembers he's fallen asleep completely naked when a series of coordinated knock pull him out of his slumber. He sits up, rubs at his eyes and grabs a set of pants from his nightside table, they hardly stay on his waist but it'll have to do. He's too tired make himself any more presentable than he currently is, so he stalks to the door and stares at the heavy reinforced handle, before finally opening it when the knocks sound again,
 
 "Yes?" he clips out, squinting at the magelight sconce just ahead of his door,
 
 "What are you doing?"
 
-Dain blinks, sees the inky top of a woman's head, then lowers his chin enough to meet the eyes of Catriona Cordella.
+Dain blinks, sees the inky top of a woman's head, then lowers his chin enough to meet the shining brown eyes of Catriona Cordella.
 
-"I was sleeping." He tells her, "Are you okay?"
+"I was sleeping." He tells her, plainly, "Are you okay?"
 
 She presses a finger into his chest and shoves hard, "Am I okay? Are you okay? You've been unspoken for, for like six hours."
 
 Dain scratches at his beard, "Just sleeping."
 
-"Have you seen Violet?"
+"And have you spoken to Violet?"
 
-"No, do you—" he yawns, eyes watering, "Can you just come in or something my hip is killing me."
+"No, do you—" he yawns, eyes watering, his jaw cracking sickeningly, "Can you just come in or something; my hip is killing me."
 
-He leaves it at that, and saunters back to his bed hoping she shuts the door if she decides not to come in. He hears it click shut as he carefully lowers himself back onto the matress,
+He leaves it at that, and saunters back to his bed hoping she shuts the door if she decides not to come in. He hears it click after the hinges squeak as he carefully lowers himself back onto his matress,
 
-"Aetos that looks really bad."
+"Aetos that looks *really* bad."
 
-"Probably is."
+He's sure she's talking about his hip. After his shower he'd notiecd the bruising stretched far across his abdoman and against his navel.
 
-Theres a small table by the armoire shoved into the corner of his room and Catriona sits at on one of the shairs occupying it's thick edges. She doesn't look any better herself, hair straying wildly from it's thick braid, her uniform tattered, boots busted. Dain brings the magelights suspeded from his cieling alive, allowing his eyes to adjust to amberlight as it slowly fills the room.
+"Probably is." Dain mutters, sneaking a glance at her.
 
-He looks down at where his hip disappears behind the the thick fabric of his night pants and lets out a hiss; the skin has mottled past purple into a sick reddish brown where the blood has begun to blister against the bone. In the morning he might not be changing into his uniform to get to Brennan.
+Theres a small table by the armoire shoved into the corner of his room and Catriona sits at on one of the chairs occupying it's thick edges. She doesn't look any better herself, hair straying wildly from it's thick braid, her uniform tattered, boots busted. Dain brings the magelights suspeded from his cieling to life, allowing his eyes to adjust to amberlight as it slowly fills the room.
+
+He looks down at where his hip disappears behind the the thick fabric of his night pants and lets out a hiss; the skin has mottled past purple into a sick reddish brown where the blood has begun to blister underneath the bone. In the morning he might not be changing into his uniform to get to Brennan.
 
 "Look at your shoulder too while you're at it. It looks more busted now than it did in the Isles." she demands, "You've just been in here broken?"
 
@@ -666,11 +666,45 @@ Her eyes buldge, "What the *fuck* is going on in here? Violet has been fucking m
 
 "Did you come in here looking for pointers? Because I don't have any. I know less than you and want it to stay that way."
 
-"What the fuck does that mean? You're done slaving away for your first love?"
+"What the fuck does that mean? Since when were you okay with not trying to be in control of a situation? You're done slaving away for your first love?"
 
-Dain shrugs, "I'm done with a lot of things Catriona."
+Dain shrugs, "I'm done with a lot of things, Catriona."
+
+And Violet's not even his first love, he's never had a first love. He's never *been* in love, but that's none of Catriona's fucking business.
 
 "Are you kidding me?"
 
+"No," he sits up, wincing, "I'm tired of pissing into the wind. Feel free to take my place though," he points then, to his door and unsurprisingly the flier shoots up from his table,
+
+"*Now* is not the time to be feeling sorry for yourself, Aetos." Catriona's voice harpoons through him, curt and serrated to kill, "You're leadership for a fucking reason, act like it!"
+
+She doesn't wait to recieve his anger as his fury surmounts, peaking to a nasty head that leaves his grunting as he pulls himself up off the bed and his door slams shut behind her. He grits his teeth, absorbing the pain that permeates through his flesh as he takes the chair she'd been sitting in and readies himself to toss it right at the door she'd walked through.
+
+Damned if he does, Dain thinks, damned if he doesn't, damned here, and there, damned to be rested and damned to be exahusted. What's the fucking point and is it relevant to him living?
+
+*"What is it that you want?"*
+
+Dain freezes, he's got the chair swung halfway up the side of his body when Cath speaks,
+
+*"What do you mean?"* he says to his Red.
+
+Cath takes a moment and then speaks again, *"You are miserable. Remove your misery."*
+
+*"Okay, but with who and where?!"* Dain drops the chair and bounces against the polished stone flooring, his arms remain stuck to where they were as they held it, *"There's nothing I can do to be helpful to anyone and—"*
+
+*"Hatchling, you need only be helpful to me if you so please it."*
+
+Their bond stretches, exapnding two-fold in Dain's mind, and he curls into himself to meet Cath there.
+
+"I don't know." He picks up the chair, sits it upright and this time takes a seat in it, "I guess I need to go see Brennan before I do any of that."
+
+*"This is precisely where you will start. I have not heard word of Tairn nor his fiendish mate."*
+
+Dain's eyes narrow.
+
+His mind snaps back to Catriona's statement about Violet missing and Riorson failing to have shown face, *still.* Cath is right, it's obviously something he should look into, if not for those personally conerned than for himself and Cath.
+
+Maybe, someone might need him.
 
 ---
+
