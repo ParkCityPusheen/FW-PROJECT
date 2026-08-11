@@ -708,3 +708,221 @@ Maybe, someone might need him.
 
 ---
 
+Brenna's office is situated between two intesive care rooms whose doors remain open leaving view to handfuls of healers, veteran and student, of herbalist and physiotherapists alike, all focused on each room's particular patient. The room on the left, from where he stands at Kaia's side, tenants a small female rider. It's easier to search for places on her body that the skin hasn't blackened, where there aren't gauze and bandages, and she moans incessantly, *even* in her induced state.
+
+"Do you know her?" Kaia questions gently, so much so that her voice nearly drowns beneath the shuffling of steps.
+
+Dain looks to the room at their right, he recognizes a third year from Second Wing, the male is sitting upright, but his eyes are bloodshot red alongside the skin that's been split open across them from ear to ear. There's a remission worker at his side, and the side of them makes Dain's jaw go tight.
+
+"I don't," he croaks, clearing his throat after answering Kaia, "I hope she heals up, though."
+
+"Apparently her dragon is in bad shape too. It's all so tragic."
+
+Kaia straightens up her back and drops her knuckles against Brennan's double-doored entryway, then she looks back at Dain with a mystified expression,
+
+"Do you know Lieutenant Colonel? Personally?"
+
+Dain looks down at the brunette, "I do."
+
+"I see—we'll I'll leave you to it, I;m sure you remember your way out?"
+
+"Right," Dain nods, jerking his head to the right where they'd come from, "Thanks for escorting me, Kaia."
+
+"Stop at pharmacy after this, I'm leaving a slight regimn for you that Darius procured earlier."
+
+Dain's brows pinch together, "He didn't need to do that."
+
+"I'm sure there'll be more for you after this, so don't mention it. Darius says you remind him of someone." she kicks her heel against the stone floors and peers up at Dain through her eyelashes, "And... I think that person might've been important to him. Just accept it, you guys are very alike."
+
+"But we don't even know each other."
+
+"No." Kaia begins to exit the small foyer, "*Everyone* knows about you, Dain."
+
+Cath's curiostiy collides with Dain's in the bond, but his Red says nothiong of it as his rider pulls at the ornate handle of Brennan's office. He shuts the door carefully behind himself after he shuffles in while remembering he's in his sleeping clothes, it's awkward to be infront of a superior in casual clothes, knowing them personally or not.
+
+Brennan is at his desk, or near it, he's hunched over it and some scrolls, spinning an ink pen around his fingers while bouncing at the hip. He looks aged, he looks exactly like what war and death wittles a person down to: nerves and exhaustion, like many others in the last twenty-four hours. He seems completely focused on whatever he's reading, face set with a resting scowl before Dain hisses out in pain while hobbling closer,
+
+"Dain! Good, you're here!" the older man exclaims; he presents a wry smile and his shoulders sink a few inches.
+
+Brennan's looking just as raggedy as the rest of the fortress, certainly not as awful as he did while mending Mira, but——
+
+"Where is Mira? Is she okay?" Dain gasps,
+
+——the memories of Mira's throat torn and bleeding hit him like crossbolts and worse. Dain winces to get through it and primes his shields to avoid peaking at Brennan's.
+
+Brennan's lips pull into a tight, unsatisfied line, "She's been better, but as of now she's more than stable. The damage to her throat and vocal cords was horrendous and I didn't really have the time focus while mending her because I just needed to keep her *alive.*"
+
+"Can I go see her?"
+
+"After this, come here—"
+
+Dain grits his teeth and drags himself forward, "—actually, just stay there. Did you just wake up?" He gesture to Dain's attire, pulling at the heavy fabric of his sleeping shirt in prompt to needing it removed, "I know Fourth Wing was one of the first Wing's reported returned and accounted for, and patroling, good job kid."
+
+"Thanks, Brennan."
+
+"You never came to see me for this shoulder did you?" Brennan's hands are warm, rough and calloused as they drag along Dain's shoulders, "This looks horrible. It's going to take a while to really heal properly now."
+
+"Mending makes the body reliant." Dain sighs, tensing as Brennan's signet activates, "And, you've got more people to take care of with more serious injuries."
+
+"Shut up, I have a soft spot for you. You get injured, you come see me, understand?"
+
+His shoulder goes tight suddenly, and internally Dain hears his muscle and flesh fit against itself. His body moves on it's own, jerking as the magic rearranges the wound to a more proper state, "What's going on with your hip, let me see." Brennan commands.
+
+Dain rubs at his injured shoulder, pulling at his skin and flesh awkwardly, pressing his fingers into it where the muscles ache at the unnaturalness of the magic. He can never quite adapt to mending,
+
+*"Stop fondling yourself like that."* Cath bellows, admonishing him like a disobedient child, *"Hurry up, and show him your hip Hatchling."*
+
+"Alright, alright Cath. Jeez." Dain groans, he drops his head to see the waistband of his pants, pulling at it and his undergarment to reveal an expanse of purpling-blackened skin. Brennan's mouth drops open as he softly runs the tips of his fingers across the blossoming pink at the edges of the wound,
+
+"Dain, seriously?" He guffaws, eyes wide and tired, "Just come by next time."
+
+Dain rolls his eyes, gripping his waistbands even lower when Brennan's hand presses into his hip,
+
+"You can't expect me to just walk up to you during an active time of battle and fucking request you unfuck my minor injuries. The trauma bays are *all* full and so much more pressing than this." Dain snarls, eyes meetin Brennan's for a quick moment until his mending begins and Dain squeezes his shut in horrific pain,
+
+*"That's what you get."* Cath hisses.
+
+"Ugh, you're so fucking spiteful!" Dain growls into the office in response, he misses Brennan raising a reddish-brown brow,
+
+Brennan chuckles, the asshole is completely unaware of how badly this shit hurts,"Do you always talk to Cath outloud like that?"
+
+"I—"
+
+Whites and reds and yellows explode across his vision and he bites his bottom lip, teeth sinking into flesh so quickly he begins to bleed,
+
+"Brennan I need to sit down."
+
+He asks to sit but Dain's knees buckle before he can even survey the space for a place to sit. He ends up panting on the polished wooden floors of Brennan's office. He manages a glance at the oldest Sorrengail; the Liutenant Colonel looks stuck deciding wether or not to chortle or feign concern,
+
+"Yeah, by all means lay down." Brennan's voice lilts with cursiosity and he flexes the outstretched hand that had been on Dain's hip, "Ready to go again?"
+
+*"Stop chewing on your lip."*
+
+"Fuck you guys." Dain spits, sweating profusely through the black fabric of his sleeping set.
+
+He feels Brennan's hand back on his hip and sucks in as much air as his lungs will manage.
+
+The pain soars through Dain this time. Radiating pain through every cell in his body; he locks up, spasming like a fish out of water while the magic grabs at his pelvis, forcing muscle to the side to make room for his displaced joint.
+
+"Almost done Dainy-Baby," Brennan cooes, "This is diabolical that you've been casually walking around like this. Did you disappear both times to sleep because of the pain?"
+
+"I—"
+
+"You know it's almost entirely out of the socket? You're lucky you're as lean as you are. You need to eat more also, now that I'm looking at you."
+
+*"You still have not eaten since your return. Four hour descent to Draithus, a five hour battle, two hours of reconnaissance, one hour of organizing thereafter, and a five hour ascent back to this fortress. Ten hours since our return. Not once have you eaten. You have only whined. "*
+
+"It was not just whining! I almost lost you, I was scared! I watched you fighting for both of us and I could do fuckall to help you! I—" Dain sputters, knees bending and straightening out when his hip slides back into place with a sick *thock,* and the rest of Dain's arguement dies in his throat.
+
+"All done." Brennan announces as he lifts his hands and holds his palms out by has head.
+
+He gives Dain a moment, stretched across his floor and panting, hand shoved into his pants and cradling the mended hip against his palm. Dain himself is suspended in the painless afterglow of mending, he watches Brennan's boots click across the space. He's retrieved water and some kind of medicine in a smaller, cap sized glass container and placed them directly in Dain's line of sight,
+
+"Once you're ready, wash that down with the water. It's just a numbing agent—it's a really good one though, so plan on going straight to your room after this."
+
+*"No."*
+
+Brennan freezes suddenly, and Dain fights the urge to let his eyes roll into the back of his head, "Marbh just let me know Cath. I'll have someone bring food up to him, I promise."
+
+Cath releases an unimpressed grunt of approval into the bond and says nothing more.
+
+"Once you're ready" is a solid half-hour later.
+
+Dain lifts off the floor in a hazed, half-lidded movement that nearly knocks over the glass of water, seeing it reminds him that he needs to take the numbing agent; he does so, quickly and desperately. The bitterness of it is overwhelming and Dain's eyes seal shut as the liquid spreads across his tongue. The water is next, but it doesn't do much to provide refuge from the taste,
+
+"That bad?"
+
+*Violet.*
+
+Dain's head whips far to the right, "Vi."
+
+She's seated comfortably in the arm chair to the right of Brennan's desk, who Dain notes is nowhere to be seen, though she seems uninjured something about the way she's looking at him is unsettling.
+
+"Catriona said you were missing."
+
+"Obviously found."
+
+Her response is bitey, but her voice isn't. She's not okay, but he forces himself not to ask if she is.
+
+They exist there in silence as Dain fixes himself, standing up and pulling his pants and undergarment where they should be, straightening out his shirt. He's winces, squatting down to pickup the two glasses; he's definitely healed, there's no grotesque pain from his hip while manuevering himself only the after-effects of Brennan's signet running it's course.
+
+"You're not going to ask about Xaden?" Violet prods, calico eyes dragging across Dain's body in assessment,
+
+Dain scratches the inside of his palms, "Ask what, exactly?"
+
+"You don't know?"
+
+"Know what Vi?" He sways a bit, and Cath is quick as ever to comment,
+
+*"Room. This is irrelevant in light of your new orders."*
+
+*"Working on it."*
+
+Violet shuffles in the armchair. She's so tiny she fits in the cushion even with her knees pressed against her chest, "Where he's at, Dain."
+
+"I'm confused. Is he somewhere he shouldn't be?"
+
+"Where exactly have *you* been?" She deflects, and not smoothly, Dain notes that.
+
+"Draithus, then here, Wingleader things, and sleeping when I can."
+
+She nods, "What happened to you to land you in here?"
+
+"Killed a wyvern that dropped onto us, dislocated my hip. Almost. I've just been limping around. I'm glad you're okay."
+
+He gets a smile from her for that, but it doesn't reach her eyes.
+
+"Thanks, Brennan was one of the first I saw." she presses her forehead into her knees, "We'll need to talk at some point, properly, but I have a feeling now isn't a good time."
+
+There's a lot of things Dain could say.
+
+*No, I always have time for you.*
+
+*Come with me, we could talk over a meal.*
+
+*I need to get to my room before this medicine gets to me.*
+
+*You're right: now isn't a good time.*
+
+He takes his time, licking the inside of his mouth before finally answering tepidly,
+
+"Alright,"
+
+To which Violet only nods, "See you around Wingleader."
+
+Brennan shatters the silence, suddenly entering the office, his eyes spot Violet, who he seems to have expected to be there, and then Dain,
+
+"Dain you were just sleeping those two times you were missing?"
+
+"I'll speak with a Truth-Sayer if I can't be trusted." he manages to deliver his amendment nonchalantly while setting the glasses on the tea table just ahead of Violet, then turns to face Brennan.
+
+"I trust you. Well, I want to, but it's hard considering the sides we've played for y'know? Nothing personal?"
+
+Dain's eyes narrow, "I could've gotten Vi killed, Liam Mairi died instead. Because I thought I could—"
+
+"I don't think you were acting maliciously, then. Dain, I'm fully on your side here. I went through everything you're going through already. Your concern isn't me, it's Basgiath and the Assembly. Things are going to start to lose their mold—kind of like you have."
+
+Brennan's words immediately breach a side of Dain's shrinking heart, they penetrate deep with simple words and intention, Dain stands there with his mouth hanging open, shuffling about awkwardly with Violet watching,
+
+"Thanks for that, Bren."
+
+"Gods, you haven't called me that in fucking ages."
+
+"Well," Dain clicks his tongue, "you've been dead."
+
+"Touche."
+
+"I'll make sure you know what I'm up to, I can ask Cath to keep direct correspondce with Marbh."
+
+Brennan chews this, then he nods curtly, eyes wandering to Violet out of sibling habit, "You really don't need to, but it would help out a bunch. Just to rule you out whenever you're inevitably considered by the others."
+
+Dain's hurt passes through his nose in the form of an exasperated breath, quick and short. He considers Brennan's earlier statement; he'd once come from the other side, deep in it too, being the son of a Sorrengail, and now Dain in that same position; the son of General Aetos.
+
+He lets it go, realizing his body is becoming much lighter to exist in, "I'm going back up to sleep."
+
+"Food will be right behind you, and you have to eat it before you go under, okay?"
+
+"Yes sir."
+
+---
+
