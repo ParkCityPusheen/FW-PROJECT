@@ -628,13 +628,15 @@ Cath, who Dain knows is aware that his Hatchling is running on a gold piece and 
 
 *"Then once you rise. Dawn comes quickly, cover yourself and sleep well."*
 
-... Is what his Red told him to do but Dain narrowly remembers he's fallen asleep completely naked when a series of coordinated knock pull him out of his slumber. He sits up, rubs at his eyes and grabs a set of pants from his nightside table, they hardly stay on his waist but it'll have to do. He's too tired make himself any more presentable than he currently is, so he stalks to the door and stares at the heavy reinforced handle, before finally opening it when the knocks sound again,
+... Is what his Red told him to do but Dain narrowly remembers he's fallen asleep completely naked when a series of coordinated knock pull him out of his slumber. He sits up, rubs at his eyes and grabs a set of pants from his nightside table, they'll hardly stay on his waist but it'll have to do. The knocks are sounding again by the time he's got his pants fully manuevered on; the pain and rigidness of his hip make it so Dain has to fit himself into the pants by halfawy sliding into them along the side of his mattress. He's too tired make himself any more presentable than he currently is, so he stalks to the door and stares at the heavy reinforced handle, before finally opening it when the knocks sound again. Knocks that quickly build into banging.
 
-"Yes?" he clips out, squinting at the magelight sconce just ahead of his door,
+"Yes?" he clips out, squinting at the magelight sconce just ahead of his door as it's light flood into the dorm and into his eyes,
 
 "What are you doing?"
 
 Dain blinks, sees the inky top of a woman's head, then lowers his chin enough to meet the shining brown eyes of Catriona Cordella.
+
+His eyes twitches a bit before his mind begins microanalyzing her; Catriona has never sought him out before so this must mean there's something to report, or so he'll assume for now.
 
 "I was sleeping." He tells her, plainly, "Are you okay?"
 
@@ -642,43 +644,61 @@ She presses a finger into his chest and shoves hard, "Am I okay? Are you okay? Y
 
 Dain scratches at his beard, "Just sleeping."
 
-"And have you spoken to Violet?"
+"And have you spoken to Violet?" her question spills out of her mouth venomously, perhaps irritated that she's got to speak to him at all,
 
-"No, do you—" he yawns, eyes watering, his jaw cracking sickeningly, "Can you just come in or something; my hip is killing me."
+"No, do you—" he yawns, eyes watering and his jaw cracking sickeningly, "Can you just come in or something; my hip is killing me."
 
-He leaves it at that, and saunters back to his bed hoping she shuts the door if she decides not to come in. He hears it click after the hinges squeak as he carefully lowers himself back onto his matress,
+Dain leaves it at that, saunters back to his bed hoping she shuts the door if she decides not to come in. He hears it click after the hinges squeak as he carefully lowers himself back onto his matress,
 
-"Aetos that looks *really* bad."
+"Aetos, that looks *really* bad."
 
-He's sure she's talking about his hip. After his shower he'd notiecd the bruising stretched far across his abdoman and against his navel.
+He's sure she's talking about his hip. After his shower he'd notiecd the bruising had stretched much further across his abdoman and against his navel.
 
 "Probably is." Dain mutters, sneaking a glance at her.
 
-Theres a small table by the armoire shoved into the corner of his room and Catriona sits at on one of the chairs occupying it's thick edges. She doesn't look any better herself, hair straying wildly from it's thick braid, her uniform tattered, boots busted. Dain brings the magelights suspeded from his cieling to life, allowing his eyes to adjust to amberlight as it slowly fills the room.
+Theres a small table by the armoire shoved into the corner of his room and Catriona sits at on one of the chairs occupying it's thick edges. She doesn't look any better herself, hair straying wildly from it's thick braid, her uniform tattered, boots busted. Dain brings the magelights suspended from his cieling to life, allowing his eyes to adjust to amberlight as it slowly fills the room.
 
-He looks down at where his hip disappears behind the the thick fabric of his night pants and lets out a hiss; the skin has mottled past purple into a sick reddish brown where the blood has begun to blister underneath the bone. In the morning he might not be changing into his uniform to get to Brennan.
+He looks down at where his hip disappears behind the the thick fabric of his night pants and lets out a hiss; the skin has mottled past black and purple into a sick reddish brown where the blood has begun to blister underneath the bone. He might not be changing into his uniform to get to Brennan.
 
 "Look at your shoulder too while you're at it. It looks more busted now than it did in the Isles." she demands, "You've just been in here broken?"
 
 "Yeah."
 
-Her eyes buldge, "What the *fuck* is going on in here? Violet has been fucking missing and swept away by rank left and right, Riorson hasn't shown his face at all, and you're hiding out in your fucking room? Am I missing something?"
+Her eyes buldge, "What the *fuck* is going on in here? Violet was fucking missing and then swept away by rank left and right, Riorson hasn't shown his face at all, and you're hiding out in your fucking room? Am I missing something?"
 
-"Did you come in here looking for pointers? Because I don't have any. I know less than you and want it to stay that way."
+Dain bristles, his eyes pinballing in their sockets. He's not sure why the fuck Catriona Cordella is in here pestering him about her ex and his significant other, but it certainly wasn't something to wake him up for,
 
-"What the fuck does that mean? Since when were you okay with not trying to be in control of a situation? You're done slaving away for your first love?"
+"Did you come in here looking for pointers? Because I don't have any. I know less than you and want it to stay that way." his voice is thicker because he's recently arisen, and he clears his throat to tamper the gravelling timbre, "Go look for them yourself or let me sleep; if you haven't noticed I'm not anyone's fucking keeper."
+
+He nearly lets a bewildered laugh at the look on Catriona's as he finishes speaking. What had she expected? That he'd bark at Violet's heels for the rest of his life when doing so proved as usefull as not doing anything at all. His heart is beating loud in his ears as he waits for her response; all he can think of is snide remarks his own father had mad regarding his relationship with Violet all up until Dain couldn't hear them anymore from legions away after killing Varrish and splitting the Quadrant. That's what he was, a dog for a Sorrengail.
+
+Nothing more, and unfortunately nothing less.
+
+"What the fuck does that mean? Since when were you okay with not trying to be in control of a situation? You're done slaving away for your first love?" Catriona snaps, eyes flaring wildly.
 
 Dain shrugs, "I'm done with a lot of things, Catriona."
 
+*"Shields."*
+
+He *feels* Catriona's magic in ironic synchrony with Cath's warning of it. It attempts to wash over him as he sits there nearly disabled on his bed: her answer is a prompt to sneak in her gift, she wants to rile him up. She *wants* him irate.
+
 And Violet's not even his first love, he's never had a first love. He's never *been* in love, but that's none of Catriona's fucking business.
 
-"Are you kidding me?"
+*"Control your emotions!"*
+
+Catriona twists back just enough for Dain to catch, visibly offended at rise she can't get out of him, "Are you kidding me?"
 
 "No," he sits up, wincing, "I'm tired of pissing into the wind. Feel free to take my place though," he points then, to his door and unsurprisingly the flier shoots up from his table,
 
+"Go play mind games with somneone more willing."
+
 "*Now* is not the time to be feeling sorry for yourself, Aetos." Catriona's voice harpoons through him, curt and serrated to kill, "You're leadership for a fucking reason, act like it!"
 
-She doesn't wait to recieve his anger as his fury surmounts, peaking to a nasty head that leaves his grunting as he pulls himself up off the bed and his door slams shut behind her. He grits his teeth, absorbing the pain that permeates through his flesh as he takes the chair she'd been sitting in and readies himself to toss it right at the door she'd walked through.
+"Rich coming from a conniving outsider who won't even say what the fuck they actually want." he sneers, "Why not try using your words to win favor or an arguement for once Catriona? I don't always fucking bite you know."
+
+Her eyes slip into slivers full of unfettered vitrol, "At least you're aware of what we both are. Who knows what the fuck you've actually been up to."
+
+She doesn't wait to recieve his anger as his fury surmounts, peaking to a nasty head that leaves him grunting as he pulls himself up off the bed and his door slams shut behind her. He knows the effects of her gift make it through his barricades of magic and Dain lets it; he's upset influenced artifically or not. Dain grits his teeth, absorbing the pain that permeates through his flesh and he takes the chair she'd been sitting in and readies himself to toss it right at the door she'd walked through.
 
 Damned if he does, Dain thinks, damned if he doesn't, damned here, and there, damned to be rested and damned to be exahusted. What's the fucking point and is it relevant to him living?
 
@@ -703,8 +723,6 @@ Their bond stretches, exapnding two-fold in Dain's mind, and he curls into himse
 Dain's eyes narrow.
 
 His mind snaps back to Catriona's statement about Violet missing and Riorson failing to have shown face, *still.* Cath is right, it's obviously something he should look into, if not for those personally conerned than for himself and Cath.
-
-Maybe, someone might need him.
 
 ---
 
@@ -925,4 +943,98 @@ He lets it go, realizing his body is becoming much lighter to exist in, "I'm goi
 "Yes sir."
 
 ---
+
+In his room Dain retrieves a leatherbound notebook he's had for years but never once written in. The sight of it evokes a motely of emotions within him, but he convinces himself he doesn't have the time to address them. The notebook sits in a small box only a few inches larger than the notebook itself, full of the hastily unwrapped cloth that had been previously wrapped around the notebook. It's been minutes, and Cath abandons his characteristic observancy to ask a question.
+
+*"What does it contain?"*
+
+Dain blinks, responding immediately, "Just paper."
+
+*"No silly human story?"*
+
+"No," he bites his bottom lip and can't really feel it there, "I think I'm meant to write my own with it."
+
+*"And so this is what you will do now? Write fictitious stories?"*
+
+Dain chuckles, "No... I was thinking maybe I'd start taking some notes."
+
+*"Notes regarding what Hatchling; there is no class to observe."*
+
+"No there isn't. But there are people all around us; different characters with their own intentions."
+
+*"Yes."*
+
+"My mom left this for me. Dad was never going to give it to me."
+
+Dain picks up the notebook, it's soft, with no patenaing on the tri-fold cover itself. Inside, as he opens it, there's a single sentence:
+
+*For Love.*
+
+He snorts. He's sure she probably meant well, writing this, but Dain had finally opened this box hoping for some kind of philosophical pointer. Something to trigger a sort of epiphany, anything to remove him from the mental prison he kept finding himself in. Love is something alien to him, entirely void of presence in his life now and even before Basgaith.
+
+Except well, maybe with Cath.
+
+*"What will you write?"*
+
+Yeah. Except Cath.
+
+*"Do you think the 'For Love' means for me, or 'for love?'"*
+
+*"I think it reads 'For Love.' Hatchling you read what was written, did you not?"*
+
+Dain rolls his eyes, and it makes him teeter a bit, *"No; I know what I read, it says: 'For Love,' but am I love? Am I her love or does she mean 'this notebook is for love?'"*
+
+Cath thinks for a moment, then grunts.
+
+*"Are you doing this on purpose?"*
+
+Dain picks up the notebook and toddles over to his mattress with it; it's an oddly heavy thing for being just nearly the sie of his hand. He drops onto the cushy surface of his bed, toeing off his boots while he can still remember to, and then slides under the covers, *"A little bit, yeah."*
+
+*"Stop."*
+
+*"Okay, sorry."*
+
+*"I do not know of your mother."*
+
+Dain lets loose a gust of air.
+
+"She was really quiet, shy probably. Loved the idea of dragons, think that's why she got on with my Dad initially."
+
+*"Yes, well, few and far inbetween bests a dragon."*
+
+"Oh yes, woe is anything not a magical beast." Dain yawns, waving a hand pitifully beneath the sheet.
+
+*"Truly."* Cath responds, damn narcissist, *"Your mother was not a rider."*
+
+Dain's eyelids begin to fall, drooping as he slips further into comfort and peace, *"You know?"*
+
+He's not sure what the communication is like between dragons, and he's sure not all dragons know the other simply *because* they're dragons, because that would be a ridiculous thing to assume, but maybe he's wrong. Maybe there was a dragon that she rode and spoke to.
+
+*"I know many, but she is not one who has ever been associated with another who accepts bonds."*
+
+Dain's jaw goes blissfully slack; he's forced to speak with Cath in the bond, soaking into the magical space there, 
+
+*"Dad said they didn't see eye-to-eye about some foundational things, so she dismissed herself."*
+
+*"If you're father told me it were daytime, I would look into the sky and surely see the moon, Hatchling."*
+
+*"You know, I didn't really believe him either."*
+
+*"You shouldn't believe anything he says."* A burning magic pings at Dain's ears, rustling him mentally, *"Stay awake, your food is coming."*
+
+*"Because he's evil."*
+
+Cath's voice is low and gentle, *"Because he treats you poorly, before anything else."*
+
+Dain sputters a weak giggle, eyes flickering open at Cath's words. He's surely the only being in all of the Continent that believes Dain should be treated any differently than he is. He wonders exacly *how* a father should treat their son, is there a correct way, if dragons rear their hatchlings themselves or if they're meant to fend for themselves upon arrival.
+
+His relationship with his father were more like superior and suboordinate, or staff and owner; high expectations and usual disappointment because nothing was ever good enough and he'd hoped for so much more when Dain had bonded with Cath. Probably a fire-wielder or something great like Riorson, maybe the sun instead of shadows.
+
+Cath would be a great uncle, probably, he can't really picture him as a father, though he's around the age that a dragon might consider a mate,
+
+*"Mind your own Hatchling. You haven't had a mate in years."*
+
+*"Because I have no chance and two hands."*
+
+Cath shields haphazardly, *"Tell someone else."*
 
