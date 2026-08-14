@@ -12,9 +12,7 @@ His mind drifts to his watchbills, those fit for duty are already rotating at di
 
 Maybe she'll consider forgiving him for it.
 
-He fiddles with the headcount papers distributed to each Wingleader on behalf of Brennan and his healers, folded neatly in his uniform pocket. There's a small note from Brennan himself: *I've got Vi,* folded over the report itself.
-
-One less thing to worry about. Fine.
+He fiddles with the headcount papers distributed to each Wingleader on behalf of Brennan and his healers, folded neatly in his uniform pocket, pressing his thumb into it's corners while he manages his own thoughts.
 
 Tyrrish wards have been extended, Dain's sure, based on the change in continuity of the magic alone. The very last of the Cygnisen fliers have been absorbed into their Wings, sections, and squads. He grinds his teeth while considering all of the cadets' names he adds to his Wing while mourning those he's confirmed on the death roll. There are some here in the theatre receiving treatment, some who will be down for the count until they're fully recovered, some who won't make it considering the amount of blood on their seats and the floor beneath them. His mind jerks to Brennan, face taut and concerned in Riorson House medical quarter, waving at Dain to guide his mortally wounded to trauma bays.
 
@@ -522,15 +520,13 @@ Dain's poised stance nearly falters, *"Fuck off."*
 
 —and she likes banter, lives for it, *thrives* underneath his skin. She isn't at all like her brother and he can't bear the risk of seeing Liam in her unless absolutely necessary. Especially knowing he'd just narrowly missed Sloane flying into the fray back in Draithus.
 
-"Alright." He responds, evenly, instead, then tempers his shields by overloading them with his magic; he doesn't want to see the man he's killed, not even in her memories.
-
-He doesn't see Aaric there with them. Makes note of that.
+"Alright." He responds, entirely stoic, then primes his shields by overloading them with his magic; he doesn't want to see the man he's killed, not even in her memories. He also doesn't see Aaric there with them and makes note of that.
 
 "She wanted to let you know she'll be with the Assembly until further notice." Matthias announces, shifting her weight when Sawyer moves to awkwardly lean on her,
 
 Dain nods and makes eye contact with Matthias, "Right."
 
-"You didn't go see the mender yet?"
+"Don't you think you should go see the mender?"
 
 Dain and Second Squad's heads twist up to follow Darius's booming voice. Dain finds an accusatory finger pointed in his direction, "You were gone for four whole hours and you didn't go get yourself looked at? You have a bum shoulder and," Darius tuts, "a nearly dislocated hip. You got a thing for pain?"
 
@@ -538,7 +534,7 @@ Chuckling, Dain responds with a nonchalant shrug, "I told you I was just going t
 
 Darius begins making his way down the seats towards Dain,
 
-"Yeah I was thinking it could fix you."
+"Yeah I was thinking it could fix you, and it didn't, and no ointment I have will heal that hip."
 
 *"There is no fixing him."* Cath snaps, back for commentary yet again.
 
@@ -826,9 +822,9 @@ The pain soars through Dain this time. Radiating pain through every cell in his 
 
 "I—"
 
-"You know it's almost entirely out of the socket? You're lucky you're as lean as you are. You need to eat more also, now that I'm looking at you."
+"You know it's mostly unaligned with the socket, right? You're lucky you're as lean as you are. You need to eat more also, now that I'm looking at you."
 
-*"You still have not eaten since your return. Four hour descent to Draithus, a five hour battle, two hours of reconnaissance, one hour of organizing thereafter, and a five hour ascent back to this fortress. Ten hours since our return. Not once have you eaten. You have only whined. "*
+*"You still have not eaten since your return. Four hour descent to Draithus, a five hour battle there, two hours of reconnaissance, one hour of organizing thereafter, and a five hour ascent back to this fortress. Ten hours, and some, since our return. Not once have you eaten. You have only whined. "*
 
 "It was not just whining! I almost lost you, I was scared! I watched you fighting for both of us and I could do fuckall to help you! I—" Dain sputters, knees bending and straightening out when his hip slides back into place with a sick *thock,* and the rest of Dain's argument dies in his throat.
 
@@ -846,15 +842,21 @@ Cath releases an unimpressed grunt of approval into the bond and says nothing mo
 
 "Once you're ready" is a solid half-hour later.
 
-Dain lifts off the floor in a hazed, half-lidded movement that nearly knocks over the glass of water, seeing it reminds him that he needs to take the numbing agent; he does so, quickly and desperately. The bitterness of it is overwhelming and Dain's eyes seal shut as the liquid spreads across his tongue. The water is next, but it doesn't do much to provide refuge from the taste,
+Dain lifts off the floor in a hazed, half-lidded movement that nearly knocks over the glass of water, seeing it reminds him that he needs to take the numbing agent; he does so, quickly and desperately. The bitterness of it is overwhelming and Dain's eyes seal shut as the liquid spreads across his tongue. The water is next, but it doesn't do much to provide refuge from the taste.
+
+The stratification of his thoughts consolidate into proper streams on consciousness as Dain comes too thanks to the bile lurking on his tastebuds. His eyes bug about behind his lids and he takes a clammy hand from where it rests in his lap, rubbing his face,
+
+"Gross." He gags out, stroking his tongue at his teeth; hoping to scratch the aftertaste away.
 
 "That bad?"
+
+*Her* voice is absolutely unmistakable to catalog against any other Dain's ever heard in his life; he hears it and is immediately attached to trees, thrown into lakes, and his emotions are just as suddenly displaced as he reminds himself that those times have not only ended, they've been banished.
 
 *Violet.*
 
 Dain's head whips far to the right, "Vi."
 
-She's seated comfortably in the arm chair to the right of Brennan's desk, who Dain notes is nowhere to be seen, though she seems uninjured, something about the way she's looking at him is unsettling.
+She's seated comfortably in the arm chair to the right of Brennan's desk, who Dain notes is nowhere to be seen, though she seems uninjured, something about the way she's looking at him is unsettling. Her eyes look reddish, and she possesses the same purpling skin beneath them as he does. She's really tired, so much so she can't hide it, or is ravaged enough that her usual stiff-demeanored guard has holes in it. 
 
 "Catriona said you were missing."
 
@@ -876,23 +878,43 @@ Dain scratches the inside of his palms, "Ask what, exactly?"
 
 *"Working on it."*
 
+He indexes all of it.
+
+Brennan not being in the room, that could be the result of absolutely anything, but Violet here in her seat after sending her Squad to deliver a message to him, and Catriona reporting her and Riorson missing shortly after?
+
+There's *clearly* something amiss and Dain can tell there are few in understanding of it all, if any. He let's his shields drop momentarily, breaking a personal rule, and allows her rememberances memories to sink into the thresholds of his signet. It's instantaneous, recieving what's making her so melancholy, and he winces a bit at the impact of it.
+
+Riorson.
+
+That's it.
+
+*Xaden,* *Xaden,* *Xaden:* she pictures Riorson just before Draithus. His concerned face, his fleeting smile, their smoldering kiss. Onyx eyes glittering a foot above her with marigold flecks, deeping to an amber as they turn to face her. His rough hands sinking into her waist, and his bearded cheeks scratching the sides of her neck.
+
+Dain rips his vision away from the space Violet occupies and freezes because these are not memories carried by an individual planning on seeing a person shortly thereafter. Violet is actively reminiscing as if she's in mourning or worse and Dain tempers his shields alongside Cath's emotions now cindering in their bond,
+
+*"Be still,"* his dragon warns, *"remembering utilizing your power in such a way is still new."* Dain sucks in a clipped breath through grit teeth, staving off the pains of ransacking through his magic so suddenly in a display that makes him seem like he's simply recovering from his bodily injuries still.
+
+He apologizes to Amari as he has recently when pilfering somewhere he doesn't belong, and then to Loial, because this is *Violet* and he shouldn't be intruding in a person who he adores' mind.
+
 Violet shuffles in the armchair. She's so tiny she fits in the cushion even with her knees pressed against her chest, "Where he's at, Dain."
 
-"I'm confused. Is he somewhere he shouldn't be?"
+"I'm confused. Is he somewhere he shouldn't be?" Dain responds, because based on Violet's memories it certainly seems like he's somewhere he isn't returning from,
 
-"Where exactly have *you* been?" She deflects, and not smoothly, Dain notes that.
+"Where exactly have you been?" She deflects, and not smoothly, Dain notes that.
 
-"Draithus, then here, Wingleader things, and sleeping when I can."
+He answers her only with hs truths because that's all he's ever given Violet, "Draithus, then here, leadership responsibilities, Cath's den, and sleeping when and where I can." 
 
-She nods, "What happened to you to land you in here?"
+She nods after a while, "What happened to you to land you in here?"
 
-"Killed a wyvern that dropped onto us, dislocated my hip. Almost. I've just been limping around. I'm glad you're okay."
+"Killed a wyvern that dropped onto us while airborne, dislocated my hip. Almost. I've just been limping around. I'm glad you're okay."
 
-He gets a smile from her for that, but it doesn't reach her eyes.
+He gets a smile from her for that, but it doesn't reach her eyes. He doesn't expect it to.
 
 "Thanks, Brennan was one of the first I saw." she presses her forehead into her knees, "We'll need to talk at some point, properly, but I have a feeling now isn't a good time."
 
-There's a lot of things Dain could say.
+There's many things to consider with what he's peaked at, but he washes it down and away; it's not his place, and it won't ever be. Inwardly, in hindsight, he kicks himself in the teeth, already regretting activating his signet at all.
+
+And, there's a lot of things Dain could say.
 
 *No, I always have time for you.*
 
