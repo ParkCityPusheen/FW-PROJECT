@@ -7,6 +7,7 @@ A tumultuous love story centered on rider/dragon intimacy (Dain & Cath), with a 
 - Rider/dragon relations as the emotional engine (especially Dain/Cath)
 - Mental health across quadrants; the weight of expectation from peers and superiors
 - Usefulness, powerlessness, and the search for other paths (runes / study / flier-adjacent alliances)
+- Where Dain fits when the Wingleader body is not enough: healer orbit, awkward agreeance with fliers (especially Poromiel immigrants), civilian labor as chosen usefulness
 - Facing harm done before repair is earned
 - Slow-burn attachment that becomes impossible to dismiss
 
@@ -31,9 +32,16 @@ A tumultuous love story centered on rider/dragon intimacy (Dain & Cath), with a 
 - First: Dain pulls away almost entirely
 - Much later: drifts back into proximity/repair because of Riorson (tracking / aftermath), not because he forces a reunion early
 
+### Dain & Catriona (unlikely friendship)
+- Ch 1 starts hostile: she wants him irate; he calls her a conniving outsider; leadership lecture vs withdrawal. Friendship is not prewritten from that scene.
+- Spark (Phase B hinge / Ch 2 candidate): Dain and Cath volunteer with flier groups to organize and relocate Poromiel immigrants. Fliers instantly appreciate his concern; equally wonder why he chooses the gryphon-bonded and their people over his own. His honest answers to that question prompt the friendship.
+- Unlikeliness is the point. Spark in the volunteer work; deepen across Phase B. Do not rush warmth.
+- Marin and other flier-adjacent closeness can follow this door; Cat is the first unlikely one.
+
 ### Dain & Rider counterparts (Cat, Marin, etc.)
 - As Dain looks for paths that make him deadly/useful, he grows close to Cat, Marin, and other rider/flier-adjacent figures
 - Runes + Sloane’s knowledge/study become a concrete outlet for that hunger
+- Healer orbit (Darius, Kaia, medical labor) is a parallel search for fit: care work that is not command
 
 ## Cast (priority)
 Primary: Dain, Cath, Sloane, Aaric (+ their dragons)
@@ -90,6 +98,11 @@ Living doc. Track anyone who speaks on-page. Update appearances only from text (
 - **Synopsis:** Banter predator; sneers at Dain’s refusal to “hear” Violet’s message. Dain finds her too easy on his eyes, won’t look (Liam / Draithus / memory risk); overloads shields against her memories. Cath needles him (*easy one*). Exit: asks Darius if he and Dain are friends; Darius: “Why? You jealous?” Seeds curiosity against her will.
 - **Appearance (on-page):** Peeks from behind Ridoc; sneer; Dain-coded as visually striking (“too easy on his eyes”). **Canon baseline:** rebellion relic / Marked; otherwise per Fourth Wing unless contradicted.
 
+### Catriona Cordella
+- **Role:** Canon; flier; Poromish; major recurring; unlikely friendship (Phase B)
+- **Synopsis:** Ch 1: seeks Dain out in his room; wants him irate (gift wash); leadership lecture vs his withdrawal; he calls her a conniving outsider. Friendship does not start here. Later spark: volunteer/immigrant labor with Dain and Cath; fliers appreciate his concern and question why he chooses them; honest answers prompt unlikely friendship.
+- **Appearance (on-page):** Inky hair (thick braid, straying after battle); shining brown eyes; tattered uniform; busted boots. **Canon baseline:** otherwise per Fourth Wing / Iron Flame / Onyx Storm unless contradicted.
+
 ### Mentioned / message-only (no direct spoken dialogue yet in Ch 1)
 - **Violet Sorrengail:** Assembly; message via Matthias; orbit of trust Dain envies and withdraws from. Note from Brennan: *I've got Vi.*
 - **Brennan Sorrengail:** Medical / mender path; note on muster papers; Dain limps toward his office at segment end.
@@ -108,6 +121,56 @@ Living doc. Track anyone who speaks on-page. Update appearances only from text (
 
 ## Desired End Feeling (whole fic / long game)
 Dain liberated and appreciated; mutual budding first-love with Sloane secured as real, not hypothetical.
+
+---
+
+# Post-Draithus Academic Schedule (on-page)
+Source: Ch 2 valley announcement (Trissa, then Devera). Update only from text. Do not invent later weeks.
+
+## College status
+- Regular academic calendar is paused until more stable grounds are established.
+- Order is kept by a skeleton of classes and assignments, not a full year.
+
+## Skeleton / supplementary courses (as of today)
+- Weapons training
+- Flight lessons and tactics
+- Rune weaving
+
+Professors will be in one of three places: the theatre, teaching one of those courses, or the office directly across from the Mess Hall. Chain of command stays in force as usual.
+
+Wingleaders receive cloned scrolls: skeleton class schedule plus the other mentioned tasking.
+
+## Four-week overlay
+- Next four weeks: sections from each Wing rotate between Basgiath and Aretia.
+- Beginning of each week: tasks and schedules are given out.
+- Compliance is as per General Aetos.
+- Wingleaders assign the aforementioned tasks thereafter.
+- Wingleaders should observe their Wings at the best of their ability, and preserve regular order by whatever means they deem necessary.
+
+## This week (week one of four)
+- First Wing and Third Wing fly back to Basgiath if they are in good enough health.
+- Second Wing and Fourth Wing remain in Aretia.
+- Aretia labor for the staying Wings: help Riorson House staff; help nearby farmers.
+- Handfuls pulled away, squads at a time, to collect medicinal herbs and aid medical units.
+
+## Dain / Fourth Wing (on top of the overlay)
+He assigns Fourth’s House / farm / herb / medical split.
+He still assigns patrols and watches.
+He still collects and reviews Squad and Section Leader reports on finished tasks, then procures his own.
+He is expected to observe the Wing and keep order by his own means.
+The pause did not pause him. It handed him the duty roster. (On-page: he almost groans; Cath: *It could be.*)
+
+## Not yet on the page
+- Weeks two through four: destinations not broken out. A later swap would make sense; do not lock it until written.
+- No daily clock (when classes sit against labor, patrols, and reports).
+- No rule yet for wounded First/Third riders who cannot fly to Basgiath.
+- No list of which Fourth Wing squads go where. That is now Dain’s job.
+
+## Plot uses (do not treat as extra canon)
+- Runes are an official supplementary course with a known professor location. Door is open; Dain does not have to walk through it today.
+- Healer orbit and civilian labor are both inside Fourth’s week-one tasking. He can send people, go himself, or split it.
+- *Whatever means you deem necessary* is the gap between old Dain (do it all) and the Dain who wanted to dial it down.
+- The father is in the header of every weekly schedule. Dain still writes the assignments underneath it.
 
 ---
 
@@ -140,21 +203,31 @@ Possible beats:
 5. **IN DRAFT (Ch 1):** Theatre return / Royce / missing Second Squad / reassigning posts — loneliness-as-function (surrounded + working + still alone inside the role); seed of wanting more than leadership bodyhood (belonging/agency, not really about Violet); Cath clocks BIG FEELINGS and can only watch/stamp, just a dragon with no path to offer
 6. Cath’s fear readable as bond pressure (return / stay / stop) without confession
 7. Conscious distancing from Violet’s orbit; father/disownment as future-trap (seed ok; full scene can wait)
+8. **Already on page (Ch 1):** Aretia population pressure; refugees / townsfolk / immigrants; Dain wondering how administration will handle the inflation of bodies. Gryphon/Krovlish pull vs father’s discipline. Payoff is Phase B volunteer/fit-search, not here.
+9. **Hinge out (Ch 2 candidate):** healer draw and immigrant labor as first chosen usefulness. Still Aftermath emotionally; do not treat the choice as a cure.
 
-**Emotional result:** Stage set. Dain is deteriorating in plain sight. Cath is already terrified and already refusing to advise. Nothing is fixed.
+**Emotional result:** Stage set. Dain is deteriorating in plain sight. Cath is already terrified and already refusing to advise. Nothing is fixed. Hunger for a fit is staged, not answered.
 
 ## Phase B — Other Paths / Usefulness
 **Job:** Give Dain a forward motion that isn’t “be like Xaden/Violet.” Channel the hunger to be deadly/useful into study and new alliances. That hunger is already seeded in Phase A/Ch 1 as loneliness inside leadership: he is a body with a title, and he starts wanting more than that.
 
+**Hinge from Phase A:** the Ch 1 hunger first *acts* here as Dain figuring out where he wants to fit himself. Not a personality transplant. A search. Volunteer/fit-search does not cure the spiral; usefulness is motion, not a fix.
+
 Possible beats:
 1. Signet inadequacy as recurring bruise (strategic, not combative; shields/memories as burden)
-2. Curiosity → commitment to runes; Sloane as access point / reluctant teacher / antagonistic collaborator
-3. Growing closeness with Cat and Marin (shared outsider/usefulness language; rider-counterpart camaraderie)
-4. Aaric as a steadier peer presence (contrast to Dain’s isolation; dragon-bond parallels as desired)
-5. Quadrant mental-health texture: exhaustion, expectation, leadership performance, quiet breakdowns in other colors/sections (not only Dain’s POV monologue)
-6. Cath watches the Sloane gravity form before Dain admits it; sardonic observation (not life-counsel) helps Dain name what he already feels
+2. Drawn to healers (Darius/Kaia already seeded). Care work as a place he might belong that is not command. Awkward, not a career announcement.
+3. Awkward agreeance with fliers, particularly regarding the influx of immigrants from Poromiel. Population pressure already seeded in Ch 1 (refugees, Tyrrish townsfolk, immigrants; Dain wondering how administration will handle the inflation of bodies). He does not become Poromish. He finds himself unable to disagree with some of what they raise.
+4. Volunteer beat (Ch 2 candidate): Dain and Cath help organize and relocate those immigrants alongside groups of fliers.
+   - Fliers instantly appreciate his concern; equally wonder why he chooses the gryphon-bonded and their people over his own
+   - His honest answers to those questions prompt an unlikely friendship with Catriona (spark, not completion)
+   - Cath is present as volunteer, not counselor. Containment/presence. A Red among gryphon-bonded is a statement Dain will feel. Do not have Cath advise him into this path.
+5. Growing closeness with Cat (from that spark) and later Marin (shared outsider/usefulness language; rider-counterpart camaraderie)
+6. Curiosity → commitment to runes; Sloane as access point / reluctant teacher / antagonistic collaborator
+7. Aaric as a steadier peer presence (contrast to Dain’s isolation; dragon-bond parallels as desired)
+8. Quadrant mental-health texture: exhaustion, expectation, leadership performance, quiet breakdowns in other colors/sections (not only Dain’s POV monologue)
+9. Cath watches the Sloane gravity form before Dain admits it; sardonic observation (not life-counsel) helps Dain name what he already feels
 
-**Emotional result:** Dain has a path that feels like power and purpose without requiring everyone else’s forgiveness first.
+**Emotional result:** Dain has a path that feels like power and purpose without requiring everyone else’s forgiveness first. First unlikely alliance (Cat) is opened; healer/flier fit is being tested, not declared.
 
 ## Phase C — Facing the Mistakes
 **Job:** Force reckoning before redemption. Characters may begin to see more in him only after he stops dodging what he did.
@@ -193,6 +266,11 @@ Possible beats (placeholder-level only):
 - [ ] How much of Cath’s prior-rider truth leaks in Arc 1 vs later (hints only in Ch 1)
 - [ ] Audit existing Ch 1 Cath lines for accidental “advice” that should become containment/deflection instead
 - [ ] Title once themes are proven on-page
+- [ ] Ch 2 load: volunteer day in this chapter vs split (healer/influx notice now; relocate with fliers next)
+- [ ] What Dain’s honest answers actually are (source from Ch 1 interior: wanting more than the role; gryphons/Krovlish pull; uselessness; not belonging in father-world or Violet’s orbit). Do not invent a political conversion.
+- [ ] Who asks “why them?” (Cat as weapon, other fliers, both)
+- [ ] What “Cath volunteers” looks like on-page without turning him into a counselor
+- [ ] How healer-draw and immigrant labor relate: same day’s work, sequential experiments, or parallel hungers
 
 ---
 
@@ -221,8 +299,22 @@ Needs: a close that stays inside Dain’s head + Cath’s bond pressure; any hum
 
 **Revision note:** Audit Cath lines that lean advisory; reframe as containment where needed.
 
-### Ch 2+ 
-TBD after Ch 1’s landing is chosen
+### Ch 2 — Working title TBD
+Status: opening drafted (Riorson House / breakfast / Cath / Darius looking for him / Little Lioness)
+**Chapter job (proposed):** Dain begins looking for where he fits. Healer draw + awkward flier agreeance on the Poromiel immigrant influx. He and Cath volunteer to organize and relocate those immigrants alongside fliers. Appreciation + “why them, not your own?” His honest answers spark an unlikely friendship with Catriona (spark, not completion).
+
+**On-ramp already on page:** Darius looking for him (healer orbit); Cath present and containing; Sloane/Little Lioness texture continuing from Ch 1. Valley announcement + Wingleader scrolls: see **Post-Draithus Academic Schedule**. Do not let Sloane romance gravity take the chapter.
+
+**Keep from Phase A:** he can still be deteriorating while useful. Choosing immigrant labor is the first *chosen* usefulness after Ch 1’s leadership-body loneliness. It does not solve him.
+
+**Pacing rule:** If volunteer day + Cat spark + healer draw crowds the page, split: Ch 2 notices healers/influx and chooses the work; the relocate-with-fliers day can be the next installment. Friendship is prompted here, not finished.
+
+**Defer:** runes path, Sloane romance gravity, Violet repair, father as full scene, Riorson, Marin if she crowds Cat’s door.
+
+**Needs:** honest answers that come from Ch 1 interior (not a manifesto); fliers who appreciate and also doubt; Cat still herself (hostile residue from Ch 1 is allowed in the room)
+
+### Ch 3+
+TBD after Ch 2’s landing is chosen
 
 ---
 
@@ -237,3 +329,6 @@ TBD after Ch 1’s landing is chosen
 - Ch 1 is deterioration + Cath bond only; the rest of the board is multi-chapter
 - **Dain wanting more than “just a leadership body”** is seeded in Ch 1 loneliness (theatre/Royce/missing Second Squad). Not empty-room loneliness: surrounded, working, still alone inside the role. Violet fantasy = belonging/agency. Big deal. Grow him from that hunger across Arc 1; do not resolve the want in the seed scene
 - **Cath on that seed:** clocks BIG FEELINGS; cannot help; only watches; stamp instead of aid; only just a dragon in that moment (no Cath POV)
+- **Fit-search (healers / fliers / immigrant labor):** first chosen usefulness after Ch 1 loneliness. Motion, not cure. He is drawn to healers and awkwardly agrees with some flier points on Poromiel immigrants; he is not defecting and not announcing a new identity
+- **Cat friendship** is unlikely and earned from honest answers during immigrant/flier volunteer work, not from her warming first. Ch 1 hostility is the starting temperature. Spark, then deepen; do not complete in one chapter
+- **Cath on the volunteer beat:** present, not counselor. Do not advise Dain into choosing the gryphon-bonded

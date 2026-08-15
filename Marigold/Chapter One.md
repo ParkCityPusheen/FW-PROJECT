@@ -746,11 +746,11 @@ Dain looks down at the brunette, "I do."
 
 Dain's brows pinch together, "He didn't need to do that."
 
-"I'm sure there'll be more for you after this, so don't mention it. Darius says you remind him of someone." she kicks her heel against the stone floors and peers up at Dain through her eyelashes, "And... I think that person might've been important to him. Just accept it, you guys are very alike."
+"I'm sure there'll be more for you after this, so don't mention it. Darius says you remind him of someone, anyways." she kicks her heel against the stone floors and peers up at Dain through her eyelashes,
 
 "But we don't even know each other."
 
-"No." Kaia begins to exit the small foyer, "*Everyone* knows about you, Dain."
+"No." Kaia begins to exit the small foyer, speaking with her back turned away from him, "*Everyone* knows about you, Dain."
 
 Cath's curiosity collides with Dain's in the bond, but his Red says nothing of it as his rider pulls at the ornate handle of Brennan's office. He shuts the door carefully behind himself after he shuffles in while remembering he's in his sleeping clothes, it's awkward to be in front of a superior in casual clothes, knowing them personally or not.
 
