@@ -3,6 +3,9 @@
 ## North Star
 A tumultuous love story centered on rider/dragon intimacy (Dain & Cath), with a slow-burn Dain/Sloane romance. Dain must face his mistakes before others are allowed to see him as more than them. Liberation and mutual first-love are the emotional destination of the longer work; Arc 1 ends closer to graduation with that future opened, not finished.
 
+## Thematic Axis (Love / Life against War / Death)
+Metaphor only. The gods are real in-world; the riders are not them and will not become them. Couples as mirror images: opposite, but the same. Violet/Xaden ~ war + death (destructive power embraced as a tool for good). Dain/Sloane ~ love + life (siphon feared as killing, shown as saving). This fic lives on the Love/Life side. Dain’s caregiving and Sloane’s terror of hurting people are the counter-force, not a softer subplot. Family / Loysam lore later; do not invent. Full working note: `Marigold Theory Incorperation Guide.md`.
+
 ## What This Fic Is About
 - Rider/dragon relations as the emotional engine (especially Dain/Cath)
 - Mental health across quadrants; the weight of expectation from peers and superiors
@@ -332,3 +335,4 @@ TBD after Ch 2’s landing is chosen
 - **Fit-search (healers / fliers / immigrant labor):** first chosen usefulness after Ch 1 loneliness. Motion, not cure. He is drawn to healers and awkwardly agrees with some flier points on Poromiel immigrants; he is not defecting and not announcing a new identity
 - **Cat friendship** is unlikely and earned from honest answers during immigrant/flier volunteer work, not from her warming first. Ch 1 hostility is the starting temperature. Spark, then deepen; do not complete in one chapter
 - **Cath on the volunteer beat:** present, not counselor. Do not advise Dain into choosing the gryphon-bonded
+- **Couple mirror:** Violet/Xaden ~ war/death; Dain/Sloane ~ love/life. Metaphor only. Gods are in-world; riders stay human and do not become them. Same mechanism (help the other see feared power as protection). Family/Loysam blank until built.
