@@ -1,0 +1,14 @@
+---
+description: Do not use the Empyrean canon vault skill unless the user explicitly asks
+alwaysApply: true
+---
+
+# Empyrean Canon Skill: Opt-In Only
+
+Do not use the Empyrean canon vault skill (`empyrean-cannon`, `empyrean-canon`, or `/empyrean-cannon`) unless the user explicitly requests it.
+
+Explicit request means they attach the skill, invoke it by name, or clearly ask to look something up in the Empyrean vault.
+
+Do not open `Empyrean/Agent.md`, `Atlas.md`, or vault notes as a first move on ordinary writing, review, coaching, or "what do you think" turns.
+
+If a canon fact is needed and they have not asked for a vault lookup, answer from the conversation and the fic files, or ask whether they want a vault check. Do not start the lookup on your own.
