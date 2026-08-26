@@ -382,7 +382,7 @@ Once safely suspended above the den, Dain relaxes into himself. He pulls his fli
 
 It's obvious discernment that he can't run away from his duties; he's not some child willing to avoid obligation he requested for himself, but he can dial it down. With graduation just around the corner now is a good time to prep for a proper turnover, and said turnover would be easy if the last half of his time at Basgiath hadn't been an actual warzone.
 
-Cianna, previously his executive officer, he'd whisked away to Bodhi. There's no second-in-command for him, no help. He does it all himself and more. He'll need write do a recommendation writeup, for a properly appointed Executive Officer, immediately if he really wants to blend into the shade.
+Cianna, previously his executive officer, he'd whisked away to Bodhi. There's no second-in-command for him, no help. He does it all himself and more. He'll need write a recommendation writeup, for a properly appointed Executive Officer, immediately if he really wants to blend into the shade.
 
 Warm winds peel through Dain's hair, combing at his scalp easily because his curls had already been pulled through flying in Draithus. He closes his eyes briefly, tutting at himself, petting along the edges of Cath's scales. He wonders why his wrong doing is all that's ever dissected in the light of day, it's bratty, he knows, but...
 
@@ -534,19 +534,32 @@ He takes a page from Cath's book and cuts the conversation short, "It's fine. Yo
 
 Sloane, peeking out from behind Ridoc sneers, "You sure you don't want to *hear* the message? So that you can actually understand it?"
 
-Dain doesn't spare her a glance. Mostly because she's too easy on his eyes—
+Dain doesn't spare her a glance. Mostly because it's easier to ignore her goading—
 
-*"You are the easy one."*
+*"Did you mean that you're easy for her?"*
 
 Dain's poised stance nearly falters, *"Fuck off."*
 
-—and she likes banter, lives for it, *thrives* underneath his skin. She isn't at all like her brother and he can't bear the risk of seeing Liam in her unless absolutely necessary. Especially knowing he'd just narrowly missed Sloane flying into the fray back in Draithus.
+——because she likes banter, lives for it, *thrives* underneath his skin. She isn't at all like her brother and he also can't bear the risk of seeing Liam in her unless absolutely necessary. Especially knowing he'd just narrowly missed Sloane flying into the fray back in Draithus. 
 
-"Alright." He responds, entirely stoic, then primes his shields by overloading them with his magic; he doesn't want to see the man he's killed, not even in her memories. He also doesn't see Aaric there with them and makes note of that.
+Not now when, lately, he's been so... irked.
+
+"Alright." He responds, entirely stoic, then primes his shields by overloading them with his magic; he doesn't want to see the man he's killed, not even in her memories.
+He also doesn't see Aaric there with them and makes note of that.
+
+*"You need more sleep."* Cath begins, pulling at Dain's thoughts, *"Your preference in receiving it only after collapsing from exhuastion is an ill-adapted habit."*
+
+*"I'm fine."*
+
+Dain's eyes slide shut momentarily and defeat escapes him in the form of a long sigh. He lets his gaze fall onto Sloane, and then over Ridoc and back to Matthais.
 
 "She wanted to let you know she'll be with the Assembly until further notice." Matthias announces, shifting her weight when Sawyer moves to awkwardly lean on her,
 
 Dain nods and makes eye contact with Matthias, "Right."
+
+Cath has busied himself first bypassing his shields, and then thumbing through Dain's thoughts. The Red is inescapable, sharp at the front of his rider's mind and not letting a single conscious thought escape his grasp,
+
+*"I'm fine Cath."*
 
 "Don't you think you should go see the mender?"
 
@@ -558,7 +571,7 @@ Darius begins making his way down the seats towards Dain,
 
 "Yeah I was thinking it could fix you, and it didn't, and no ointment I have will heal that hip."
 
-*"There is no fixing him."* Cath snaps, back for commentary yet again.
+*"There is no fixing him."* Cath snaps, back for commentary yet again, *"And I am not an it—"*
 
 "Nope, we just talked a bit."
 
@@ -568,7 +581,19 @@ Dain chews his bottom lip, "We took a nap."
 
 *"We did."* Cath hums.
 
-"Go."
+Darius squints at Dain; they're about the same height, but for a healer Darius is huge. There's never a reason for a healer to be as lean as he is. He stutters a bit as the subject of Darius's incredulity, looking left and right, at Second Squad to scan the faces of Lynx, Avalynn, and Baylor; all of whom he hadn't acknowledged previously.
+
+Darius interrogates, carefully, "Is it your dragon or your parent?"
+
+*"I will always remain eons better for him than that vile rodent who calls itself his father."* Cath rages, voice metallic and mystic, filled with ethereal rage that momentarily blinds Dain in the bond,
+
+"He's a really great person. Dragon. Whatever." Dain winces and grabs his forehead; his fingers graze the but across his hairline and to his left Ridoc pushes a inquisitive brow upwards. He would love to leave, he thinks, anywhere besides here, there are things to do.
+
+"Your dragon is a *great person?*" Darius repeats, voice low, level. He rubs at his chin, scratches his mustache, "You're going to infect that cut Dain, stop fucking rubbing it."
+
+"I just needed to get some sleep so that I could start plan—"
+
+"Go." The healer isn't having it and waves his palms outwards, towards the theatre.
 
 Dain blinks, "Huh?"
 
@@ -582,7 +607,11 @@ Darius narrows his eyes as he steps just before the dais, neck bent up to percei
 
 "Don't you have a second-in-command or something?"
 
-"No, I don't."
+"No, I don't." the thought hits him suddenly, "Cianna was resignated to Bohdi for—"
+
+Darius rubs a hand down his face, "Dain."
+
+"—I need to draft a recommendation writeup so that I can elect another Exec——
 
 Darius throws his hands up and swats the air, then points at the door, "Get out."
 
@@ -606,7 +635,7 @@ And, Darius responding flatly, "Why? You jealous?"
 
 Dain does not go to see Brennan, instead he takes a long, hot shower and brushes his teeth until his gums bleed. The trek from room to bathing chamber here and vice versa is eons different from what it is at Basgiath.
 
-Riorson House bears Poromish tapestries and wrought iron magelighting that are endlessly recurring, but in this war-castle made home, they warm the space in an attempt at making it more domestic. Along with dyed rugs, faded and nailed into the stone floors in certain areas, there are stands with weapons long ago decommissioned or retired down the wide hallways. Even in the shared bathing chambers there's intention and character within the architecture that Dain finds himself admiring. Runes also aren't hidden behind fixtures and faux furniture like they are at the war college either, they're carved and displayed proudly, right alongside fleeting Tyrrish decorations and rope work that Dain recognizes from the books he'd read.
+Riorson House bears Poromish tapestries and wrought iron magelit sconces that recur endlessly through this war-fortress-made-home; they warm the space in an attempt at making its demeanor more domestic. Dyed rugs, faded and nailed into the stone floors in certain areas, share the wide hallways with stands of weapons long ago decommissioned or retired. Even in the shared bathing chambers there's intention and character within the architecture that Dain finds himself admiring. Runes also aren't hidden behind fixtures and faux furniture like they are at the war college; they're carved and displayed proudly, right alongside fleeting Tyrrish decorations and rope work that Dain recognizes from the books he'd read.
 
 He momentarily recalls the nights he'd deemed pointless, spent reading about Tyrrish history and culture, nonetheless ingesting it greedily to make his father proud. Dain wonders at the irony in the refuge he's taken now, tucked away in the Aretian fortress thought to be destroyed by the likes of dragons and their riders. There's something so insanely bittersweet that he would much rather be *here* eyeballing mountain tops and cliffsides to guess which Cath will emerge from, memorizing the tunnel entrances that house his Red's kin, and looking down from his back on the hatching ground guarded as proudly and valiantly as its twin in the Vale.
 
@@ -914,7 +943,7 @@ That's it.
 
 *Xaden,* *Xaden,* *Xaden:* she pictures Riorson just before Draithus. His concerned face, his fleeting smile, their smoldering kiss. Onyx eyes glittering a foot above her with marigold flecks, deeping to an amber as they turn to face her. His rough hands sinking into her waist, and his bearded cheeks scratching the sides of her neck.
 
-Dain rips his vision away from the space Violet occupies and freezes because these are not memories carried by an individual planning on seeing a person shortly thereafter. Violet is actively reminiscing as if she's in mourning or worse and Dain tempers his shields alongside Cath's emotions now cindering in their bond,
+Dain rips his vision away from the space Violet occupies and freezes because these are not memories carried by an individual planning on seeing a person shortly thereafter. Violet is actively reminiscing as if she's in mourning or worse and Dain solidifies his shields alongside Cath's emotions now cindering in their bond,
 
 *"Be still,"* his dragon warns, *"remembering utilizing your power in such a way is still new."* Dain sucks in a clipped breath through grit teeth, staving off the pains of ransacking through his magic so suddenly in a display that makes him seem like he's simply recovering from his bodily injuries still.
 

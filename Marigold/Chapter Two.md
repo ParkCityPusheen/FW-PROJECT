@@ -120,7 +120,7 @@ Dain nods, but he goes to Cath first, and together (ridiculously) they make thei
 
 Dain tips his head back, eyes grazing over the scales at Cath's underside. The scales along his belly are an ethereal garnet, so dark at night they seem black, but in the first shining light of the civil dawn a deep, expensive looking ruby. From here all he can make out are scales, the dragon's body eclipses everything else.
 
-*"Go, Hatchling."* Cath suggests, neck snakishly swinging out to attempt a glance at Dain near his forelegs,
+*"Go, Hatchling."* Cath suggests, neck snakily swinging out to attempt a glance at Dain near his forelegs,
 
 *"Moving."*
 
@@ -784,15 +784,15 @@ Halfway through finishing a few notes on azimuths and cardinal directions for a 
 
 *Gareth and Imogen.*
 
-He scurries to his bed, snatching his mother's journal from benath the pillow he sleeps on. He nearly trips when the sack of wool almost slides off the bed, catching it and lobbing it back onto the mattress, then stumbles back to the table. His knee shakes as he hurridly unfolds the trifold cover and his pen rips across the paper.
+He scurries to his bed, snatching his mother's journal from beneath the pillow he sleeps on. He nearly trips attempting to catch the sack of wool almost slides off the bed, lobbs it back onto the mattress, then stumbles back to the table. His knee shakes as he hurridly unfolds the trifold cover and his pen rips across the paper.
 
-Gareth and his dragon disappeared from right in front of him. From *directly* in front of him, leaving only a rush of air in their steed. Imogen had turned a simple shield into literal stone, saving his life and shocking the breath out of him all at once.
+Gareth and his dragon disappeared from right in front of him. From *directly* in front of him, leaving only a rush of air in their stead. Imogen had turned a simple shield into literal stone, saving his life and shocking the breath out of him all at once.
 
 He itches at his scalp so roughly he feels the paths his nails leave while he scratches across the paper of the notebook.
 
 That's two Marked Ones with second signets.
 
-He thinks of Bohdi, and of Riorson, and Garrick, and Imogen, none of which he'd seen since the battle that day, and it's now been two days.
+He thinks of Bohdi, and of Riorson, neither of which he'd seen since the battle that day, and it's now been two days. And Tavis and Imogen, presumably holed up in her barracks room.
 
 *What the absolute fuck?*
 
@@ -806,9 +806,11 @@ Secrets could protect just as damnned well as they could hurt, Dain contemplates
 
 He knows Riorson and his closest, all four names previously mentioned, including Violet, were fighting for a cause that took less than half a second for Dain recognize as the correct humanitatian resolve to bear. He'd ended his own mentor's life over it, couldn't sleep for the days following the murder, and managed to begin his spiral into an identity crisis he still hasn't fully recovered from. Regardless, the secrets that that envoy tended to carry were usually ones that protected other or themselves and not at the expense of others.
 
+Riorson and Bohdi likely also have second signets by the looks of things, Dain pinches the bridge of his nose, or maybe they don't; there's no way for him to know these things. That's the whole point of a secret, you don't tell anyone and nobody knows it.
+
 Dain had secrets too, plenty, like:
 
-He doesn't need to touch a person's face in order to read their memories, not since he'd been knocked out in Unnbriel.
+He no longer needs to touch a person's face in order to read their memories, not since he'd been knocked out in Unnbriel.
 
 He doesn't want to kill his father, but it would probably be better for The Continent if he wasn't alive.
 
@@ -821,8 +823,6 @@ The Wingleader sits back down, and stops shaking his leg, *"Nothing is worng wit
 *"You know the answer to that question."*
 
 Of course Cath doesn't know, and if he did he wouldn't tell Dain, rider-dragon-confidentiality was something both parties would likely die by.
-
-His eyes widen.
 
 The Empyrean *forbade* dragons of bonding within familial ties due to the madness that could be inherited alongside a second signet. But, obviously, it was still happening. And somehow, Dain mystified, dragons going against their own codex was...
 
