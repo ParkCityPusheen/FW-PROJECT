@@ -446,7 +446,7 @@ Dain feels like that's Cath's way of saying "fuck off and let me eat," so he sto
 
 Violet is fussing over Sloane when Dain arrives.
 
-She's muttering something only the two can hear; but Dain's too busy thinking they're the two smallest between both Fourth and Second Wing. It makes him want to loom over them, watch them paw at each other like the faux kittens they look like from above. He collects muster reports from each of the Section Leaders instead, effectively choosing to keep his life, and gives his verbal assurance of his Wing's readiness to Ulices *fucking* Ferris.
+She's muttering something only the two can hear; but Dain's too busy thinking they're the two smallest cadets between both Fourth and Second Wing. It makes him want to loom over them, watch them paw at each other like the faux kittens they look like from above; it's adorable how much Violet frets over Sloane. Instead, he collects muster reports from each of the Section Leaders, effectively choosing to keep his life, and gives his verbal assurance of his Wing's readiness to Ulices *fucking* Ferris.
 
 "A documented bastard now, huh, Aetos?"
 
@@ -454,21 +454,17 @@ Dain locks eyes with the General, "Officially."
 
 The older man launches a bushy brow into his hairline, "You don't seem bothered."
 
-The Wingleader cocks his head, "Should I be?"
+The Wingleader cocks his head, "Should I be?" The only thing bothering Dain was his dust-filled wallet since his disinheritance. And, shouldn't a General have more important obligations than goading a cadet? 
 
-The only thing bothering Dain was his dust-filled wallet since his disinheritance. And, shouldn't a general have more important obligations than goading a cadet? 
+They participate in a silent stand-off, neither man budging. More notice the wordless altercation around them before Ferris explodes into an obnoxious barked-out guffaw, 
 
-They share a silent stalemate, breathing as more notice the altercation around them before Ferris explodes into an obnoxious barked-out guffaw, "You know, Sorrengail said he had high expectations for you. I could eventually come to consider why if *this* is what we're dealing with."
+"You know, Sorrengail said he had high expectations for you. I could eventually come to consider why if *this* is what we're dealing with."
 
 "Yes sir." is all Dain gives.
 
-Ferris accepts his submission and swaggers off to the center of the graveled ground and Dain avoids the piercing gazes of his peers, bouncing his eyes right over Violet and Sloane but Violet is closing the distance he'd established, uncharacteristically.
+Ferris accepts his submission and swaggers off to the center of the graveled ground explaining the mobile arming station which has been setup just before the courtyard. It's observable from where the gaurds rotate a posted watch at the arched doors of the fortress entrance. Ferris further outlines that all weapons should either be returned afterwards or provided by the cadet themselves for the trainings. Violet has settled in next to Dain now, and Sloane is padding over with a trail of first-years behind her.
 
-She must need something.
-
-Dain makes sure that she sees him acknowledge her, then turns away to Ferris; he's explaining the mobile arming station that has been setup just before the courtyard. It's completely  observable from where the guards at the entrance of the fortress stand a rotational watch, the General further explains that all weapons should either be returned after or provided by the cadet themselves for the trainings. Violet has settled in next to him now, and Sloane is padding over with a trail of first-years behind her.
-
-Ferris himself opts for a broadsword like Dain's sheathed at his hip, but the cadet himself isn't sure it's a wise choice consider the man's age and bulky frame.
+Ferris himself opts for a broadsword like Dain's sheathed at his hip, Dan isn't sure it's a wise choice considering the man's age and bulky frame.
 
 "Injuries during these sessions will be very real. So, during the match-ups, do not take your opponent lightly."
 
@@ -484,37 +480,51 @@ Ferris points at Dain, then Jareth,
 
 Jareth unsheathes the daggers at her hip, they're shaped oddly, curved at the edges and serrated. It would leave a disgusting wound to be cut by them, and Dain peers down at his swords.
 
-He'd initially picked swords because he'd been training with swords and swordsmen his entire childhood. They were ceremonious, gaudy even, traditional. His father wielded one so he was meant to as well. They were symbolic of power and protection, of courage and justice, but Dain finds little of that represented in his current place. He's mostly a coward, running to his father with any bit of information. He's certainly not just, having always blindly treated the Marked Ones with blatant disrespect. Power? He couldn't even find a way to utilize the reservoirs of Cath's magic, leant to him in union with the swordtail.
+He'd initially picked swords because he'd been training with swords and swordsmen his entire childhood. They were ceremonious, gaudy even, traditional. His father wielded one so he was meant to as well—right? They were symbolic of power and protection, of courage and justice, but Dain finds little of that represented in his current place. He's certainly not just, having always turned a blind eye to the treatment of Marked Ones. And power? He couldn't even find a way to logically utilize the reservoirs of Cath's magic.
 
-He stuck to swords after threshing because of his dragon as well. His fantastic swordtail who maintained proper neutrality in any casual basis, but always chose the just thing regardless of how others might perceive him, neither draconic peer and certainly not Dain. Upon Dain learning of venin and wyvern he hadn't hesitated to break away from the comforts of the falsities Dain had been raised on, promising to protect him in the face of danger at his rider picking humanity over his father and fate.
+He stuck to swords after Threshing because of his dragon, as well. His fantastic swordtail who maintained proper neutrality in any casual basis, but always chose the morally conscious thing regardless of how others might perceive him. Neither draconic peer and certainly not any human would Cath ever defer to. And, upon Dain learning of venin and wyvern, Cath hadn't hesitated to break away from the falsities Dain had been raised on alongside him. Cath promised to protect him in the face of danger at his rider picking humanity over his father and fate.
 
-He thinks he might like to be more like Cath, calm and quietly courageous, willing to hurt for the right reasons. Always a volunteer and never the witness. Dain's eyes narrow, sliding across dozens of weapons neatly mounted upon their wide wooden post; he's got to pick quick even with his impulsively inchoate resolve.
+He thinks he might like to be more like Cath, calm and quietly courageous, willing to hurt for the right reasons. Always the volunteer and never the witness. Dain's eyes fix on the armory, sliding across dozens of weapons neatly mounted upon their wide wooden post; he's got to pick quick even with his impulsively inchoate resolve.
 
-A glaive stands absurdly taller than every arm posted, holstered between two wooden dowels that keep it standing upright. It brandishes a knife edge shaped similar to Jareth's daggers but six times its length, curved sickly, and though not serrated it does have a hangnail of a second blade protruding just under the sharpened edge of the main blade. He eyes the black leather wrap spiraling up its handle and considers the possibilities before approaching the post and setting his hand on it. It's nearly double his height.
+A glaive stands absurdly taller than every arm posted, holstered between two wooden dowels that keep it standing upright. It brandishes a knife edge shaped similar to Jareth's daggers but six times its length, curved sickly, and though not serrated it does have a hangnail of a second blade protruding just under the sharpened edge of the main blade. He eyes the black leather wrap spiraling up its handle and considers the possibilities before approaching the post and setting his hand on it. It's nearly his own height.
 
 This will be difficult.
 
 Jareth is shocked behind him, "That's a very un-Aetos decision of you, Aetos." she remarks.
- 
+
 Dain tilts his head: *this* is the correct choice.
 
-He walks back to faceoff with Jareth, tossing his belt and the two swords sheathed to it beside them. His brown eyes lock with her grey ones and he cradles the polearm in his hands, assessing its weight to find where his center of gravity is. Ferris circles between them, eyeballing them like a wildcat, waiting to call the start of the match.
+He walks back to faceoff with Jareth, tossing his belt and the two swords sheathed to it, beside them. His brown eyes lock with her grey ones and he cradles the polearm in his hands, assessing its weight to find where his center of gravity is. Ferris circles between them, eyeballing them like a wildcat, waiting to call the start of the match.
 
-It tips easily when he holds it lower, and becomes more rigid when he wields it closer to its blade. Jareth watches him hop the glaive up and down in his grip, testing it. She's probably planning to overtake him based on his inexperience with it. The end of the glaive is blunt, flattened wood, it's completely unorthodox—how the fuck would you even use this and remain lithe, he thinks. It's akin to picking the greatsword, just ridiculous. 
+The weapon tips easily when he holds it lower, and becomes more rigid when he wields it closer to its blade. It's end is blunt, the shaft carved from wood and polished haphazardly; it's completely unorthodox—how the fuck would you even use this and remain lithe, he thinks. It's akin to picking the greatsword and just as ridiculous. Jareth watches him hop the glaive up and down in his grip, testing it. She's probably planning to overtake him based on his inexperience with it.
 
-Ferris steps back from the center and crosses his arms, there's no lead up, he jackknifes his hands  into the air and belts out, "Proceed!"
+Ferris steps back from the center and crosses his arms, there's no lead up, he jackknifes his hands into the air and belts out, "Proceed!"
 
 Dain lets Jareth make her move first, and as expected she chooses to control the space between them, immediately shortening the distance there. She ducks down and pushes off the balls of her feet, fully sprinting while Dain takes a split-second to consider his next movement.
 
 Parry.
 
-He slides his hands wide apart along the shaft of the glaive, successfully blocking two swings with a horizontal block, then removes his left hand to send the pole pivoting forward and towards her head with the glaive's blade acting as a counterweight. It's a risky movement, but Dain recognizes his own strength; the head of the glaive flicks out wildly behind him and he send his waist against it, influencing its trajectory to pivot around his lower body. 
+He slides his hands wide apart along the shaft of the glaive, successfully deflecting two swings with a horizontal block. His right hand drops for half a second, twisting at the wrist to properly execute a forward jab that Jareth defends with both daggers crossed at the hilt. She shoves upwards, forcing the glaive off of her metal. Dain cycles backwards to regain that distance, resetting the faceoff. Jareth stands, knees bent, body facing off with him at an angle and reclaims a few steps of her own.
 
-Now he's relying entirely on physics.
+As usual the odds are not in Dain Aetos's favor.
 
-He breathes out a surprised breath when the upper half of the shaft touches his fingers and he finishes movement with the glaive now in positive control again. There is no time wasted in his lunge towards Jareth: she's still regaining her balance from the shock of ducking the butt end of the glaive's first poke, completely disregarding the bladed edges as they swing around Dain's waist.
+Jareth is proving incredibly agile, and though not as small as Violet or even Sloane, he can already tell she'll be using her size against him. He'll need to match that in some way or another. His swords, one slipped free of it's sheath against the gravel glints in the sunlight and catches Dain's eye.
 
-The blade whistles frontward, slicing through the flesh of her right ear and resting there against her head.
+Swords give optimal control, in both distance, and output.
+
+The glaive is far less forgiving. Too much and it'll slide right out of his hands and take him with it's heavy blade, and too little will create a contingency in his form. He'll be left open and unable to defend himself against incoming threats espcially in such short distances.
+
+Jareth bends further at the knee and lunges across the clearing at Dain once more, daggers tucked into her fisted hands, ready to claw out in hopes of drawing blood. And she almost does.
+
+She slides against the gravel, arms outstretched to flank him on his right side, but Dain waits, counts even, as the wind breaks against her body, then sidesteps left just out of reach, bringing the glaive downwards. She's quick, as he mentioned previously, but not quick enough to recover from the overextended dive she'd committed to, and it leaves her wide open from above.
+
+Now Dain's relying entirely on physics.
+
+The shaft is what plunges downwards towards her head and Jareth drops with the slide to avoid it, almost parallel with the ground, before fixing her stance into a squat and bounding backwards.
+
+Dain allows this, and takes that second to charge the glaive around in his hands, spinning it with the assisted forward momentum of the downwards jab. She successfully avoids the dig, but isn't stabilized enough to dodge the bladed edge of the glaive as it completes the rotation around Dain's hands.
+
+The blade whistles frontward, slicing through the flesh of her left ear and tracking there against her head just before she trips and lands flat on her ass, palms gripping gravel.
 
 *Done.*
 
@@ -542,7 +552,9 @@ Dain flips the glaive horizontal, rotating it against his palms; this'll take so
 
 And, unpredictability was doing well for him for now. 
 
-"Jesus, Aetos." Baylor whistles out, he's massive for a first-year, but not as tall as Dain, "What'd the swords do to you?"
+"Damn Aetos." Baylor whistles out, he's massive for a first-year, but not as tall as Dain, "What'd the swords do to you?"
+
+The two of them stare at his belt and sheaths across the gravel.
 
 "Nothing worthwhile."
 
@@ -574,9 +586,9 @@ Sloane shoves her heel against Avalynn's boot and Dain ignores that, too.
 
 Dain gives a fleeting explanation after a measured pause, "I don't like to be touched."
 
-"I, for one, agree with the baby rider." Ridoc adds, emerging from the growing crowd with Violet tagging along.
+"I, for one, agree with the baby rider." Ridoc adds, emerging from the growing crowd with Violet tagging along, "Definitely kind of hot."
 
-Dain doesn't say anything.
+Dain grimaces.
 
 "Okay, never call me that again Gamlyn." Baylor chastises, "I don't think that came out the way you wanted it to."
 
@@ -588,35 +600,43 @@ Violet sighs, "Yeah. It was a good one."
 
 As heartwarming as it all is, Dain recognizes he doesn't belong in this mix and instinctively begins to remove himself, tugging his undershirt out of his uniform trousers absentmindedly while doing so.
 
-"Wait, where are you going?!" Baylor exclaims, immediately offended and taken aback, "You're not gonna like over-explain the shit out of this for me?"
+"Wait, where are you going?!" Baylor exclaims, immediately offended and taken aback, "You're not gonna like, over-explain the shit out of this for me?"
 
 Dain clears his throat, "I don't know how to use a glaive."
 
 Baylor raises and eyebrow and gestures at the one in Dain's hand.
 
-"There's only one glaive."
+"There's only one glaive." Dain mutters.
 
 Baylor shakes both of his hands at Dain this time, face contorted with obvious disbelief.
 
 "Just say no," Sloane bites, rebuking him entirely, "You've been ducking in and out anyway. Got somewhere else you want to be?"
 
+Violet's head swings to Dain and then to Sloane,
+
+"Sloane," her palms turn outwards, "he doesn't need to report his whereabouts to anyone. Relax."
+
 Dain's head swings around to face the blonde. He'd no idea not playing the part of know-it-all would be recieved so poorly. He *wants* to go study for the geopolitical final examination the thirds years are having soon, he wants to buy another uniform so that he's got more than two wo wear to the midland posts rotation soon. He wants a cup of coffee.
 
-"Anywhere that isn't right fucking here, Mairi." Dain snaps back, his voice is viscid with frustration, "Do I have your permission to do that?"
+"No it's fine. Mairi, I misunderstood my place." Dain snaps back, his voice is viscid with frustration, "Do I have your permission to fuck off?"
 
-Sloane is clearly surprised her comment evinces Dain's emotions and opens her mouth to make another, but Violet pulls an arm ahead of the first-year, mirroring the shocked look Dain bears.
+Sloane is clearly surprised her comment evinces Dain's emotions and opens her mouth to make another, but Violet pulls an arm ahead of the first-year, mirroring the shocked look she bears.
+
+Dain takes a step back, eyes tearing past Violet to Sloane, "You should worry more about training your signet and less about what I do with my time."
+
+Sloane says nothing for once.
 
 "Are you okay?" Violet asks him after leveling a look on Sloane.
 
-The question only make him more uncomfortable, especially coming from Violet, he doesn't answer it, and Dain returns the glaive to the post before twisting through the Wings. He offers basic advice to his peers, but only when prompted. Cath arrives shortly after, circling above with Dain's eyes only leaving his dragon's ruby palette when called upon.
+The question only makes him more uncomfortable, especially coming from Violet, he doesn't answer it, and Dain returns the glaive to the post before twisting through the Wings. He offers basic advice to his peers, but only when prompted, and ends up agreeing to provide some supplementary cirricular assistance to a few who request it. Cath arrives shortly after, circling above with Dain's eyes only leaving his dragon's ruby palette when called upon. 
 
 ---
 
-He eats lunch in the valley, right at the edge of the hatching grounds boundary line, it's uncomfortably hot and he takes shelter against Cath's side. Sitting underneath his dragon's healing wing that juts out enough to create enough substantial shade for a handful of humans. Cath slips into an unbothered slumber just ten minutes into his meal, which is some hearty gulps of water from his deteriorating waterskin and a citrusy fruit that tastes more buttery than it does fruity. He cradles it in his hand, eyeballs its deep purple flesh and the fuzzy pink exterior.
+He eats lunch in the valley, right at the edge of the hatching grounds' boundary line, it's uncomfortably hot but he still takes shelter against Cath's side. The Red's slightly protruded, injured wing provides ample shade for Dain to hide from the sun with. Cath slips into an unbothered slumber just ten minutes into his meal, which is only some hearty gulps of water from his deteriorating waterskin and a citrusy fruit that tastes more buttery than it does fruity. He cradles it in his hand, eyeballs its deep purple flesh and the fuzzy pink exterior, Tyrrish call it Brumel. From his history texts Dain remembers it often grows in shaded areas around tree roots. It's a vining plant that bears no flower and often fails to produce it's delicate flavored fruit consistently.
 
 He tosses it down the valley, leans farther against Cath and closes his eyes.
 
-Dain thinks he can handle being his Wing's renegade caricature. A traitor to the Navarrian loyalist cadets, an untrustworthy enigma to the Aretian leaning ones, a waiting snare to the fliers, and a liability to the assembly. He wishes for once in his fucking life that he could just press the opinions that he *feels* into a fucking book and shove them into the archives somewhere. That he could shove daggers into his ears and eyes to see blind while listening deaf until retirement from his service.
+Dain thinks he can handle being his Wing's renegade caricature. A traitor to the Navarrian loyalist cadets, an untrustworthy enigma to the Aretian leaning ones, a waiting snare to the fliers, and a liability to the Assembly. He wishes for once in his life that he could just press the opinions that he *feels* into a book and shove them into the Archives somewhere. That he could shove daggers into his ears and eyes to listen deaf and see blind until retirement from his service.
 
 He knows that's not how life is, and that it's meant to be ugly and unforgiving and that the true weight of a person is scaled based on what they survive and not what they avoid. But, Gods, running away is so much easier.
 
@@ -678,7 +698,7 @@ Dain knows recovering from his mistake was going to be difficult, but impossible
 
 He shatters into a fit of laughter and ends up keeled over from it. It takes a while to recover from it, but once he does Dain releases a sigh and slumps down again, "I'm doing it for you. Everything is always for you."
 
-Violet looks as close to crying as he's been, just as tired and overworked. Dain tries to suffocate the concern for what might have her looking such a way, because he knows it can't be him. 
+Violet looks as close to crying as he's been, just as tired and overworked. Dain tries to suffocate the concern for what might have her looking such a way, because he knows it's something that doesn't concern him. 
 
 "How can I help you?" he asks, mind forced clear, to end this fucking interaction.
 
@@ -724,13 +744,13 @@ Understanding pierces through Violet like a crossbolt and her mouth drops open a
 
 "Cath despises you." Dain confirms.
 
-"Andarna says he's ignoring her."
+She's unphased by this, and maybe, Dain thinks, she doesn't like Cath either, "Andarna says he's ignoring her."
 
 *"I am!"* Cath's eyes swing to Dain, *"The only relevancy I must acknowledge stands before me."* The Red's neck lowers, the scales along his jaw dig into the earth, and he regards Dain only and solely, *"I will not idle by as you abuse yourself for others."*
 
 *"I'm not——"*
 
-*"This has gone on long enough. Since your Threshing you have blamed yourself for the deaths of others."*
+*"This has gone on long enough. Since your Threshing you have blamed yourself for the deaths of others. You will stop."*
 
 "Because I *am,* Cath!" Dain finally hollers, heart racing, eyes stinging again, "Someone is alone because of me, like *I* am. She's alone. She doesn't have family. They're gone. I'm the cornerstone of that loss. Two people Cath, because I couldn't see what was right in front of me. I shouldn't be forgiven, and I should be miserable—"
 
@@ -772,9 +792,11 @@ Without another word Cath launches into the sky, bursting flame into a cloud tha
 
 ---
 
-It's th early afternoon when Dain gets to his barracks room. He eats an early lunch, showers, and changes into his sleeping set again. The brunette finds himself sitting at his table, papers, pens, and books strewn about the wooden top. He'd chosen to study for his exam, then moved onto some requests that had been made of him by some of his peers once he'd felt versed enough to put the material away.
+It's the early afternoon when Dain gets to his barracks room. He eats an early lunch, showers, and changes into his sleeping set again. The brunette finds himself sitting at his table, papers, pens, and books strewn about the wooden top. He'd chosen to study for his exam, then moved onto some requests that had been made of him by some of his peers once he'd felt versed enough to put the material away.
 
-First he finished a synopsis on lesser magics for first-year by the name of Rengar Donnahue, Tail Section, Third Squad. Dain writes up the guidance in a smaller, stitchbound-handbook about properly visualizing magic, tips in balancing output versus input while utilizing it, and some voluntary excersises to help master lesser magic usage. Part of revisiting the principles of lesser magic makes Dain feel nostalgic; he doesn't even have to think about things like locking doors, flicking open latches, sound shields, and using ink pens.
+Firstly, he drafts up his request for a personally appointed Executive Officed.
+
+Secondly, he finished a synopsis on lesser magics for first-year by the name of Rengar Donnahue, Tail Section, Third Squad. Dain writes up the guidance in a smaller, stitchbound-handbook about properly visualizing magic, tips in balancing output versus input while utilizing it, and some voluntary excersises to help master lesser magic usage. Part of revisiting the principles of lesser magic makes Dain feel nostalgic; he doesn't even have to think about things like locking doors, flicking open latches, sound shields, and using ink pens.
 
 He glances down at his own, one his father gave him, heavy and hand-carved polished wood. He'd asked for it on his fourteenth birthday, maybe his fifteenth, and the man had simply handed it to him with a smile. He might've been smiling because it was humorous to him that Dain wouldn't be able to use it until years later. It was fleeting now, unimportant, and he still has the pen.
 
@@ -827,3 +849,139 @@ Of course Cath doesn't know, and if he did he wouldn't tell Dain, rider-dragon-c
 The Empyrean *forbade* dragons of bonding within familial ties due to the madness that could be inherited alongside a second signet. But, obviously, it was still happening. And somehow, Dain mystified, dragons going against their own codex was...
 
 Empowering.
+
+"I think I need to speak with Violet, properly. Or at least try again."
+
+He says this outloud, into the space of his room, not to himself or anyone in particular. Just a passing hypothesis.
+
+*"Is that so."*
+
+Dain nods, *"I think if anyone knows anything that they aren't supposed to know, at a echeleon they don't belong in, it would be Violet."*
+
+*"Then what will you do."*
+
+*"Aquiescce."* He thumbs at his lower lip.
+
+She'd said she would need him. Often and soon. Speaking to Imogen or Tavis directly, regarding their powers, would be a horrid mistake that would inevitably be reported to her. It would be best to go to a source who is aware and just as knowledgable. But even then, its mostly curiosity that even makes him want to ask. It might even given insight to why dragons are bonding within familial lines knowing the risks they take in doing so.
+
+Dain prods the bond and Cath says nothing.
+
+*"And you think Tairn's Sickly One will be privy to such information?"*
+
+*"I think Tairn would trust her enough to tell her, yes."* Dain answers meekily.
+
+Cath is surprisingly taken aback, *"I trust you."*
+
+*"You do?"*
+
+*"I do."*
+
+Dain shivers, *"It's weird hearing someone say that outloud."*
+
+Cath doesn't respond again.
+
+*"Will you tell me about the missing eggs I heard about, back in Draithus."*
+
+His dragon takes more than a few moments to scale the weight of the information that Dain is asking him to reveal.
+
+*"...Yes."*
+
+Dain pushes for more,
+
+*"Do all the dragons know there are missing eggs?"*
+
+*"No."*
+
+*"Does the Empyrean know about dragons bonding Marked Ones with intent?"*
+
+Cath groans, *"Some do."*
+
+Dain's eyes go round, and wide, *"Why not all?"*
+
+*"Not all elders see eye-to-eye."*
+
+Obviously it's unknown Cath who all has a second signet, nor which dragon is angling for their human to wield them, but he knows it's happened. Or has been happening.
+
+*"We need to be on the same page to help eachother. There's a huge contingency here that exists within human and dragon's ranks."*
+
+*"And what are you claiming it is, Hatchling."*
+
+Dain doesn't need a whole second to answer his dragon.
+
+He doesn't even breathe before the word slips past his lips,
+
+"Trust."
+
+---
+
+Cath permisses Dain to leave the barracks as the sun begins to set, and by then all the classes have been finished. He's forced to make the rounds through Riorson to each of the active instructors requesting tell of if his Wing had been present and ready without a second-in-command, and then submits written report to Professor Kaori.
+
+He finds himself at Jareth's door no sooner.
+
+"Oh, hey!" She beams up at him, "Guessing you're here because duty calls."
+
+She wastes no time handing him a collection of reports submitted by the cadets in his Wing.
+
+"Thanks," Dain tells her with a fond smile, "I really appreciate you."
+
+"You don't remember me?" Jareth blurts, "I don't think you do."
+
+Dain shakes his head, tucking the reports against his side, "No, I don't sorry. I mean, obviously we're in the Quadrant together. Do you mean maybe before Conscription?"
+
+Jareth moves forwards, forcing Dain to step back. She shuts her room door behind her and presses her back to it, her hair is out of its bun, pulled back into a messy brunette ponytail that drapes past her chest,
+
+"I'm not trying to bring up anything abrasive mentioning this. Because I know the two of you had a thing going on? I think?" Jareth taps her chin and h"er grey eyes float up to her floor's stone cieling, "But I was friends with Amber; childhood friends. You came around pretty often. I actually passed physics thanks to you. Thanks to the notes you gave her."
+
+Dain gives Jareth a proper look but can't recall her at all.
+
+"Amber and I..." he recalls some of the skinship they shared, but it wasn't anything special. They hasn't slept together, not entirely. Amber was agressive with him in that way because she knew he didn't like the idea of casual sex, but they weren't too emotionally involved. Not to say he wasn't fond of her. Because he was, mostly,
+
+"We got along."
+
+"Yeah, well you seemed pretty hurt when she got burned. Sorry, I don't mean to sound so awful, the two of us were only associated through family businesses."
+
+He lifts his shoulders, "It was awful, but she earned it. You were there a few times we went into town right, I remember she always had a group of girls with her."
+
+"Yeah, she never went anywhere without a crowd." Jareth lifts up on her toes and then rocks back onto her heels, 
+
+"If you need anything you can just ask me. My dragon is very fond of yours. He gets all 'here cometh Cathachadh-cada,' or however you say your dragons name, whenever you guys are around."
+
+*"Cathachadh,"* Cath swears, *"It's simple really, imbecile."*
+
+Dain lets loose a laugh from deep in his chest in response to both is dragon and the other Wingleader, "Thanks; could you doubledown on duty for me again if I get banished by Cath again, or pulled somewhere else? If you don't mind of course."
+
+"I don't!" Jareth giggles back, tucking loose hair behind her ears, "I don't mind at all, you seem way more tired than you usually seem lately anyway. And Tyvon could use some extra work; he's always slaving behind that other third-year in your Flame Section so I know he's got the time."
+
+*"Who's her dragon?"* Dain asks Cath.
+
+He leans back into the opposite wall, careful not to press into the door parallel of hers, and crosses his arms over his chest, "And how is it I normally seem? I've gotten that a lot lately."
+
+"Well, normally you're kind of up everyone's ass, *and* tired. But since you got back from that mission to the Isles with Sorrengail and Riorson you've been quiet and brooding."
+
+*"Sgàthanach. Red scorpiontail. A den-mate of mine."*
+
+"Try exhausted and aching." Dain mutters, dropping his head against the wall, "And I'm pretty sure it's going to get worse."
+
+"It's gets the darkest before the dawn, Aetos." Jareth procclaims, patting his left bicep and reaching a hand out to her door, pulling down the handle,
+
+"You should go eat. I never see you in the Mess Hall during meal hours. You probably haven't eaten if pattern recognition says anything about you."
+
+"Worried about me?" He jokes, standing up straight and moving to walk away, "Thanks for this Jareth, I—"
+
+"Eleni," she cooes, face going red up to her high cheekbones, "Eleni is fine, I know you afterall."
+
+"Apparently everyone does." he says with a weak grimace, "See you at muster."
+
+"Yeah, see you then!"
+
+He waves a goodbye and continues down the hall, opting to climb down the steps of the grand staircase and eat his dinner with the reports in arm.
+
+*"Are you and Sgàthanach the same age?"*
+
+When Cath answers Dain already has a plate full of food: beef from the long-pelted Aretian cows, honey roasted carrots, and two more biscuits this time slathered in a white gravy.
+
+*"He is a few decades younger. A reasonable youth."*
+
+*"Sounds like you like him."*
+
+The table that Dain had his breakfast at is still 
