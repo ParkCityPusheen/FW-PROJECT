@@ -598,7 +598,7 @@ Sloane shoves her heel against Avalynn's boot and Dain ignores that, too.
 
 Dain gives a fleeting explanation after a measured pause, "I don't like to be touched."
 
-Avalynn squeezes Sloane's hip, really digs her hands into the meat of the other first year's hip and Sloane smacks her friend's hand away. Violet has begun talking to Lynx, with Ridoc jumping into the banter as well. As heartwarming as it all is, Dain recognizes he doesn't belong in this mix and instinctively begins to remove himself, tugging his undershirt out of his uniform trousers absentmindedly while doing so.
+Avalynn squeezes Sloane's hip, really digs her hands into the meat of the other first year's hip and Sloane smacks her friend's hand away and Dain slips his gaze somewhere else just as roughly. Violet has begun talking to Lynx, with Matthais jumping into the banter as well. As heartwarming as it all is, Dain recognizes he doesn't belong in this mix and instinctively begins to remove himself, tugging his undershirt out of his uniform trousers absentmindedly while doing so.
 
 "Wait, where are you going?!" Baylor exclaims, immediately offended and taken aback, "You're not gonna like, over-explain the shit out of this for me?"
 
@@ -616,45 +616,57 @@ Violet's head swings to Dain and then to Sloane,
 
 "Sloane," her tired eyes harden, "he doesn't need to report his whereabouts to anyone. Relax."
 
-Dain swivels to face the blonde. He'd no idea not playing the part of know-it-all would be received so poorly. He *wants* to go study for the geopolitical final examination the third-years are having soon, he wants to buy another uniform so that he's got more than two to wear to the midland posts rotation soon. He wants a cup of coffee. He wants many things, but no longer is being included in this little group one of them.
+Dain swivels to face the blonde. He'd no idea not playing the part of know-it-all would be received so poorly. He *wants* to go study for the geopolitical final examination the third-years are having soon, he wants to buy another uniform so that he's got more than two to wear to the midland posts rotation soon. He wants a cup of coffee. He wants to graduate and get stationed somewhere he can become one with the general population, marry and change his name, just disappear into duty. He wants many things, but no longer is being included in this little group one of them.
 
 "No it's fine. Mairi, I misunderstood my place." Dain snaps back, his voice is viscid with frustration, "Do I have your permission to fuck off?"
 
 Sloane is clearly surprised her comment evinces his emotions and opens her mouth to make another, but Violet pulls an arm ahead of the first-year, mirroring the shocked look she bears. Dain takes a step back, eyes tearing past Violet to Sloane, 
 
-"You should worry more about training your signet and less about what I do with my time."
+"No matter how good your grades are, you can still fail out due to lack of execution. You should worry more about training your signet and less about what I do with my time."
 
-Sloane says nothing for once.
+"It's never happened, don't be so sure of yourself." she snarls, stepping forward menacingly.
+
+Dain cocks his head to the side, "Until your class-year. You can tell everyone about it once you're the most seasoned cadet in the quadrant. Carr and Emetterio both formally requested a course exclusion for you on the grounds of *functional incapacity.*"
+
+Violet's jaw sinks past the floor and Matthais's eyes look as if they could pop right out of her sockets as she turns to Sloane. Dain can tell if there weren't so many people around, Sloane would be getting a tongue-lashing that no one would want to be present for.
+
+Sloane only perfectly masks her surprise with another bratty-ass response; "And what? You're the one who needs to testify on my behalf so that doesn't happen?" 
+
+"Yes."
+
+Sloane openly hinges at the waist, preforming bodily dramatiques in sync with the rolling sarcasm her tone takes on, "Gonna say you won't to stay in Violet's good graces?"
+
+"You think Violet and I are anything besides associates, then you're sorely mistaken, Mairi."
+
+Sloane says nothing for once, but she gives a feeble glance to Violet——in fact *everyone* is looking oddly at Violet, and swapping that look for disbelief at Dain.
 
 "Are you okay?" Violet asks him after leveling a look on Sloane.
 
-The question only makes him more uncomfortable, especially coming from Violet, he doesn't answer it, and Dain returns the glaive to the post before twisting through the Wings. He offers basic advice to his peers, but only when prompted, and ends up agreeing to provide some supplementary curricular assistance to a few who request it. Cath arrives shortly after, circling above with Dain's eyes only leaving his dragon's ruby palette when called upon. 
+The question only makes him more uncomfortable, especially coming from her, he doesn't answer it, and Dain returns the glaive to the post before twisting through the Wings. He offers basic advice to his peers, but only when prompted, and ends up agreeing to provide some supplementary curricular assistance to a few who request it. Cath arrives shortly after, circling above with Dain's eyes only leaving his dragon's ruby palette when called upon. 
 
 ---
 
-He eats lunch in the valley, right at the edge of the hatching grounds' boundary line, it's uncomfortably hot but he still takes shelter against Cath's side. The Red's slightly protruded, injured wing provides ample shade for Dain to hide from the sun with. Cath slips into an unbothered slumber just ten minutes into his meal, which is only some hearty gulps of water from his deteriorating waterskin and a citrusy fruit that tastes more buttery than it does fruity. He cradles it in his hand, eyeballs its deep purple flesh and the fuzzy pink exterior, Tyrrish call it Brumel. From his history texts Dain remembers it often grows in shaded areas around tree roots. It's a vining plant that bears no flower and often fails to produce it's delicate flavored fruit consistently.
+He eats lunch in the valley, right at the edge of the hatching grounds' boundary line, it's uncomfortably hot but he still takes shelter against Cath's side. The Red's slightly protruded, injured wing provides ample shade for Dain to hide from the sun with. Cath slips into an unbothered slumber just ten minutes into his meal, which is only some hearty gulps of water from his deteriorating waterskin and a citrusy fruit that tastes more buttery than it does fruity. He cradles it in his hand, eyeballs its deep purple flesh and the fuzzy pink exterior, Tyrrish call it Brumel. From his history texts Dain remembers it often grows in shaded areas around tree roots. It's a vining plant that bears no flower and often fails to produce it's delicate flavored fruit seasonally.
 
 He tosses it down the valley, leans farther against Cath and closes his eyes.
 
-Dain thinks he can handle being his Wing's renegade caricature. A traitor to the Navarrian loyalist cadets, an untrustworthy enigma to the Aretian leaning ones, a waiting snare to the fliers, and a liability to the Assembly. He wishes for once in his life that he could just press the opinions that he *feels* into a book and shove them into the Archives somewhere. That he could shove daggers into his ears and eyes to listen deaf and see blind until retirement from his service.
+Dain thinks he can handle being his Wing's renegade caricature. A traitor to the Navarrian loyalist cadets, an untrustworthy enigma to the Aretian leaning ones, a waiting snare to the fliers, and an inevitable liability to the Assembly. He wishes for once in his life that he could just press the opinions that he *feels* into a book and shove them into the Archives somewhere to be forgotten and falsified. He wishes he could shove daggers into his ears and eyes, to listen deaf and see blind until retirement from his service.
 
 He knows that's not how life is, and that it's meant to be ugly and unforgiving and that the true weight of a person is scaled based on what they survive and not what they avoid. But, Gods, running away is so much easier.
 
-How's he supposed to exist around Sloane in the presence of Violet knowing he'd been the reason two important people has been wiped from existence thanks to him. It's not as if there's a way to make it excusable either, because regardless of his intentions and his oblivion regarding his father's actions *people still died.* He was gallivanting protection, and justice, and righteousness while being the most ignorant of them all and the revision of it makes his stomach move in ways that cause him physically gag.
+How's he supposed to exist around Sloane in the presence of Violet knowing he'd been the reason two people has been wiped from existence thanks to his misdirecton and folly. It's not as if there's a way to make it excusable either, because regardless of his intentions and his oblivion regarding his father's actions, *people still died.* He was gallivanting protection, and justice, and righteousness while being the most ignorant of them all and the revision of it makes his stomach move in ways that cause him physically gag.
 
 He hadn't known Telery very well but Dain doesn't doubt for a second she was as upright a person Liam Mairi had been. Liam had always been a standup guy and more the embodiment of what Dain had wanted to perceived as.
 
-He'd never once been rude to Dain, he'd asked Dain for advice on several occasions, didn't encourage negative banter against Dain when it began from other Marked Ones. Liam Mairi was the bigger man, the greater person, the one worthy. Protecting Violet in the way that Dain should have been instead of childishly condemning her over another man and his own broken ass ego.
-
-The rider scrubs his hands across his face and keeps them there; if he keeps his eyes open he knows he'll be shedding tears soon enough.
+He'd never once been rude to Dain, he'd asked Dain for advice on several occasions, didn't encourage negative banter against Dain when it began from other Marked Ones. Liam Mairi was the bigger man, the greater person, the one worthy. Protecting Violet in the way that Dain should have been instead of childishly condemning her over another man and his own broken ass ego. The rider scrubs his hands across his face and keeps them there; if he keeps his eyes open he knows he'll be shedding tears soon enough.
 
 His mind wanders to Sloane and the dam cracks in half, a keening groan pulling out from deep within his chest.
 
 Loneliness wasn't a thing he was too familiar with prior to his third-year. His father wasn't the type of man who cared for depth in his relationships; there were no conversations to be had besides what was needed. He didn't write letters when he was gone away for months at a time, he didn't ask Dain how his days were, didn't know who Dain's friends were or if he even had any—which, no, there were none. Sometime during his second year, between the pressure of his father's faux concern for Violet, and culturing Dain's dislike of Marked Ones and Fliers, there was no *time* for friends.
 
-Liam died after being forcefully separated from Sloane and the idea that they had been counting down the days to be together again provokes a new wash of self-castigation Dain hadn't been prepared for.
+Liam died after being forcefully separated from Sloane and the idea that they had been counting down the days to be together again provokes a new wash of self-castigation Dain hadn't been prepared for. And now she's struggling horribly like Violet had, and there's no chance she'd accept help from him, and she was actively denying it from others as well.
 
-Right after their mother and father were executed. Their parents who he's certain were more human than his father could've begged to be, even if he was forced to live his life twice over. He's sure they held her at night, told her when she was doing a good job, talked to her about her issues; all the things unknown and forever locked to Dain.
+This all, after their mother and father were executed. Their parents who he's certain were more human than his father could've begged to be, even if he was forced to live his life twice over. He's sure they held her at night, told her when she was doing a good job, talked to her about her issues; all the things unknown and forever locked to Dain.
 
 Now she was alone, albeit not friendless, she'd learned the pain of loss, she'd been exposed to the anger and grief of losing those close to you. He  can't begin to imagine the agony that would follow given those people nurtured and truly cared for you.
 
@@ -664,7 +676,7 @@ Dain rubs at his face, pulling himself together just in time that Violet's voice
 
 "Dain?" she calls, voice soft but not for him, and faraway.
 
-He looks up and surely enough she's there, manifested by his shitty fate; she maintains a safe distance because he's tangled up in Cath's limbs and Cath feels the same way about Violet that Tairn had shown plenty times towards Dain. Lucky for her, Cath sleeps like the dead.
+He looks up and surely enough she's there, manifested by his shitty ruminating; she maintains a safe distance because he's tangled up in Cath's limbs and Cath feels the same way about Violet that Tairn had shown plenty times towards Dain. Lucky for her, Cath sleeps like the dead.
 
 "Yes?" He chokes out, clearing his voice and fixing it into a less shaky rasp—Gods, dealing with all of this was so much easier when he was droning about in the name of Navarre.
 
@@ -694,7 +706,7 @@ His head lurches forward this time, eyes wide, "Suddenly? Violet, do I even exis
 
 The look on her face is a painful tell.
 
-Dain knows recovering from his mistake was going to be difficult, but impossible wasn't a consideration, and maybe it should be.
+Dain knows recovering from his mistake was going to be difficult, but impossible wasn't a consideration, and maybe it should be. Maybe he shouldn't consider anything at all/
 
 He shatters into a fit of laughter and ends up keeled over from it. It takes a while to recover from it, but once he does Dain releases a sigh and slumps down again, "I'm doing it for you. Everything is always for you."
 
@@ -986,4 +998,6 @@ When Cath answers Dain already has a plate full of food: beef from the long-pelt
 
 The table that Dain had his breakfast at is still available, missing two chairs now, and he sits in the one that lets him preview the entire facility. His Wing is almost entirely here, coagulated at the center of the room. Staff, veterans, officers, gaurds and professors all speckle the outskirt tables like his own. He starts at his carrots, peering down at their numerous colors and stabbing his heavy fork through multiple at once.  
 
-Violet is seated with her Squad, fitted between Matthais and Imogen, with Ridoc and Sawyer opposite of her. Sloane, *and* Aaric, he lets himself smile a bit, are seated further down the table with third and and first's, and even some of Second Wing's own novice riders.
+*"He has grown well."*
+
+Violet is seated with her Squad, fitted between Matthais and Imogen, with Ridoc and Sawyer opposite of her. Sloane, *and* Aaric, he lets himself smile a bit, are seated further down the table with third and and first's, and even some of Second Wing's own novice riders. He looks away in enough time to spy Catriona making her way to his table and battles the groan he wants to spit into the space between them.
