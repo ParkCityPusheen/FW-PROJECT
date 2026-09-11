@@ -1,3 +1,211 @@
+
+### Ch 3 — Working title TBD
+
+Status: outlined, not drafted
+
+**Chapter job:** a full Aretia day on the skeleton schedule. Dain stays useful without slaving for Violet.
+
+<details>
+<summary>what that means</summary>
+
+- healer orbit deepens
+- housing volunteer opens
+- runes door opens
+- Sloane stays work, not romance
+
+</details>
+
+---
+
+**Already true**
+
+*(do not re-prove; keep true on the page)*
+
+- Dain does not want to slave for Violet
+
+- he has been a tool for her, and she for him
+
+- Catriona has twice failed to sway him
+
+- Violet will not let Sloane speak crazy to Dain
+  - Sloane will keep doing it anyway
+
+- Darius is pursuing Dain
+
+- Cath is concerned for Dain’s mental health
+
+<details>
+<summary>already on the page (Ch 1–2)</summary>
+
+- likes gryphons
+- broke
+- hungry
+- aware, alive, and angry
+
+</details>
+
+---
+
+**Day spine**
+
+- **1. Glaive training**
+  - group session with the glaive
+
+  <details>
+  <summary>beats</summary>
+
+  - a Cygnisen flier speaks **to Dain** in Krovlish
+  - she wants to talk **about Cath**
+  - Sloane makes a snide remark
+  - he watches her wearily
+  - she is not being malicious
+  - he takes on more tutor work
+
+  </details>
+
+- **2. Foraging / Darius**
+  - Darius pulls him from foraging
+
+  <details>
+  <summary>beats</summary>
+
+  - asks if he used the cud
+  - Dain says no
+  - Darius opens up about the herbs-and-potions pharmacy he wants
+  - includes treating gryphon **and** dragon *(important)*
+
+  </details>
+
+- **3. Lunch / Violet**
+  - she sits with him while he grades
+
+  <details>
+  <summary>beats</summary>
+
+  - she asks if they can talk later in the week *(very important)*
+  - that later talk is the Tairn reveal
+  - **not** this lunch
+
+  </details>
+
+- **4. Runes class**
+  - Dain overhears Kiandra with Trissa and Devera
+
+  <details>
+  <summary>beats</summary>
+
+  - influx into Aretia
+  - struggle to relocate farmers and shepherds
+  - housing not soon enough for escapees
+  - Dain volunteers his and Cath’s efforts
+  - they are highly considered because Dain is Tyrrish and Krovlish
+  - signets are used in construction and burn out before the work is done
+
+  </details>
+
+- **5. Afternoon / Sloane training idea**
+  - he queues training Sloane as the path to propose her moving to the next year
+  <details>
+  <summary>beats</summary>
+
+  - outline and writeup to Violet
+  - Violet agrees
+  - he meant Sloane to go with Rhiannon
+  - Violet says no, Dain makes more sense
+  - Sloane agrees, red-faced
+  - she has only siphoned from Dain and Lilith Sorrengail
+
+  </details>
+
+- **6. Town**
+  - Dain sneaks in with Kaia and Darius
+
+  <details>
+  <summary>beats</summary>
+
+  - Sawyer runs into them and goes along
+  - Darius does not like how Dain is around the other riders
+  - asks in front of Dain: why is he tightlipped with everyone else and easy with them?
+  - talks Dain’s first year
+  - then how second was not much better
+  - third might be worse
+
+  </details>
+
+- **7. Close**
+  - Dain looking at Amaris temple
+
+  <details>
+  <summary>beats</summary>
+
+  - notices vining fruit growing around it
+  - a gryphon circles the temple
+  - he does not know it
+  - it is watching him
+
+  </details>
+
+---
+
+**Foreshadowing**
+
+- Darius’s questions make Sawyer think he obviously likes Dain
+
+- Dain masters simple rune shapes now that he understands the basics
+  - Sloane likes that *(important)*
+
+<details>
+<summary>author-only (do not confirm on-page)</summary>
+
+- that gryphon is Dain’s
+- he does not know
+- the gryphon knows it wants him
+- watches from afar
+- will often be spotted near Cath
+- on the page it is only a gryphon in the wrong place
+- too interested
+- too near a Red
+
+</details>
+
+---
+
+**Hold**
+
+- Cat does not get a third run
+  - flier door stays open through the Cygnisen and housing
+
+- Cath contains, does not counsel
+
+- Violet, Darius’s crush, and the Sloane proposal stay turns
+  - not three climaxes
+
+- build the rest in the writing
+
+---
+
+# Do Not Lose
+- Cath never says “I love you”; he says stay, return, get on, stop — and he does not advise
+- Prior rider lost to their own mind after Cath’s counsel = the root of the advice ban; Ch 1 hints only
+- No Cath POV; Dain is the instrument that records Cath’s fear
+- Sloane falls against her will; Dain admits faster (later phases)
+- Violet repair is late and Riorson-gated
+- Mental health is systemic, not only Dain’s private spiral
+- Slow burn means Phase B/C do the heavy lifting; do not rush Sloane into romance in Aftermath
+- Ch 1 is deterioration + Cath bond only; the rest of the board is multi-chapter
+- **Dain wanting more than “just a leadership body”** is seeded in Ch 1 loneliness (theatre/Royce/missing Second Squad). Not empty-room loneliness: surrounded, working, still alone inside the role. Violet fantasy = belonging/agency. Big deal. Grow him from that hunger across Arc 1; do not resolve the want in the seed scene
+- **Cath on that seed:** clocks BIG FEELINGS; cannot help; only watches; stamp instead of aid; only just a dragon in that moment (no Cath POV)
+- **Fit-search (healers / fliers / immigrant labor):** first chosen usefulness after Ch 1 loneliness. Motion, not cure. He is drawn to healers and awkwardly agrees with some flier points on Poromiel immigrants; he is not defecting and not announcing a new identity
+- **Cat friendship** is unlikely and earned from honest answers during immigrant/flier volunteer work, not from her warming first. Ch 1 hostility is the starting temperature. Spark, then deepen; do not complete in one chapter
+- **Cath on the volunteer beat:** present, not counselor. Do not advise Dain into choosing the gryphon-bonded
+- **Author-only gryphon:** a gryphon already wants Dain. He does not know. It watches from afar and will often be near Cath. Never name it as his on the page until he knows. To him it is only a gryphon that keeps turning up.
+- **Couple mirror:** Violet/Xaden ~ war/death; Dain/Sloane ~ love/life. Metaphor only. Gods are in-world; riders stay human and do not become them. Same mechanism (help the other see feared power as protection). Family/Loysam blank until built.
+
+
+
+
+ALL OF THE THINGS BELOW ARE FAR TOO WORDY....
+
 # Storyboard / Plotting — Working Title TBD
 
 ## North Star
@@ -315,24 +523,3 @@ Status: opening drafted (Riorson House / breakfast / Cath / Darius looking for h
 **Defer:** runes path, Sloane romance gravity, Violet repair, father as full scene, Riorson, Marin if she crowds Cat’s door.
 
 **Needs:** honest answers that come from Ch 1 interior (not a manifesto); fliers who appreciate and also doubt; Cat still herself (hostile residue from Ch 1 is allowed in the room)
-
-### Ch 3+
-TBD after Ch 2’s landing is chosen
-
----
-
-# Do Not Lose
-- Cath never says “I love you”; he says stay, return, get on, stop — and he does not advise
-- Prior rider lost to their own mind after Cath’s counsel = the root of the advice ban; Ch 1 hints only
-- No Cath POV; Dain is the instrument that records Cath’s fear
-- Sloane falls against her will; Dain admits faster (later phases)
-- Violet repair is late and Riorson-gated
-- Mental health is systemic, not only Dain’s private spiral
-- Slow burn means Phase B/C do the heavy lifting; do not rush Sloane into romance in Aftermath
-- Ch 1 is deterioration + Cath bond only; the rest of the board is multi-chapter
-- **Dain wanting more than “just a leadership body”** is seeded in Ch 1 loneliness (theatre/Royce/missing Second Squad). Not empty-room loneliness: surrounded, working, still alone inside the role. Violet fantasy = belonging/agency. Big deal. Grow him from that hunger across Arc 1; do not resolve the want in the seed scene
-- **Cath on that seed:** clocks BIG FEELINGS; cannot help; only watches; stamp instead of aid; only just a dragon in that moment (no Cath POV)
-- **Fit-search (healers / fliers / immigrant labor):** first chosen usefulness after Ch 1 loneliness. Motion, not cure. He is drawn to healers and awkwardly agrees with some flier points on Poromiel immigrants; he is not defecting and not announcing a new identity
-- **Cat friendship** is unlikely and earned from honest answers during immigrant/flier volunteer work, not from her warming first. Ch 1 hostility is the starting temperature. Spark, then deepen; do not complete in one chapter
-- **Cath on the volunteer beat:** present, not counselor. Do not advise Dain into choosing the gryphon-bonded
-- **Couple mirror:** Violet/Xaden ~ war/death; Dain/Sloane ~ love/life. Metaphor only. Gods are in-world; riders stay human and do not become them. Same mechanism (help the other see feared power as protection). Family/Loysam blank until built.
