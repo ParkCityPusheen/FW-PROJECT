@@ -570,15 +570,23 @@ Dain carefully pulls the glaive away, lets the shaft slide along his hands to ge
 
 Ferris is howling, knee slapping, hand over his mouth, "Aetos, you're more than a daddy's boy aren't you?!"
 
-Dain ignores the General, removes his uniform top and presses it into Jareth's hands, then retrieves her daggers with the hand free of the glaive, "No hard feelings," he assures her, voice quiet enough for just her to hear.
+Dain ignores the General, removes his uniform blouse and presses it into Jareth's hands, then retrieves her daggers with the hand free of the glaive, "No hard feelings," he assures her, voice quiet enough for just her to hear.
 
-"How could I have any? Didn't know you ever even used a glaive. Pretty unforgiving weapon, and you tend to like normalcy. Fair match."
+His body reflexively jerks seeing the greyish outlines of handprints against the skin of his exposed forearms; he should be used to seeing these scars already, but they're just as ugly as the day he'd been gifted them. They'd never be anything besides that; he shouldn't have taken the blouse off.
 
-He ponders at her analysis of him, only for a moment after hearing her hiss. She presses his worn out uniform to her bleeding ear, "Go see the Mender, tell him I'm asking a favor."
+"How could I have any? Didn't know you ever even used a glaive. Pretty unforgiving weapon. Fair match." she concedes with a charming smile that he nearly manages to return.
 
-Jareth smiles, "Thanks."
+He ponders at her analysis of him, only for a moment after hearing her hiss. She presses his worn out uniform to her bleeding ear, "Go to medical," he rushes out, the same stern command Darius had given him after Draithus, "Ask for Darius, or Kaia, might get you prio."
 
-She ducks away, holding both daggers in one hand.
+No harm in finding out whether Darius would pull a string or two for him.
+
+Jareth grins this time, "Thanks. It's really not that serious an injury, but maybe you could loosen up a bit now that I've let you draw blood?" 
+
+Dain rallies, calling after her, "Let me?"
+
+"You heard me, Dain!"
+
+In her exit she locks eyes with Varen, and the two share a nod, probably a silent passing of duty and expectation.
 
 Dain flips the glaive horizontal, rotating it against his palms; mastering another weapon will take time, and he's not even sure this is the polearm he'll settle for. Still, Dain knows better than anyone it's never too late to make a decision against his gut.
 
@@ -604,13 +612,15 @@ Dain chokes, "I'm sorry, *what?*"
 
 "I didn't say *he* was hot, I said his weapon wielding was hot." He wiggles a finger at his red headed year-mate, "Also he's supposed to teach us things."
 
-"I, for one, agree with the baby rider." Ridoc adds, emerging from the growing crowd with Violet tagging along, "Definitely kind of hot."
+"I, for one, agree with our baby boy." Ridoc adds, emerging from the growing crowd with Violet tagging along, "Definitely kind of hot."
 
 Dain grimaces.
 
-"Okay, never call me that again Gamlyn." Baylor chastises, "I don't think that came out the way you wanted it to."
+"Okay, never call me that again Gamlyn." Baylor chastises, "I might be boy, but I am far from baby."
 
-Ridoc slaps his hands over his mouth and Violet giggles.
+Ridoc slaps his hands over his mouth, "Oh, excuse me, big man."
+
+"Much worse, I would like to redact my previous demand." Baylor gags, while Violet breaks into a fit of giggles.
 
 Matthias isn't too far away to hear the lighthearted laughter, "First laugh in like two whole days, Vi." the Squad Leader comments.
 
@@ -648,7 +658,9 @@ Violet's head swings to Dain and then to Sloane,
 
 "Sloane," her tired eyes harden, "he doesn't need to report his whereabouts to anyone. Relax."
 
-Dain swivels to face the blonde. He'd no idea not playing the part of know-it-all would be received so poorly. He *wants* to go study for the geopolitical final examination the third-years are having soon, he wants to buy another uniform so that he's got more than two to wear to the midland posts rotation soon. He wants a cup of coffee. He wants to graduate and get stationed somewhere he can become one with the general population, marry and change his name, just disappear into duty. He wants many things, but no longer is being included in this little group one of them.
+Dain swivels to face the blonde. He'd no idea not playing the part of know-it-all would be received so poorly. He wants to study for the geopolitical final examination. He wants another uniform before the Midland posts rotation. Coffee. Graduation. To be stationed somewhere far enough away that he can disappear into the general population, marry, change his name, and become someone no one here has ever heard of.
+
+He wants many things. He wants many things, but as of late, being included in this little group is not one of them.
 
 "No it's fine. Mairi, I misunderstood my place." Dain snaps back, his voice is viscid with frustration, "Do I have your permission to fuck off?"
 
@@ -1012,7 +1024,7 @@ He leans back into the opposite wall, careful not to press into the door paralle
 
 "It's gets the darkest before the dawn, Aetos." Jareth procclaims, patting his left bicep and reaching a hand out to her door, pulling down the handle, "You should go eat. I never see you in the Mess Hall during meal hours. You probably haven't eaten if pattern recognition says anything about you."
 
-"Worried about me?" He jokes, standing up straight and moving to walk away, "Thanks for this Jareth, I—"
+"Worried about me?" He jokes, standing up straight and moving to walk away; he catches a glimpse of the ear he cut—*sliced* apparently, because there are several neat stiches, red with irritation tracing straight across it, "Thanks for this Jareth, I—"
 
 "Eleni," she cooes, face going red up to her high cheekbones, "Eleni is fine, I know you afterall."
 
@@ -1071,6 +1083,10 @@ She stamps her foot, "You know, everyone was thinking you'd finally come around 
 Dain's head jerks up. Cath isn't hovering over him, there's only rafted cielings to behold here in the Mess Hall.
 
 *"Enter this turmoil on your terms."*
+
+He can feel his eyes go unsensibly wide while Catriona glowers over him. He could ask. Doesn't mean he has to do anything with whatever he learns, and at that thought, Cath hums a sound of draconic approval.
+
+That's right. No one can *make* him do anything.
 
 "Where is Riorson?"
 
