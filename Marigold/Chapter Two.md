@@ -1,38 +1,36 @@
 Riorson House is truly an architectural feature of its time.
 
-Dain, easily impressed by man-made structures of all types, stands in obvious awe of the double staircase that yawns ahead of him at the end of the Great Hall. Each leveled landing is staggered further into the stone edifice, sinking backwards as if falling away from him as he stands before it. The entire composition of the staircase is carved directly into and out of the stone mountain to reveal the fortress in all its grandeur. He can't help but compare it to Basgiath; both locations contain arrangements worth dropping a jaw at.
+Dain, easily impressed by man-made structures of all types, stands in obvious awe of the double staircase that yawns ahead of him. Each leveled landing is staggered further into the stone edifice, sinking backwards as if falling away from him as he stands before it. The entire composition of the staircase is carved directly into and out of the stone mountain to reveal the fortress in all its grandeur. He can't help but compare it to Basgiath; both locations contain arrangements worth dropping a jaw at.
 
-He runs his hand along the thick stone bannister's top, fingers stuttering over the Tyrrish masonry, admiring subtle details visible only to the wandering eye. He wonders what parts of the fortress he might not be allowed in, considering it houses this obelisk of a staircase, and what those areas might look like. If they also exist at such a scale.
+He runs his hand along the thick, stone bannister top, fingers stuttering over Tyrrish masonry, admiring subtle details visible only to the admiring eye. He wonders what other parts of the fortress he might not be allowed in, considering it houses this obelisk of a staircase, and what those areas might look like. If they also exist at such a scale.
 
-He hasn't even properly flown over Riorson House to see it from above because he fears being casually skyborne with Cath might be cause for concern. Dain reasons they're already suspicious to anyone here in ill-standing with Navarre.
+He hasn't flown over Riorson House to see it from above the way he'd like, slow and circling, because he fears being casually skyborne with Cath might be cause for concern. Dain reasons that they're already suspicious to anyone here in ill-standing with Navarre.
 
-Which is everyone, probably.
+Which is mostly everyone, probably.
 
-*"If you would like to see it you may. We can take to the skies now. No human will question me where I wish to, nor when I shall fly—and certainly not why."*
+*"We may take to the skies now. No human will question when I wish to, nor where I shall fly, and certainly not why."*
 
-The Red's words are filled with ire and rancor that bloats the bond while the smell of breakfast kicks up an entirely separate set of senses. Dain's nostrils flare, dragging it in with a greedy sniff. He hasn't eaten in over twenty-four hours, which isn't an epidemic or life threatening, but the smell of eggs and butter-soaked honey biscuits make his belly cramp in anticipation.
+The Red's words are filled with ire and rancor that bloats the bond, while the smell of breakfast kicks up an entirely separate sense within his rider. Dain's nostrils flare, dragging the savory scents in with a greedy sniff. He hasn't eaten in over twenty-four hours, and that's not an epidemic or life threatening, but the smell of eggs and butter-soaked honey biscuits make his belly cramp in anticipation.
 
-It's early enough that it's not odd for him to be eating, but usually he'd be nicking names off his mental checklist of cadets within his Wing. He considers doing just that; exiting out of the Aretian Fortress to round its flank and up to the valley above where cadets have been ordered to muster prior to eating... But, he has Squad and Section Leaders to collect reports from, to avoid doing it all himself. Dain chews the inside of his cheek and leans forward against the beginning of the thick bannister, eyes dropping to the intricately designed carpet that runs the length of the hall.
-
-Exactly what kind of blinders had he been wearing up until this point, and why did it take nearly losing Cath to remove them?
+It's early enough that it wouldn't be odd for him to be eating, but usually he'd be one-lining names off his mental checklist of his Wing's cadets. He considers doing just that; exiting out of the Aretian Fortress up to the valley above where they all have been ordered to muster prior to eating... But, he has Squad and Section Leaders to collect reports from, to avoid doing it all himself. Dain chews the inside of his cheek and leans forward against the beginning of the bannister, eyes dropping to the intricately designed carpet that runs the length of the hall.
 
 The whole concept of leadership was mostly the ability to recognize reliability, so why had he been doing everything alone? He'd pitched himself so far into perfection that he forgot what it meant to inherently trust others. He shakes his head a bit at the thought.
 
-Dain looks back up the double polished staircase, noticing the diaphanous light filtering from the earliest hint of dawn. It breaks through the collection of small windows trailing adjacent to the ascending steps, speckling the stone wonder. He isn't *needed* to make sure perfectly capable adults wake themselves up and find themselves accounted for where they know they should be. So, Dain shuffles haggardly towards the Mess Hall.
+Exactly what kind of blinders had he been wearing up until this point, and why did it take nearly losing Cath to remove them?
 
-*"Correct choice, Hatchling."* Cath comments, tersely, *"Eat, then come to me."*
+Dain looks back up the double polished staircase, noticing diaphanous light filtering in from the earliest hint of dawn. It breaks through the collection of small windows trailing the wall adjacent to the ascending steps, speckling the stone wonder. He isn't *needed* to make sure perfectly capable adults wake themselves up and find themselves accounted for where they know they should be. So, Dain shuffles haggardly towards the Mess Hall.
 
-Dain's eyes meet several other's belonging to a group of veteran Aretian riders, one gives him a thumbs up and the Wingleader exchanges a grimaced smile,
+*"Eat, then come to me."* Cath demands, tersely.
+
+Dain's eyes meet several others belonging to a group of veteran Aretian riders, one gives him a thumbs up and the Wingleader exchanges a grimaced smile,
 
 *"Where are you?"*
 
 *"Valley. Watching your humans trickle in."* the swordtail drawls disdainful.
 
-Breakfast provided is an assortment of light meats from several birds and their eggs, sauteed vegetables and sweetpeppers, and seasonal fruits harvested from local farms. Dain waits in line, fills his plate with the brownish scrambled yolks from some type of Tyrrish pheasant and both offered sides.
+Breakfast provided is an assortment of meats from several birds and their eggs, sauteed vegetables, sweetpeppers, and seasonal fruits harvested from local farms. Dain waits in line, fills his plate with the brownish scrambled yolks, the meat from some type of Tyrrish pheasant, and both offered sides. He helps himself to two biscuits, the biggest he could find of the bunch, and a cup of coffee with some milk. He gives his name to the bookkeeper at the end of the buffet line and finds a seat at a smaller table along the outskirts of the Mess Hall.
 
-He helps himself to two biscuits, the biggest he could find of the bunch, and a cup of coffee with some milk. He gives his name to the bookkeeper at the end of the buffet line and finds a seat at a smaller table meant only for a party of three or four along the outskirts of the Mess Hall.
-
-His first sip of coffee is hot along the roof of his mouth and tongue and goes down easy; he feels insouciant and warm. There's no time between shoving the fluffy Tyrrish biscuits into his mouth, sending them to his stomach with the coffee, and then the eggs as he begins loading his fork with another round of peppers.
+His first sip of coffee is hot along the roof of his mouth and goes down easy; he feels insouciant and warm. There's no time wasted between shoving fluffy Tyrrish biscuits into his mouth. They're sent to his stomach with his drink, and then the eggs as he begins loading his fork with another round of peppers.
 
 *"Slow down,"* Cath spits out, acerbic tone even more unimpressed than usual.
 
@@ -40,27 +38,27 @@ Dain groans, but he squints with regret when the sound slips out more akin to a 
 
 *"I can see and hear that."*
 
-*"I want to be there before the professors get out there,"* Dain admits, hovering a forkful of eggs and bird and peppers,
+*"I want to be there before the professors get out there,"* Dain admits, hovering the next forkful of eggs and bird and peppers.
 
-*"You will be, at the rate you refuse to chew your food,"* there's a sudden silence, then Cath adds, *"There is a human here, looking for you. The one with the roped hair."*
+*"You will be, at the rate you refuse to chew your food,"* there's a sudden silence, then Cath adds, *"There is a human here, looking for you. The one with roped hair."*
 
 *"They aren't ropes, they're braids, Cath."* Dain answers, tentative and assuming, *"Matthias?"*
 
-*"No, not Feirge's, the one in blue."*
+*"No, from the medicinal units."*
 
-Ropes? Not braids. Locs, then; so Darius, Dain thinks. He pictures the cocoa-skinned healer, draped in minty-blue robes,
+Ropes? Not braids. Locs, then; so Darius, Dain thinks. He pictures the cocoa-skinned healer, draped in minty-blue robes, and Cath confirms,
 
-*"Yes, that one. Darius."*
+*"Yes, that one."*
 
 Oh.
 
 Dain scrapes his food around on his plate, *"Wonder what he wants."*
 
-*"He only asks your whereabouts, not what he wants with you."*
+*"He hasn't answered the one who asked."*
 
-*"Has anyone asked him why?"*
+He chews slowly, wondering who might care enough to ask. Or *hate* him enough, like Sloane had yesterday when she asked if he and Darius were friends.
 
-Cath takes a moment, then: *"Yes, the one who hit you."*
+*"Yes, the one who hit you."*
 
 Dain rolls his eyes; Cath has a strange liking of Sloane Mairi... Probably because she successfully fixed him in the jaw twice. He had never heard Cath *laugh* until that day in the Assembly Chamber. He'd nearly frozen reveling the sound of it; a cavernous and draconic, baritonal timbre that echoed in their bond and straight to his heart.
 
@@ -68,37 +66,35 @@ When he doesn't say anything Cath continues leisurely:
 
 *"Seems he has no interest in placating her curiosity."*
 
-Meaning Darius probably ignored her or said something just as smart right back to her like he had in the theatre yesterday.
-
 *"Sounds exciting."* Dain scoops up the rest of his eggs, feigning interest, but Cath doesn't respond anyways.
 
-The rider finishes his food first, then takes his time draining the rest of his coffee. He considers finding time to sneak away into town after realizing he doesn't have a thermos that could grant him a second or third or fourth cup depending on the size he purchases. It would be nice, to wash away misery with a scalding cup of coffee in any instance. The thought prompts another as he stands up, carrying his tray of food to the staff on the opposite side of the food, handing it gently to the woman half the size of him, eyes crinkling at the corners when she smiles up at him in greeting.
+The rider finishes his food first, then takes his time draining the rest of his coffee. He considers finding time to sneak away into town after realizing he doesn't have a container to put it in. It would be nice, to wash away misery with a scalding cup of coffee at any instance. The thought prompts another as he stands up, carrying his tray of food to the staff on the opposite side of the buffet line. He hands it gently to a woman half the size of him and her eyes crinkle at the corners when she smiles up at him in greeting.
 
-Dain's not sure he even has the funds to purchase a thermos for hot liquids. He thinks of steel and ceramic, then their prices. Momentarily he experiences the embarrassment of not having the funds, but it dissipates into irritation acknowledging exactly *why* he's got about a hope and a dream worth of funds.
+Dain's not sure he even has the funds to purchase a thermos for hot liquids. He thinks of steel and ceramic, then their prices. Momentarily, he experiences the embarrassment of not having the funds, but it dissipates into irritation while acknowledging exactly why he's got about a hope and a dream worth of funds.
 
 Fucking Basgiath. Navarre. His father.
 
 One inevitably equates to the other since he'd split the quadrant, and never in good regard when it came to his personal life. When his father disowned him after his return from the Isles it had become alarmingly clear that he'd done all that he'd needed to to make sure Dain understood exactly how dead he was to the man.
 
-Dain Aetos had been removed and disinherited from the Aetos family registry entirely, as if he'd ceased to exist at all. His access to the household treasury had been revoked, along with all the money accumulating during his active service at Basgiath; two-hundred gold pieces is what Dain maintained in currency and it was only because he'd planned on buying some extra uniforms with it after graduating.
+Dain Aetos had been removed and disinherited from the Aetos family registry entirely, as if he'd ceased to exist at all. His access to the household treasury had been revoked, along with all the money accumulated during his active service at Basgiath up until Violet's expedition. Two-hundred gold pieces is what Dain maintained in currency and it was only because he'd planned on buying some extra uniforms with it after graduating.
 
 He's not sure what the result of continuing to eat without a treasury assigned in his name will be, either. Maybe he'll receive a bill alongside his officer rank during graduation, totaling the expense of every combined meal since his disownment. He'll feel every drop of coffee he'd ingested in the form of an indebted punch to the teeth.
 
-It would be simple to travel out Riorson House and into the city it overlooks and establish himself with a merchant house, but he'd need a steep deposit to do even that, *especially* as a Navarrian citizen in Tyrrendor; only the Tyrrish weren't additionally taxed to trust income, loans, and savings within Tyrrish Banks. In addition to the deposit he'd need the time, and there were hardly enough hours in the day for him to sleep without being questioned for it.
+It would be simple to travel out Riorson House and into the city it overlooks and establish himself with a merchant house, but he'd need a steep deposit to do even that, *especially* as a Navarrian citizen in Tyrrendor; only the Tyrrish weren't additionally taxed to Amari's throne on income, loans, and savings within Tyrrish Banks. Regardless, in addition to the deposit he'd need the time, and apparently there were already hardly enough hours in a day for him to sleep without even being questioned for it.
 
 Money troubles is one thing, and then there's his legitimacy as a literal person. He was meant to inherit certain of his father's properties, intended at using his name, wearing their crest, parading it as he climbed in rank——but Gods be damned, Dain didn't even want to serve at this point, and he would fucking stop if it weren't for dragons sharing a mutual enemy with humankind.
 
-He needs to eradicate all venin before he can disappear into a forest somewhere and live unbothered and unknown. But, for now, without an associated merchant house or household treasury, the funds he's actively earning while risking his life at this fucking war-machine of a college are entirely free, with nowhere to be stored.
+He needs to eradicate all venin before he can disappear into a forest somewhere and live unbothered and unknown. But, for now, without an associated merchant house or household treasury, the funds he's actively earning while risking his life at this fucking war-machine of a college are entirely negative or nothing at all, with nowhere to be stored.
 
-Despite the raging stream-of-consciousness rolling in his thoughts, Dain swaggers to the valley in perceived equanimity, eyes lowered to the floor, and arms swinging by his side.
+Despite the raging stream-of-consciousness rolling in his thoughts, Dain swaggers to the valley in perceived equanimity, eyes lowered to the floor, and arms swinging by his side. He grins psychotically to himself. How much more should he silently accept before he draws the line? 
 
-Dain grins psychotically to himself, how much more should he silently accept before he draws the line? He hopes he looks fine, because everything is far from it.
+He hopes he looks fine, because everything is far from it.
 
 ---
 
 Dain arrives with impeccable timing at the base of the valley.
 
-He wordlessly receives the paper muster-reports from each of his Section Leaders; each contain their Squad Leader's reports, together a cohesive attendance of the whole Wing to be delivered by himself to the superior awaiting them.
+He wordlessly receives the paper muster-reports from each of his Section Leaders (excluding Bodhi, who's probably off with Riorson and Tavis doing what Riorson, Tavis, and Bohdi do). Each contain their Squad Leader's reports, a cohesive attendance of the whole Wing to be delivered  himself to the superior awaiting them.
 
 Said superior is part of the Assembly, and now their rune professor, accompanied by Professor Devera.
 
