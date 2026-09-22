@@ -24,9 +24,9 @@ Tyrrish wards have been extended, Dain's sure, based on the change in continuity
 
 His eyes flicker over his Wing, at those who returned to Aretia, and once more he recalls those who never will.
 
-He remembers Cath's careful maneuvering (before Riorson's intervention, because what else could that have been besides Riorson) around the town's structuring. His Red should be celebrated for his fancy footwork while fighting wyvern. Dain shakes off the horrified looks of refugees, Tyrrish townsfolk and immigrants alike, watching them slaughter what they can. 
+He remembers Cath's careful maneuvering (before Riorson's intervention, because what else could that have been besides Riorson) around the town's structuring. His Red should be celebrated for his fancy footwork while fighting wyvern. Dain shakes off the horrified looks of Poromish townsfolk who were watching the duo slaughter what they could.
 
-Dain blinks, his mind is an absolute mess, an unorganized coagulation of responsibility, worry, and pain. He can recognize he's devolving into a nervous, fidgeting wreck. He wishes for just a single moment that he could stop shielding—that he wouldn't be a victim to his *own* victims; pilfering through the memories of everyone around him regardless of proximity.
+He can recognize he's devolving into a nervous, fidgeting wreck. He wishes for just a single moment that he could stop shielding—that he wouldn't be a victim to his *own* victims; pilfering through the memories of everyone around him regardless of proximity.
 
 He sucks in a ragged breath and staggers where he stands, body rigid and numb to his own injuries. It's noisy in the theatre, the noisiest it's ever been, with Professors shuffling to and fro, Aretian healers bounding between waves of the mildly injured and stable, even some of the highest ranking available in Aretia peek inside through the heavy wooden doors, faces creased and pinched with concern. Dain chokes down another breath and attempts to still himself. Cath allows Dain's emotions to wander far from his typical thresholds of control; his dragon has always been uncharacteristically gentle for his color.
 
@@ -38,7 +38,7 @@ He didn't deserve the stern reassurance that was pushed into their bond when the
 
 The scenes play again in his mind, again, and again, and yet again.
 
-Dain is still there, dozens of meters behind Cath's flicking tail as it slices through the air. He recognizes the signs of fatigue in his bonded: Cath's body flattened to the cold, grey flagstone; his chest expanding and contracting as ragged breaths slip away from his diaphragm. And, most notably, the dragon's worrying that smothers Dain just before Cath realizes his panic has seeped into their bond and he overwrites any traces of it with encouragement.
+Dain is still there, dozens of meters behind Cath's flicking tail as it slices through the air. He recognizes the signs of fatigue in his bonded: Cath's body flattened to the cold, grey flagstone, his chest expanding and contracting as ragged breaths slip away from his diaphragm. And, most notably, the dragon's worrying that smothers Dain just before Cath realizes his panic has seeped into their bond and he overwrites any traces of it with encouragement.
 
 Cath had held his position fearlessly in the face of his foes but the Red worried for his bond, for his human barely the size of one of his talons. They're outnumbered, they're both exhausted, and in the moment that the wyvern closest to Cath is able to strike it does so, just as the deep marigold of his eyes flick impossibly backwards to find Dain heaving and bleeding against the stone walls.
 
@@ -70,17 +70,7 @@ Dain manages to just barely silence a hysterical bark of laughter as his mind lo
 
 All this time he'd been slaving behind Violet, attempting to protect her, to befriend her after squandering the beautiful friendship they had, to be a useful tool for her, but what had he done for his own sake? 
 
-Effectively alienated himself from both peer and parent (sidenote: he does not miss his father), and it all amounted to a sickening *nothing* in light of all he'd learned and earned from his majestic beast.
-
-Oh, but wait, there's more!
-
-He's misguided, lost for lack of a better word.
-
-He's lonely, friendless in all honesty.
-
-He's tired, and he always is.
-
-He's lived a lie; his future is bleak, and what use is he without purpose. Purpose that he had before the Gods revealed that the kingdom and crown he fought, studied, and adhered to so valiantly were all but a fucking curated delusion.
+Effectively alienated himself from both peer and parent (sidenote: he does not miss his father), and it all amounted to a sickening *nothing* in light of all he'd learned and earned from his majestic beast. He's lived a lie; his future is bleak, and what use is he without purpose. Purpose that he had before the Gods revealed that the kingdom and crown he fought, studied, and adhered to so valiantly were all but a fucking curated delusion.
 
 Suddenly, as the healer coerces another to huddle around him, his body stops shaking.
 
@@ -132,7 +122,7 @@ Dain's focus pinpoints on him, eyes narrowing and his breathing coming more cont
 
 "Should I be aware of your usual conditions myself?" he snaps.
 
-The healer scoffs, head dropping to the side in disinterest, "Aretia has witnessed enough of you and your father to recognize what is, and is not like you. My life is as simple, as I've designed it, with far less prying eyes."
+The healer scoffs, head dropping to the side in disinterest, "Aretia has witnessed enough of you and your father to recognize what is, and is not like you. My life is as simple as I've designed it, with far less prying eyes."
 
 Dain feels his lips curling at the edge, baring themselves for a sharp retort when the slightest burst of agreement passes into the bond from Cath at the healer's statement.
 
@@ -864,7 +854,7 @@ Dain lets his teeth clench, gripping his waistbands even lower when Brennan's ha
 
 Brennan chuckles, the asshole is completely unaware of how badly this shit hurts, "Do you always talk to Cath like that? Marbh would cook me."
 
-*"Marbh is snooty and likes to hear herself talk."*
+*"Marbh is snooty and likes to hear himself talk."*
 
 "I—" Whites and reds and yellows explode across his vision and he bites his bottom lip, teeth sinking into flesh so quickly he begins to bleed, "Brennan I need to sit down."
 
