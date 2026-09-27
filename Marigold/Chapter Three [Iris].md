@@ -408,9 +408,9 @@ Their eyes meet again and Dain pushes his plate to the side.
 
 Sloane blinks, "Where?" 
 
-"Library."
+"Fifth floor terrace."
 
-No one says anything afterwards, but all of the girl exchange glances.
+No one says anything afterwards, but all of the girls exchange inquisitive glances.
 
 Dain gets up to head to their next class.
 
@@ -520,16 +520,284 @@ His friend grins up at him as Dain begins packing up to go,
 
 ---
 
+*"You're being difficult."*
+
+*"I'm really not."*
+
+It occurs to dain that he doesn't have any clothes to wear besides his uniform the Saturday afternoon that he decides to take a trip into Aretia; he doesn't have an issue going around in it or anything, but he'd prefer maybe not wearing it from time to time. Especially now that he's managed to unseam Basgiath from his nervous system.
+
+He's been considering buying some civilian clothing with the few coins he has.
+
+*"I am just before the courtyard, come."*
+
+He pauses, rolling his shoulders and dropping his head back to stare at the cieling as if Cath would be there,
+
+*"Cath you're injured, I'm healed, I can walk."*
+
+*"You are still in pain."*
+
+Dain rises from where he'd been squatting in front of his armoire, grabbing his Itinerarium (dubbed thee) and hanging up his freshly laundered uniform, the other of which he wears. He closes the armoire and looks at his boots; he still hasn't washed the blood off of them. From his table he collects post and patrol rotations that he intends to pass on to Jareth, before leaving the fortress.
+
+*"It's nothing bad if I take my time, everything will settle soon enough."*
+
+Or so he hopes.
+
+Rumbling outside, so powerful it makes tiny window tremble, wakens his focus once more. He means primarily to stop at one of the stationary shops to buy refills for the Itinerarium, prefferably ones with more than sixty-four pages. Some officiant parchment too, so he won't need to concern himself with it when it comes time to notate Sloane's progress. He shifts, turning towards his door to stare at the knob, maybe even a new pen so he won't have to see the one his father gifted to him; it exposes too many wounds he's not willing to acknowledge, too often. He pushes the handle downwards flip-flopping on wether or not to try looking for a canteen, maybe something cheap.
+
+He doesn't need it to be nice, it just needs to work.
+
+*"It's going to rain."*
+
+*"That's fine."*
+
+He's got approxiamtely four hours to be back in Riorson House boundaries, hail Zihnaland all his miracles—Catriona Cordella is leaned against the wall directly parallel to his door, here to piss him off likely four all fucking four of those hours.
+
+Lucky for her, nothing ever goes his way anyway, so he squares out his shoulders and sucks in the sigh that chips his teeth in it's retreat,
+
+"Catriona."
+
+"Aetos." she kicks off the wall, uncrossing her arms and going rigid, "Before you start mouthing off, listen to me."
+
+He shuts his door and pressed his back to it, adopting her retired stance, "Go ahead."
+
+"The last few days have been rough for me. I don't care if you forgive me or get over it, but the way I handled my own fear was irresponsible."
+
+Dain nods, jerks his chin up in greyed assent and turns to make his way down his floor's hall,
+
+"Heard." he responds, "You have watch at Aretia's eastern boundaries tonight, twenty-hundred."
+
+Catriona is a very persistent person, and she doesn't let up, not in her sparring, her flying, and definitely not now.
+
+"Keep walking away from me, because that's going to fucking help."
+
+He maintains his speed, striding down the hallway with steps that take nearly a half more of her own to keep up with him, "Context is appreciated, just not right now."
+
+Not right now.
+
+Right now he needs to make it into town before it rains——
+
+*"Courtyard. I will take you to the temple, you will need only limp so far."*
+
+——without his *rehabiliting* dragon, for journeybook refils, maybe a pen, and possibly a canteen or thermos, a flask of some sort.
+
+"Where are you even going?"
+
+"To the Outer Quarter."
+
+Her voice is displaced against the walls of the hallway, litling with irate displeasure, "For who?"
+
+"For no one. I need stationary." She reaches for his uniform, pawing out to grap at his forearm, but Dain jerks away, flicking out his hand so harshly it catches her own and forces her backwards,
+
+"*Don't* touch me." the words explode from his mouth, jagged and harsh, loud enough to make her flinch.
+
+Her hands fly up, surrendering immediately before speaking again, "I won't touch you again. But I would like you to listen to me. I—" she grinds her teeth together, jaw straining where it connects to her skull, "I don't think I can properly convey this to anyone else who is also so closely involved with Riorson and Sorrengail without being removed for it."
+
+Her facial expression, the names mentioned, and her tone of voice is enough to make him concerned. How fucking unfortunate.
+
+"Walk then, I need to get in town before it gets too late."
+
+"...may I ask why?"
+
+Dain gives her a look, "Because I want to get back in enough time to get to sleep early, Catriona. A crime, I know."
+
+She doesn't reply, instead bounds down all five stories of the Fortress's beautiful staircase right alongside him, ignoring the few glances that they recieve,
+
+"There's still no report of Riorson returning from Draithus, and no sightings of Sgaeyl either."
+
+Tairn hasn't been seen either, only Andarna accompanies Violet when she makes it to class.
+
+"Where was he seen last in Draithus?"
+
+"I'm not sure..." she chews her lower lip, "But some of the fliers and their gryphon reported he and Sgaeyl chasing Wyvern east past the city gates.
+
+He remembers Cath seeing Riorson and his deggertail by the city walls, but nothing more than that. But that's the complete opposite direction that Catriona claims; northwest is where Cath had seen them before they headed east to intercept more airbourne wyvern and venin.
+
+*"He was meant to hold the northern expanse with other of his rank"*
+
+Dain slows his trek for only a second as his feet hit the rug-clad floor of the Great Hall, *"He did, then he moved closer to the city, where you saw him."*
+
+*"Yes. I did not keep further observance of Sgaeyl beyond that."*
+
+"Cath says they were meant to hold Draithus's northern keep," Dain begins, "Was he ordered to remain stationary?"
+
+"No one is telling Navarre's strongest wielder to stay in one place during a berserk takeover, not even your King."
+
+"What's the issue that he left his initial location then?"
+
+Catriona gives him a bewildered look, "It's not that he left his post, it's that he never came back. He's still missing."
+
+"He's not dead."
+
+They exchange a knowing glance and Violet's name launches off their tongues at the same time.
+
+"Assuming his mate still has both her dragons, no." Catriona agrees, bounding ahead to push at the wrought iron, banging against the secondary gate before Riorson House's reinforced doors. They wait for the stationed post to pull the doors open ahead of them with a small group of people that accumulates as they continue speaking, "And she might not seem well, but she's not in the shape that she was when her smaller one went missing."
+
+The Fortress doors yawn open, gaping outwards and letting sunlight flood inwards, he and Catriona continue on. Cath is just ahead, a far walk onwards, but large enough to be plainly percieved from the castle entrance. He's sitting like a cat, with his tail flicking about in annoyance behind him just like one too.
+
+"My turn then." He stops once they're in the middle of the courtyard, staff, civilians, cadets, and officers pass them, breaking around them with disinterest and probably content consdiering how abruptly Dain comes to a stop,
+
+"What's in motion that it's imperative that *you* know where he is at this time?"
+
+Catriona howls out a laugh that nearly makes Dain jump.
+
+"My fucking *province* Aetos, and everyone in it, my sister, my uncle, Marin, Kai, Marin's brothers, every citizen spilling into this disgusting place for shelter. Riorson is the only noble who actively fought and advocated for those beyond the border. He's one of the few who fought alongside my Province's ranks since the beginning in supprt of us. Because if he's gone, who do they have to believe in besdies Tecarus and what—the assembly?"
+
+She shakes her head, "Don't make me fucking laugh."
+
+They make it a few dozen meters out, about halfway to Cath, and Catriona is speaking again, "Draithus is being evacuated, the townsfolk and surrounding locals are coming *here* where the borders have only just opened, not to mention the Unnbrish infantry that are also meant to be quartered here..."
+
+That's a terribly steep influx of mouth's to feed and housing to provide that Aretia may or may not have; afterall, it's a location still recovering from a previous tragedy itself. He's heard some of the staff muttering about how difficult it can be to obtain the food just to feed Basgiath's cadets, and even more once Cliffsbaine's fliers were absorbed into the college.
+
+His eyes watch her braided hair swing from side-to-side as she stalks forward, "It means nothing to Navarre's King to pull the rug out any second——"
+
+"——he can't. He'd risk Tyrrendor, Riorson wouldn't allow that. The Aretian cadets wouldn't return to Basgiath."
+
+"And?" She tosses him a profoundly disturbed glance from over her shoulder, "Riorson isn't here to enforce any of that. Neiher is Bohdi. Do you see what I'm getting at? Those who answer for Tyrrendor are *gone.* Who do we answer to when we reside in their house?"
+
+They reach Cath about five minutes later and Dain turns to her, "I'll look into it."
+
+"*Please.*" Catriona drops her chin a bit, "I can't casually ask these things. It doesn't feel right, and I have enough to worry about. I have my own orders. I can't be all of these places and I can't be there for all of these people all at once."
+
+Cath stands, lowering his head to peer at Catriona from behind Dain and Catriona bows in response. And, as if his plate weren't so full things for other people that he's naseaous just thinking about it without even have taken his first bite, Dain accepts Catriona's addition.
+
+But, it feels different.
+
+"I don't mind." he tells her.
+
+Cath snorts behind him, raising his head back to the skies, *"What are you thinking?"*
+
+Dain peers upwards, opting to watch Cath instead of Catriona's shrinking figure as she reenters the Fortress,
+
+*"Missing superiors, missing eggs."* he drawls, *"The optics aren't looking good. And I'm more than certain my Dad will take advatage of this once it reaches him."*
+
+Suddenly, Violet's memories and their conversation in Brennan's office is much, *much* more of a tell. There's no way Violet isn't being affected by this.
+
+*"I belive this will inevitably come to effect you, Hatchling. You're already here, come. It is but a five minute flight compared to your one hour limp."*
+
+*"It's a twenty minute walk, Cath."* Dain mumbles, but begins his climb up the side of the swordtail regardless, *"Yeah, I think so too. Not sure where I'll end up being pieced into it currently, so for now I'll just do what I can to help Sloane and my Wing. I still need to graduate regardles."*
+
+Once Dain has fitted himself to the notch at the base of Cath's neck, he gets situated, pulling his flight goggles down over his eyes,
+
+*"The Empyrean toils so. Worry not."*
+
+*"What do you mean by that?"*
+
+Cath stands, wings stretching outwards; the personnel beneath them begin to duck away, shielding their faces from the Red's inevitable ascent, *"Trust and time. It is what you need. So, trust me. Assess what you need to."* Dain feels the hair on the back of his neck lift at Cath's tone, but their bond is warm, glittering and wide open; Dain tucks himself away in it out of habit.
+
+Riorson House shrinks away in just a few shuttering blinks.
+
+It's warm still, though the sun hasn't shown itself since late yesterday evening, and Dain admires the cloud coverage above them. It's monotonous, but somehow millions of shades of grey exist within them, puffing outwards like the goose-filled pillows Dain particularly likes. Cath soars just beneath them, revealing their lies; clouds aren't ever something a person could reach out and grab, no matter how believable it seems. It's colder at this altitude and just as he considers sticking a hand out to feel the humid air, so thick it lapses over itself in grey blankets, Cath pulls him back against the seat with is magic.
+
+Dain's head and neck jerk downwards, and over the far left side of Cath's body he recognizes Aretia down below. Lightposts powered by runes glitter in dispersed locations about the villages, and Dain can make out swells of townfolk as they advance. Cath makes a wide spiral to land them in the forrest verge just at the outskirts of the sparse, smaller villages before the denser, inner-city.
+
+There's construction dappled in both between and around established buildings and in residential areas, proof of Poromish settling in; he thinks of Catriona's concerns, becoming clammy seeing children fretting about in the streets, giggling. The Poromish are already appropriately establishing themselves, in what Dain hypothises as successfully and peacefully with the Aretian natives. 
+
+Where would they go if they were displaced, and why should they be?
+
+He makes his way smartly from the seat, fitting his boots in to the scale pattern he recognizes so well until he can place his foot into the grassy forest edge. Dain doesn't hop down the last few feet to avoid a sure scolding from Cath regarding his healed but fragile hip. His dragon rustles the earth awake when he moves to collapse against the ground, watching Dain go with a gaurded look.
+
+He tucks his flight goggles into his trouser pouch by his wallet and begins traversing the Outer Quarter's villages. There's food stands, a growing open market, and townspeople scaled above him on the plant covered terraces of their homes that are pressed close together in most place along cobblestone streets where hourse and carriages pass him by occasionally. His eyes track business signs, and he finds *Pepper's Postages* just after a cobbler's bright yellow workshop, and before a printing press called *Aretia Locale.*
+
+It smells oddly... medicinal inside, of cough syrups that hide the underlying scent of papers and inks. A bell rings above his head as he enters the shop, and Dain looks around curiosuly before moving away from the entrance, he's eventually hunted down by the shop keep who points him to the back left wall of the store, advising him that all journeybook related items can be found there,
+
+"You're a cadet?" she says, softly, "We have a bundling incentive for any students: buy two, get a third item of equal value half off, buy three and get a fourth of equal value free, five purchases will grant you a sixth and seventh item of equal value at no cost."
+
+Dain's excitment bolsters in the bond, stirring Cath, who makes a sound of mutual deference.
+
+It's a small pocket of heaven for Dain; everything he could utilize to the right of a stand packed full of all sorts of writing utencils, accessories, and tools. He'd always been particular about the kinds of quills he'd used, and even more particular of ink pens once he finally learned to wield. It's the same with paper; prefering heavier, packed papars that didn't show bleed and quickly abosrbed inks so that his writing didn't smudge due to how quickly he wrote.
+
+He spends a quarter of what's in his wallet while chewiing the inside of his cheek.
+
+*"That was painful."* Dain peers inside of the linen bag given to him to hold his items, *"But, maybe worth it."*
+
+Cath's response is a demand, *"Come back, I can smell them preparing the last meal. And you will eat."*
+
+He exits the store while eye balling the contents of his indulgence, missing the other person just outside the door.
+
+"Whoa there, son." a man his height and size hollers, "Eyes up and forward, you're distracted!" Dain's neck straightens upright, his mouth launches an apology before his eyes can make out who he's almost run into.
+
+"Sorry, sir." he croaks, careening left so that the man can hulk past him without colliding into his side.
+
+Once they've danced around each other Dain gives the civilian an apologetic nod, ducking his head in a display of social submission, hoping to then duck out of the store—but the man looks so familiar it stops him dead in his tracks.
+
+Darius?
+
+"Something wrong?" the look-alike coos, "Oh! Maybe you're looking for the Apothacary? It's on the backside of this building; it's the length of all three shops on this street so you can't miss it."
+
+A smile cracks across Dain's face, "You must be Darius's father?"
+
+"You know my son?!" his newfound friend's father claps his hands together, hollering into the space between them.
+
+Darius father is simply an older version of his son. They feature the same high cheekbones, ivory white teeth that look brighter and almost glowing against their umber skin, and he even has the same long, locked hair, only pulled into a braid that stops just at his waist,
+
+"I do!" Dain chuckles, holding out a hand in greeting, "He's been taking care of me. I'm... not used to it."
+
+"I'm Ruehn Mulder," he slaps his palm against Dain's and yanks the rider forward, their chests meet and his arm smacks across Dain's back in a series of smacks, "Darius is particular about his company; must mean you're a good kid too." Ruehn releases the cadet then tucks his fingers underneath his chin,
+
+"You look familiar. Could've sworn I'd known you previously. Maybe your folks get their prescriptions from us?"
+
+Dain shakes his head, grimacing, "Not possible, sir. My father hails from Calldyr and is a Navarrian Loyalist."
+
+"And your mother?" Ruehn slides the question in without missing a beat.
+
+The cadet jitters about, pausing, then finally, "She's from Cygnisen."
+
+"Odd choice on your father's part, that." Dain winces, "And yourself?"
+
+"Cygnisen as well, from the Celestine Basin. But, I grew up in Calldyr myself."
+
+Ruehn lifts a brow and doesn't let it fall the way he does the topic of hailing, "Are you taking a liking to Tyrrendor yourself?"
+
+"Very much so..." Dain looks away to a pile of books on the shopkeeps counter and then back to Ruehn, "I'd rather not return to Basgiath."
+
+"Ah, that's a tough one. Well, I always tell Ri: there's life after the Quadrant."
+
+Dain snorts, eyes pitching left. Maybe for a healer, but certainly not for a rider or even a flier; Ruehn seems to figure that as the words leave his mouth, and he spins on his heel after grabbing Dain by the arm again, "Come with me, since you're headed back you can take these things to Ri; he won't need to waste anytime stopping home tomorrow."
+
+Dain doesn't fight it, he lets himself be dragged to the street behind the printing press the the stationery shop, beholding Darius's home as they come upon it.
+
+It's fucking *massive.*
+
+He'd said it was one of three apothacary in all of Aretia, but he might've failed to add, or so Dain assume's, that it's also the largest one he's ever seen. He's dragged through the front door, made to greet several staff, given a cup of tea that sloshes around in his hands while he trails behind Ruehn to an office tucked deep into the apothacary. The smell of cough syrup claims Dain's sense of smell while he drinks his teat and Ruehn pulls textbook sized drawers open from a dispensing cabinet that takes up an entire wall, each labeled neat, and *all* in Darius's handwriting,
+
+"Here, another bag of shit. Darius will know what to do with all this, and for your time—" Ruehn flips three gold pieces off his thumb at once, impressively catching them all as they fall back to his hand, "That should do."
+
+The bag is a rucksack, and Dain slings it over his shoulder to counterbalance the weight of it properly.
+
+"I can't——"
+
+"——I don't care," the man sing-songs, shrugging his shoulders and flicking his jeweled fingers friviously.
+
+Dain looks away, choosing to eyeball glass siphons and beakers, tables covered in neatly stacked scrolls, the late evening light filtering through floor to cieling windows that are stained in hades of green and gold. There are heavy drapes fixed open with braided ropes bordering each window, and paintings of all sorts of herbs and concoctions fixed against the walls,
+
+"Consider it 'a piece for your pondering,' yeah? You've got a great mind on you if you were raised by a loyalist and aren't a classist bigot yourself. I'm proud of you, Dain." Ruehn squeezes his shoulder, "You have a home here now, and I have three spare bedrooms with their own bathing chambers. I expect to see you next time my son is here with his little troupe, understood?"
+
+"Yes sir."
+
+"Good, now away you go."
+
+Dain requests two new uniforms from the launderers bookkeep once he makes it back to the Aretian Fortress, and, by Amari's good graces, he still remains wealthier now than he had left earlier.
+
+---
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
 
 # Onward is for me only
-
-* He'll fuss over how he's going to fit his training with Sloane in, into what Matthias, Imogen, and Violet already have  *
-
-* Dain asks himself: "why did I do that?!" & Cath says: "Cause you wanted to pet your kitten duh." *
-
 * Dain decides it'll be later in the day, well after classes are over, at night after he's bathed etc, because they need to navigate the fundamentals of her signet, and her thresholds for it (this is setting up the whole "Dain is exposed, easy , and sweet when he's sleepy/Sloane realizing he struggles to see at night=she'll invite him out and take him to an ophthalmic practice that her parents took her and Liam to until the two were sent to their fostered homes after their deaths") *
 
 * fade into Darius asking him to step away from foraging to take him to Darius's home DURING SCHOOL HOURS for some world building and character building, Dain will meet Darius's father... no further ideas going to bed ZZZZZZZZzzzzzzzZZZz * ]
