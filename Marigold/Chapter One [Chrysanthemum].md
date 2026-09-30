@@ -1084,11 +1084,7 @@ Dain lets loose a gust of air.
 
 He's not sure if Cath is requesting more information about his mother, he doesn't really have much anyway, but in the bond Cath's presence is huge and undeniably inviting. He's always been a moth to a flame when it came to Cath, during Threshing, and even now; he feels like he could close his eyes and lean into their bond and feel scales against his cheek right there in his bed. It *must* be this medication, and it's even got him thinking Cath might care to learn about Dain's mother. A Red swordtail has more befitting areas to investigate, right?
 
-"She was really quiet, shy probably. Dad said she loved the idea of dragons, and I think that's why she got on with him initially." he mutters into his thin pillow, eyes fighting and losing to exhaustion. The bits and pieces of sleep he'd gotten earlier did nothing to help.
-
-*"Yes, well, few and far in between bests a dragon."*
-
-"Oh yes, woe is anything not a magical beast." Dain yawns, waving a hand pitifully beneath the sheet.
+"She was very opinionated, not the biggest fan of dragons. Always said they were to dangerous to be mingling with." he mutters into his thin pillow, eyes fighting and losing to exhaustion. The bits and pieces of sleep he'd gotten earlier did nothing to help.
 
 *"Truly."* Cath responds, damn narcissist, *"Your mother was not a rider."*
 

@@ -722,7 +722,7 @@ Once they've danced around each other Dain gives the civilian an apologetic nod,
 
 Darius?
 
-"Something wrong?" the look-alike coos, "Oh! Maybe you're looking for the Apothacary? It's on the backside of this building; it's the length of all three shops on this street so you can't miss it."
+"Something wrong?" the look-alike coos, "Oh! Maybe you're looking for the Apothacary? It's on the backside of this building; it's the length of all six shops here, on the backside of this street; you can't miss it."
 
 A smile cracks across Dain's face, "You must be Darius's father?"
 
@@ -744,9 +744,9 @@ The cadet jitters about, pausing, then finally, "She's from Cygnisen."
 
 "Odd choice on your father's part, that." Dain winces, "And yourself?"
 
-"Cygnisen as well, from the Celestine Basin. But, I grew up in Calldyr myself."
+"Cygnisen as well, from the Celestine Basin. But, I grew up all over Navarre myself."
 
-Ruehn lifts a brow and doesn't let it fall the way he does the topic of hailing, "Are you taking a liking to Tyrrendor yourself?"
+Ruehn lifts a brow and doesn't let it fall the way he does the topic of hailing, "Are you taking a liking to Tyrrendor?"
 
 "Very much so..." Dain looks away to a pile of books on the shopkeeps counter and then back to Ruehn, "I'd rather not return to Basgiath."
 
@@ -780,24 +780,255 @@ Dain requests two new uniforms from the launderers bookkeep once he makes it bac
 
 ---
 
+Battle Brief is held shortly after breakfast on Sunday.
 
+The theatre is no longer being used as a spillover medical bay, and its filled only partly to halfway. Cadets spill in indiviually and with squad or friends; Dain sits to the far right to track them as they enter. Eleni and Varen sit to his left, both yawning,
 
+"Dain," She sighs, rubbing her eyes, "you're wide awake."
 
+"I was up early."
 
+Varen peeks over the top of Eleni's head, "But *why* on a Sunday when we only have one class."
 
+"Gym, and I had to stop by medical."
 
+"You alright?" he asks, releasing his own yawn as Eleni's mouth works itself shut from a second one.
 
+"I'm fine, I was delivering something for a friend." *For a friend* rinse in his mouth like this mornings coffee; pleasantly, and Varen looks away, 
 
+"You will always be a better man than me, Aetos."
 
+"Most other men are."
 
+"Wow, *crazy,* Eleni."
 
+"Anyway," She turns to Dain, eyes suddenly twinkling, "We had a small uprising in our Wing yesterday."
 
+Varen twists at the waist to face Dain as well, alive with nely found vigor, "Oh shit, completely forgot, we even went looking for you, you weren't here!"
 
+"...uprising?"
 
+Eleni threads her fingers together, "Previously Second and Fourth Wing's Wingleaders didn't see eye-to-eye regarding fliers. I'm certain you can recall your fist meeting Aura Beinhaven's face a few months ago?"
 
+Dain sucks his teeth, "I cetainly do."
 
+Aura was her own version of Amber and he briefly considers avoiding women who's names begin with the letter *A.*
 
-# Onward is for me only
-* Dain decides it'll be later in the day, well after classes are over, at night after he's bathed etc, because they need to navigate the fundamentals of her signet, and her thresholds for it (this is setting up the whole "Dain is exposed, easy , and sweet when he's sleepy/Sloane realizing he struggles to see at night=she'll invite him out and take him to an ophthalmic practice that her parents took her and Liam to until the two were sent to their fostered homes after their deaths") *
+"A few cadets lived through her sentiments vicariously and thought to bring back that  mindset, while here in Tyrrendor——"
 
-* fade into Darius asking him to step away from foraging to take him to Darius's home DURING SCHOOL HOURS for some world building and character building, Dain will meet Darius's father... no further ideas going to bed ZZZZZZZZzzzzzzzZZZz * ]
+"——Which is particularly brave of them." Varen muses.
+
+Dain agrees, "It is"
+
+"And were met with a bit of a beating. Challenges are still prohibited for time being, so I guess it ended turning into a scuffle."
+
+"Did anyone die?" asking if anyone got hurt would be stupid, so Dain opts for the more serious,
+
+"Not this time." Varen states, "Shame, if you ask me. I like when the trash takes itself out."
+
+"But causing issues so soon after a battle?" he muses, pressing his fingers into the wound, "Strange."
+
+Varen nods, "I thought so too. Back at as Basgiath I could've been swayed by Amber consider you part in what happened with the Quadrant, but right now it just seems childish. Or desperate."
+
+Dain presses his new ink pen to his lips; desperate for what?
+
+Previously the uproar within the Quadrant had been plausible: many were unaware of venin and wyvern, as he had been himself. Springing the truth on such a prideful set of people was never something he'd expected to go over well, and the moment it went awry Dain hadn't been surprised. But now? After fighting venin twice, and sparsely between the battle at Basgiath and Draithus, what's the point?
+
+"Aetos."
+
+The brunette lifts his head up to find Catriona peering down at him, she's opted to take the seat in the row directly ahead of him and the rest of second squad files to take up the seats following hers. Violet and Ridoc are missing, as well as Aaric. Sloane sits betwen Lynx and Avalynn at the beginning of their row; she makes eye contact with Dain and holds it before glancing away,
+
+"Catriona."
+
+"Can we talk after Battle Brief?"
+
+He nods once and she turns around to drop into her seat, just in time for Devera to enter, closing the theatre doors and begin the lecture. It starts with threat assessment and and force allocation, then devolves into command judgement and contingency planning,
+
+"When all available courses of action carry unacceptable risks, how should leadership respond?" Devera prompts, dragging the same chair Dain had panicked in up arrival in Aretia after Draithus, into the center of the Dais and dropping into it, "How can they properly prepare their forces for battle when our intelligence on the opposition is either wrong or severely underestimated."
+
+"Pray." someone chirps, sarcastically.
+
+Devera is quick, "It's never enough."
+
+Eleni, who's mostly leaned onto the armrest of Dain's seat, speaks freely,
+
+"You can be only so many places at once, so it's better to touch and go depending on the threat level."
+
+"Correct." Devera agrees, "And in Draithus, what was the point of contingency that could've changed the whole outcome of the battle?"
+
+"Sorrengail losing to the storm-wielding venin." a flier pipes up, adjusting their glasses rows ahead of Dain.
+
+Devera crosses her legs and leans back into her seat, "Yes, but in regard to architectural assets."
+
+"The armory." Dain pronounces, "The armory and, well the city itself."
+
+"Wingleader Aetos. How exactly did you maintain leverage in the battle at Draithus?"
+
+"Like Eleni said——" Sloane's head whips so hard to face him he gets whiplash from noticing it at the corner of his eyes, "——being where I could be, when it was possible for me to be there."
+
+"So you were at the armory?"
+
+"For a moment, I left it and had come across Imogen. She didn't need any assitance from what I gathered."
+
+Devera cracks her knuckles each with her thumbs, "Why?"
+
+"Felix was at the armory; Nuirlach told me to be useful elsewhere. Imogen is more than capable of handling wyvern and venin; she's been battling them for long before I had even heard of them."
+
+Ahead of him, Imogen sniffs.
+
+"We split apart to handle the tower at different points and then I continued... *east* to make sure the city was being properly evacuated..." His voice trails off; he and Cath had been met with a *swarm* of venin and wyvern trying to reach the easternmost part of Draithus.
+
+At the time Dain hadn't the mind nor moment to consider where Riorson might've been relative to himself and Cath, but considering they were quite literally at the edge of the city, attempting to evacuate any residents left behind to the southern checkpoint, Riorson couldn't have been much farther *if* he had ventured east from the the northeastern gates.
+
+...Unless he was in the canyon after Draithus.
+
+But what would've been there?
+
+All approching venin had been reported within city limits, and the few Cath had disclosed were outside the eastern city gates, collapsed on the two of them the moment they were close enough to—— 
+
+"Dain?" Eleni pokes his shoulder, "You in there?"
+
+"Huh?"
+
+He looks over to preview her face, which only contains concern for him, but past her is Sloane and why the fuck does she look so *irritated.*
+
+"I'm fine, I just remembered something." He tells Eleni, scratching his beard and exhaling deeply.
+
+"You look like you seen Malek for a second there." she squeaks, pressing a warm finger to his cheek, "Professor was asking you a question."
+
+He looks up, but Devera is already speaking to another cadet, and to his left, past Eleni, Sloane is still watching from the corner of her eye, barely turned, her azure irises pinned to him from the farthest corners of her eyes.
+
+"Sure you're good?" Varen asks while Eleni pokes at his cheek again, but this time he gently stops her by placing his hand overtop of hers and presses it back against the armrest. Eleni yields, leaving it there.
+
+"Positive, I just——"
+
+Sloane suddenly adopts the same expression she had before trying to launch across the assembly table; he's not entirely sure if she wants to hit him (again) or Eleni. He can tell she's actively fuming in her seat, her jaw is tight carving a sharp angle from chin to collarbone, and her brow is knitted into a smooth knot along her profile,
+
+"——I'm trying to focus on too many things at once. Bad habit."
+
+He drops his head back and sighs so loudly his peers give him dirty looks and Eleni becomes more concerned, "Do you need a moment?"
+
+"No Eleni, I'm fine, promise."
+
+Eleni isn't convinced, and her grey eyes squint up at him,
+
+"Is it your signet?"
+
+Dain snorts, "What? No." 
+
+Varen scoffs and shoves his boot into hers, "Bro, chill out, lay off him. He's probably just tired. He doesn't have help like you do."
+
+Eleni points an offended finger at Varen, "You aren't even that much help."
+
+"According to the chain of command, I am." He sticks his tongue out and Eleni leans further away in childish prostest, her back plasters against the side of Dain's arm.
+
+There's no way to move away from her and regain his personal space, so he ignores it, reenforcing his shields as a preventitve measure.
+
+Sloane's arm cross and her head swivels back to give Devera her full attention, they're now talking about the rate at which both the forge in Draithus and in Aretia will be able to procure enough alloy-hilted daggers to arm cadets and officers, fliers and alike for another confrontation.
+
+Across the room, Tink speaks up, hans lifted as she speaks,
+
+"Is there no other weapon that can kill venin?"
+
+Devera perks up at this, "I'm sure there is, but not that I know of."
+
+Tink taps her pen against the books in her lap, "Wouldn't it make sense to be testing those theories? Or trying to create something else that we could use?"
+
+"I'm all for innovation, but you would need venin to test them on, which means possibly risking your life how many times before a successful result. Not to mention, runed weapons typically use high-grade materials." their professor shrugs, "Time and money, Halson, do you have that?"
+
+"Not really," Tink mutters, "But that won't stop me from trying. We try or we die."
+
+Devera nods at that, speaking Dain's thoughts aloud, "Well said."
+
+"Yeah good luck." one of their peers sneer, while a few others volunteer to help.
+
+Baylor, at the very edge of Sloane's row, cranks his head back and points at Dain, "You still gonna help her? Remember she made me shut up?"
+
+"You should try shutting up on your own this time. Quit screaming across the room." Dain mutters through grit teeth; Devera is watching them with crossed legs and a cocked head.
+
+The point sails clean over Baylor's head, as would common sense, "I'm not even screaming, I'm whispering."
+
+"Pretty loudly though." Lynx adds with pursed lips, "But wait, Sir—you're helping with runes?" He pivots to gossip with Baylor, "Isn't he bad at them?"
+
+Baylor flicks his year-mate off.
+
+“Well, he told her he was interested, so I guess. And I don't remember if he's bad.” He twists toward Dain again. “Are you bad at weaving runes?”
+
+“Why would he offer to help if he's bad at it?” Avalynn fires back, punching Baylor on the arm, “Aetos is the male version of Sorrengail minus the electricity, remember? He's smart, so he'll figure it out.”
+
+"He's nothing like Sorrengail." Kai adds, just as fucking loudly to the left of Marin and Catriona, "I don't mean that in an offensive way, Sir," he backpedals, rubbing at his shaved head. Marin smacks the flier hard enough that the reverb catches in the theatre and Kai presses his lips between his teeth, apologizing when Catriona cusses at him to shut his mouth.
+
+Sloane speaks up this time, arms still crossed, and leg bouncing against her seat; she casts Dain a sideways glance and then looks away,
+
+"If he's anything like Violet with runes, then she's fucked; Violet can't weave a simple rune to save her life."
+
+"Can you weave a simple rune?" Eleni teases while Varen chuckles incessantly next to her.
+
+Dain's eyes roll back, "I can, and everyone will be weaving until their fingers fall off if you all don't shut up."
+
+The whole theatre is buzzing with personal conversation at this point.
+
+Eleni tuts at him, "You can't make me do anything."
+
+His fingers tap against his thigh with his irritation as he leans down, his mouth nearly brushing her stitched ear, "I can, and I will, want to try me?"
+
+"Ooooo," Varen coos, "Scary."
+
+Eleni's face goes pink; she doesn't say anything, just presses her palms against her cheeks and faces forward. When he raises his head, he catches sight of Sloane once more; her jaw seems to come unmoored, as if an anchor pulls it toward the floor. He watches her eyes cinder, burning through Eleni so intensely that the glacial blue of her irises leaves him confused. Her attention snags on him, and she turns away the instant she realizes he's watching her while tucking golden threads of hair behind her ears.
+
+He does the same, eyes locking with Devera's.
+
+“Sorry,” he tells their professor.
+
+She shrugs.
+
+"Speaking of magic," Devera begins, "how can we better prepare to fight against signet wielding venin and fire breathing wyvern?"
+
+---
+
+Concluding Battle Brief, which Dain notes, was impossibly underwhelming in light of everything that happened during the assualt, Dian remains in his seat. Catriona stays in hers as well, watching the others fizzle out, and watching Eleni who waves goodbye to Varen, then turns to Dain,
+
+"I'm not any good at runes, and I don't have too much of an interest in them, but if you need me to step in for you, just let me know. I'll make sure you have time to spare."
+
+Dain thanks her then crosses his ankle over his knee, "What's the trade-off?"
+
+"There isn't any, just looking out for a friend."
+
+He sinks further into the chair, eyes narrowed with disbelief, "A friend, huh?"
+
+Fourth Wing finally begins to get up from their seats now that most of Second Wing has exited. Dain flips through the three pages of notes he'd taken and looks up at Eleni.
+
+"Well, since you insist, have a meal with me occasionally. That'd be fine I guess. You can tell me where you got your fancy notebook."
+
+"Sure."
+
+She waves, and Catriona finally speaks, eyeballing Sloane who lingers just long enough to be barked at by Imogen.
+
+"In high demand, Aetos."
+
+"Usually."
+
+*"Ostentatious."* Cath rumbles.
+
+Catriona gags, "Did she tell you about what happened in Second Wing?"
+
+"She did." he thinks for a moment, then looks down at her, watching her expression carefully, "Weird timing."
+
+"That's what Marin and I thought. It's because Riorson hasn't been seen since. There's hushed word that he's been injured badly following burnout. Which might be believable to most, afterall he did apparently cover all of Draithus in shadows, but I'm not buying it."
+
+"Why not? He could be, I imagine that took everything he had to execute."
+
+She leans against the back of her seat, "Sorrengail would be amongst us a great deal more if he was just injured. And I still haven't seen Bohdi." she sticks out her index finger and makes circles with it, "You know, the Tyrrish heir apparant?"
+
+"Right..." he backtracks, pulling a few stray curls out of his face by pushing his hair back, "Seems pointless.
+
+"Aetos, a Navarrian Loyalist will assume that Tyrrish whispering in the hallways are planning to secede and join Poromish forces. They think you're in on it too."
+
+"Because I split the quadrant."
+
+"Exactly." She bites at her thumb; a nervous tell he'd never seen until now, "I just need to know he's... out there."
+
+"I'm sure he is."
+
+---
+
