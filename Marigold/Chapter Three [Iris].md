@@ -456,7 +456,7 @@ Darius shrugs then presses Dain's plate against what Darius has begun calling hi
 
 "How is it a system?" Dain mumbles through a half-bitten biscuit, carful not to get crumbs across pages full of still-drying ink.
 
-"There are bands there that you can slide insertable refills underneath, and you can buy those refills at most stationary stores. Honestly if you can fit it under and through a band, these things can get really chunky too; my sisters and my dad use them. Figured it was a personal preference."
+"There are bands there that you can slide insertable refills underneath, and you can buy those refills at most stationery stores. Honestly if you can fit it under and through a band, these things can get really chunky too; my sisters and my dad use them. Figured it was a personal preference."
 
 Dain glances over the notebook, suddenly relieved at the idea of being able to reuse this infinitely.
 
@@ -466,7 +466,7 @@ Darius shakes his head. Today his hair is pulled into a high ponytail that makes
 
 "Nah, this only has four books in it. Based on the size of this cover," he prods the leather trifold, "you are severely underestimating how much can be stuffed into this thing." He drinks the rest of his own water then clears his throat, "What are you writing in there anyway?"
 
-"A Indiviualized Development Plan."
+"An Indiviualized Development Plan."
 
 Darius threads his finges together and pulls his elbows onto their table, then places his chin atop of his hands, "For who and why?"
 
@@ -542,7 +542,7 @@ Dain rises from where he'd been squatting in front of his armoire, grabbing his 
 
 Or so he hopes.
 
-Rumbling outside, so powerful it makes tiny window tremble, wakens his focus once more. He means primarily to stop at one of the stationary shops to buy refills for the Itinerarium, prefferably ones with more than sixty-four pages. Some officiant parchment too, so he won't need to concern himself with it when it comes time to notate Sloane's progress. He shifts, turning towards his door to stare at the knob, maybe even a new pen so he won't have to see the one his father gifted to him; it exposes too many wounds he's not willing to acknowledge, too often. He pushes the handle downwards flip-flopping on wether or not to try looking for a canteen, maybe something cheap.
+Rumbling outside, so powerful it makes tiny window tremble, wakens his focus once more. He means primarily to stop at one of the stationery shops to buy refills for the Itinerarium, prefferably ones with more than sixty-four pages. Some officiant parchment too, so he won't need to concern himself with it when it comes time to notate Sloane's progress. He shifts, turning towards his door to stare at the knob, maybe even a new pen so he won't have to see the one his father gifted to him; it exposes too many wounds he's not willing to acknowledge, too often. He pushes the handle downwards flip-flopping on wether or not to try looking for a canteen, maybe something cheap.
 
 He doesn't need it to be nice, it just needs to work.
 
@@ -586,7 +586,7 @@ Right now he needs to make it into town before it rains——
 
 Her voice is displaced against the walls of the hallway, litling with irate displeasure, "For who?"
 
-"For no one. I need stationary." She reaches for his uniform, pawing out to grap at his forearm, but Dain jerks away, flicking out his hand so harshly it catches her own and forces her backwards,
+"For no one. I need stationery." She reaches for his uniform, pawing out to grap at his forearm, but Dain jerks away, flicking out his hand so harshly it catches her own and forces her backwards,
 
 "*Don't* touch me." the words explode from his mouth, jagged and harsh, loud enough to make her flinch.
 
@@ -614,7 +614,7 @@ He remembers Cath seeing Riorson and his deggertail by the city walls, but nothi
 
 *"He was meant to hold the northern expanse with other of his rank"*
 
-Dain slows his trek for only a second as his feet hit the rug-clad floor of the Great Hall, *"He did, then he moved closer to the city, where you saw him."*
+Dain slows his trek for only an instance as his feet hit the rug-clad floor of the Great Hall, *"He did, then he moved closer to the city, where you saw him."*
 
 *"Yes. I did not keep further observance of Sgaeyl beyond that."*
 
@@ -640,7 +640,7 @@ The Fortress doors yawn open, gaping outwards and letting sunlight flood inwards
 
 Catriona howls out a laugh that nearly makes Dain jump.
 
-"My fucking *province* Aetos, and everyone in it, my sister, my uncle, Marin, Kai, Marin's brothers, every citizen spilling into this disgusting place for shelter. Riorson is the only noble who actively fought and advocated for those beyond the border. He's one of the few who fought alongside my Province's ranks since the beginning in supprt of us. Because if he's gone, who do they have to believe in besdies Tecarus and what—the assembly?"
+"My fucking *province* Aetos, and everyone in it, my sister, my uncle, Maren, Kai, Maren's brothers, every citizen spilling into this disgusting place for shelter. Riorson is the only noble who actively fought and advocated for those beyond the border. He's one of the few who fought alongside my Province's ranks since the beginning in supprt of us. Because if he's gone, who do they have to believe in besdies Tecarus and what—the assembly?"
 
 She shakes her head, "Don't make me fucking laugh."
 
@@ -766,7 +766,7 @@ The bag is a rucksack, and Dain slings it over his shoulder to counterbalance th
 
 "I can't——"
 
-"——I don't care," the man sing-songs, shrugging his shoulders and flicking his jeweled fingers friviously.
+"——I don't care," the man sing-songs, shrugging his shoulders and flicking his jeweled fingers dissmissively.
 
 Dain looks away, choosing to eyeball glass siphons and beakers, tables covered in neatly stacked scrolls, the late evening light filtering through floor to cieling windows that are stained in hades of green and gold. There are heavy drapes fixed open with braided ropes bordering each window, and paintings of all sorts of herbs and concoctions fixed against the walls,
 
@@ -828,21 +828,29 @@ Dain agrees, "It is"
 
 "But causing issues so soon after a battle?" he muses, pressing his fingers into the wound, "Strange."
 
-Varen nods, "I thought so too. Back at as Basgiath I could've been swayed by Amber consider you part in what happened with the Quadrant, but right now it just seems childish. Or desperate."
+Varen nods, "I thought so too. Back at as Basgiath I could've been swayed by Amber considering your part in what happened with the Quadrant, but right now it just seems childish. Or desperate."
 
-Dain presses his new ink pen to his lips; desperate for what?
+"We couldn't have held Medaro's Pass if it weren't for the Gryphon and their Fliers," she kicks her feet out, "Even with most of them were struggling to breathe."
 
-Previously the uproar within the Quadrant had been plausible: many were unaware of venin and wyvern, as he had been himself. Springing the truth on such a prideful set of people was never something he'd expected to go over well, and the moment it went awry Dain hadn't been surprised. But now? After fighting venin twice, and sparsely between the battle at Basgiath and Draithus, what's the point?
+Dain presses his new ink pen to his lips; desperate for what? To *prove* what?
+
+Previously the uproar within the Quadrant had been plausible: many were unaware of venin and wyvern, as he had been himself. Springing the truth on such a prideful set of people was never something he'd expected to go over well, and the moment it went awry Dain hadn't been surprised. But now? After fighting venin twice, and sparsely between the battle at Basgiath and Draithus in different posts along Navarre's borders, what's the point?
 
 "Aetos."
 
-The brunette lifts his head up to find Catriona peering down at him, she's opted to take the seat in the row directly ahead of him and the rest of second squad files to take up the seats following hers. Violet and Ridoc are missing, as well as Aaric. Sloane sits betwen Lynx and Avalynn at the beginning of their row; she makes eye contact with Dain and holds it before glancing away,
+The brunette lifts his head up to find Catriona peering down at him, she's opted to take the seat in the row directly ahead of him and the rest of Squad Two files to take up the seats following hers. Violet and Ridoc are missing, as well as Aaric. Sloane sits betwen Lynx and Avalynn at the beginning of their row, with Imogen and Matthais just before Kai and Maren; Sloane makes eye contact with Dain and holds it before glancing away,
 
 "Catriona."
 
 "Can we talk after Battle Brief?"
 
-He nods once and she turns around to drop into her seat, just in time for Devera to enter, closing the theatre doors and begin the lecture. It starts with threat assessment and and force allocation, then devolves into command judgement and contingency planning,
+She turns to face the dais, seated in the same row as the rest of Squad Two, directly in front of him.
+
+"You piss her off?" Eleni noses, whispering against her palm held up ahead of her face, "She might beat your ass."
+
+Dain leans back to escape the proximity, eyes bumping to Eleni, "No."
+
+Devera enters, closing the theatre doors and strutting across the dais to begin the lecture. Eleni reclines, dropping her hand into her lap. Their lecture opens with threat assessments and force allocation, then devolves into command judgement and contingency planning,
 
 "When all available courses of action carry unacceptable risks, how should leadership respond?" Devera prompts, dragging the same chair Dain had panicked in up arrival in Aretia after Draithus, into the center of the Dais and dropping into it, "How can they properly prepare their forces for battle when our intelligence on the opposition is either wrong or severely underestimated."
 
@@ -956,7 +964,7 @@ Baylor flicks his year-mate off.
 
 “Why would he offer to help if he's bad at it?” Avalynn fires back, punching Baylor on the arm, “Aetos is the male version of Sorrengail minus the electricity, remember? He's smart, so he'll figure it out.”
 
-"He's nothing like Sorrengail." Kai adds, just as fucking loudly to the left of Marin and Catriona, "I don't mean that in an offensive way, Sir," he backpedals, rubbing at his shaved head. Marin smacks the flier hard enough that the reverb catches in the theatre and Kai presses his lips between his teeth, apologizing when Catriona cusses at him to shut his mouth.
+"He's nothing like Sorrengail." Kai adds, just as fucking loudly to the left of Maren and Catriona, "I don't mean that in an offensive way, Sir," he backpedals, rubbing at his shaved head. Maren smacks the flier hard enough that the reverb catches in the theatre and Kai presses his lips between his teeth, apologizing when Catriona cusses at him to shut his mouth.
 
 Sloane speaks up this time, arms still crossed, and leg bouncing against her seat; she casts Dain a sideways glance and then looks away,
 
@@ -986,11 +994,13 @@ She shrugs.
 
 ---
 
-Concluding Battle Brief, which Dain notes, was impossibly underwhelming in light of everything that happened during the assualt, Dian remains in his seat. Catriona stays in hers as well, watching the others fizzle out, and watching Eleni who waves goodbye to Varen, then turns to Dain,
+Concluding Battle Brief, which Dain notes, was impossibly underwhelming in light of everything that happened during the assualt, Dain remains in his seat. Catriona stays in hers as well, watching the others fizzle out, and watching Eleni who waves goodbye to Varen, then turns to Dain,
 
 "I'm not any good at runes, and I don't have too much of an interest in them, but if you need me to step in for you, just let me know. I'll make sure you have time to spare."
 
-Dain thanks her then crosses his ankle over his knee, "What's the trade-off?"
+Dain thanks her then crosses his ankle over his knee and opens the Itenarium across his thigh, "What's the trade-off?"
+
+Eleni tracks the movement, and doesn't lift her eyes away from his lap.
 
 "There isn't any, just looking out for a friend."
 
@@ -998,7 +1008,7 @@ He sinks further into the chair, eyes narrowed with disbelief, "A friend, huh?"
 
 Fourth Wing finally begins to get up from their seats now that most of Second Wing has exited. Dain flips through the three pages of notes he'd taken and looks up at Eleni.
 
-"Well, since you insist, have a meal with me occasionally. That'd be fine I guess. You can tell me where you got your fancy notebook."
+"Well, since you insist, have a meal with me occasionally. That'd be fine I guess. You can tell me where you got your fancy notebook." she muses, chewing her botom lip until he answers.
 
 "Sure."
 
@@ -1014,15 +1024,15 @@ Catriona gags, "Did she tell you about what happened in Second Wing?"
 
 "She did." he thinks for a moment, then looks down at her, watching her expression carefully, "Weird timing."
 
-"That's what Marin and I thought. It's because Riorson hasn't been seen since. There's hushed word that he's been injured badly following burnout. Which might be believable to most, afterall he did apparently cover all of Draithus in shadows, but I'm not buying it."
+"That's what Maren and I thought. It's because Riorson hasn't been seen since. There's hushed word that he's been injured badly following burnout. Which might be believable to most, afterall he did apparently cover all of Draithus in shadows, but I'm not buying it."
 
 "Why not? He could be, I imagine that took everything he had to execute."
 
-She leans against the back of her seat, "Sorrengail would be amongst us a great deal more if he was just injured. And I still haven't seen Bohdi." she sticks out her index finger and makes circles with it, "You know, the Tyrrish heir apparant?"
+She leans against the back of her seat, "Sorrengail would be amongst us a great deal more if he was just injured. And I still haven't seen Bohdi." she sticks out her index finger and makes circles with it, "You know, the Tyrrish heir apparant in the circumstance the the Duke of Tyrrendor dies or goes missing in action?"
 
 "Right..." he backtracks, pulling a few stray curls out of his face by pushing his hair back, "Seems pointless.
 
-"Aetos, a Navarrian Loyalist will assume that Tyrrish whispering in the hallways are planning to secede and join Poromish forces. They think you're in on it too."
+"Aetos, a Navarrian Loyalist will assume that Tyrrish whispering in the hallways are planning to secede, again, and join Poromish forces. They'd think you're in on it too."
 
 "Because I split the quadrant."
 
@@ -1032,3 +1042,363 @@ She leans against the back of her seat, "Sorrengail would be amongst us a great 
 
 ---
 
+Darius stays true to his word.
+
+Unlike Basgiath, in Aretia he has completely unfettered access to Dain and other riders, that apparently he's been *asssigned* to,
+
+"Here you go,"
+
+Oh, and he's brought Kaia along with him.
+
+"Thanks, you guys really don't need to do this."
+
+Both healers toe off their boots and line them up with Dain's; he smiles, seeing the three pairs tucked neatly alongside the door.
+
+Kaia's hazel eyes catch the sunlight that streams through Dain's tiny window and she walks over to it with her hands threaded behind her back, "A window and a bigger bed?"
+
+"It could be bigger," Dain complains, thinking of the ones he'd had during life before Basgiath.
+
+"Yeah, but it fits two people." Darius pokes the Itinerarium, considerate enough to miss the drying ink from where he scrawls,
+
+"Time to eat, Dain. Put this away."
+
+Dain gives him a face—or well, the face adopts him; his lips pull into an exaggerated flat line, and his brows pinch. It feels like a pout, and he doesn't pout, but Darius is weak for it,
+
+"C'mon man, you can dork it out as soon as you finish your plate. Stop being a baby."
+
+Dain feels his face ignite, and he's unwilling to revisit the impulse he'd given into, so he moves his Itinerarium to the side and places his ink pen atop of it to pull forward the heavy wooden tray Kaia placed on the table.
+
+He removes the carved cover, mouth watering immediately at the sight of fluffy brown and purple grains, roasted carrots... and crab? They're serving crab to *cadets?*
+
+"Lieutenant Colonel Sorrengail told us to bring that to you," Kaia announces after seeing Dain's mouth drop at the plate, "I was thinking that was his actual lunch when I'd seen the tray, but I guess it really is."
+
+*"Did you do this?"* Dain hisses, poking at Cath in their bond, *"Can you not?"*
+
+*"I only asked Marbh to have the mender send your friends with food because they said they would. It's not my fault his human also refuses to eat his own food."*
+
+Dain lifts the heavy silver fork at the edge of the tray and pokes the delicate white meat at the same time that he notices an equally artisan caraffe, steaming at the edge of the table.
+
+"And coffee?" he gushes out, reaching for it when Darius's hand smacks the top of his, "——Aht, aht! After food." He points at the glass of water next to it, "That first."
+
+He frowns, but listens, and manages not to make that stupid ass face again.
+
+Kaia points to the growing pile of books at the left of his armoire, "You should ask the house staff for a shelf."
+
+Dain lifts a brow and mutters through a mouth of carrot and crab meat, "I can do that?"
+
+Darius nods, "You're leadership, in Aretia leadership is treated as the next rank up. We can request some frivilous things, and if you ask the right person you're more likely to get it."
+
+"You guys are leadership?"
+
+Darius's whole body slams into Dain's other chair, his hair is out now and whips around his shoulders gently; he throws up his palms and forearms to groan,
+
+"Unfortunately. I was the Healer Quadrant's Trauma warden for my second and third years. Now I'm vice-warden for the Aretian healer quadrant, as a fully enlisted cadet."
+
+Kaia giggles, and Dain shifts his position at the table to face them both, "Darius can't avoid leadership and advanced placements in anything he does,"
+
+Darius rolls his eyes and flicks her off.
+
+"His dad is the *best* trauma and reconstructive surgeons in the province, second to none in Aretia since they've opened a practice out here, and he's an accomplished field medic."
+
+Dain's widened eyes sling to Darius, "Hey your dad is an uptight weirdo. I'm so glad my dad filed his request for my permanent residency in Aretia to the King's Company and not with General Aetos. I couldn't have imagined leaving Basgiath any faster than I had."
+
+"If my dad was anything like Ruehn I'd try my damndest, leave too." Dain admits ruefully.
+
+Darius points at him, "Why'd you say his name like that?"
+
+"Who? Ruehn?" Dain drops his fork in his food, "I left the bag of shit he told me to give you with pharmacy; you didn't get it?"
+
+"You met my dad? How? *When?!*"
+
+"Darius, what about the stuff? What if it was important? He gave me coin for transporting for him——"
+
+"——breathe, pretty boy. I work in Truama unit, Kaia works with the Pharmacuetical unit."
+
+Kaia makes a heart with her hands, "Did we confuse you with the care package?"
+
+"I didn't think you would've had access to all that if you weren't pharamacy," He tells Darius and retrieves his fork to finish off the crab, "So yeah, kind of."
+
+"That stuff was from home." his ivory teeth sparkle, "Where'd you guys even meet?"
+
+"Pennies Postages."
+
+"Oh. Okay that makes sense. Gotta write out all those instructions for peoples convalescent care."
+
+Dain gulps down a few mouthfuls of water and taps the table with his knuckles, 
+
+"You got to *leave* Basgiath?"
+
+Darius shrugs, "Technically I graduated early, I work fulltime here at Riorson House as one of Lieutenant Colonel Sorrengail's first and only aides. It only worked out that way since Riorson House is considered a post, and a interim campus away from Basgiath," he winks at Dain, "Since the Rider's Quadrant was split by the headmaster's gorgeous son, some of Cliffsbaine's professors have moved into town from drained cities all of Poromiel and brought newly bonded fliers with them."
+
+Dain furrows his brow. And?
+
+"*And* those professors refuse to teach at Basgiath, as well as some riders' dragon's refusing to return to Navarre. Thus, interim campus, and only for those under the circumstances of their bonded."
+
+Kaia is resting along the side of Dain's bed, her head rests against it's frame, "General Aetos can't tell dragons and gryphons where they'll be. So healers have been rotating in and out, and some are being stationed preimptively to grow a balanced student body."
+
+"Naturally you haven't heard about it because it's fine print within the Second Aretia Accord and it was only imparted on those who fit very, very specific circumstances."
+
+Dain nods, picks up his ink pen, and scribbles what he'd just learned into the the Itinerarium.
+
+"Dork." Darius release a full body chuckle that make Kaia laugh alongside him, "So hows the  Indiviualized Development Plan coming along?"
+
+Kaia tuts, "You have a Future First Year in your wing?"
+
+Dain winces at the nickname, "Yeah," he peers over at Kaia, swallowing before speaking again, "Healers get the same penalty?"
+
+"Well yeah, but obviously for different circumstances. Considering what Darius told me about yours." She smacks her head against the matress absentmindedly, "Like if you aren't passing milestone boards and examinations, you could be made to repeat, but not your warden *too*."
+
+"She isn't wielding, and she's barely winning her matches. If you can even call them that."
+
+"Wait..." Kaia stands up, walks in front of Dain and puts her hands on her hips, "Can I ask a question?"
+
+"...Kaia..." Darius mutters, eyes flying away from Dain's when theirs meet.
+
+"Can I ask what your signet is?" she barrels on, unfettered by the warning tone in Darius's voice,
+
+"Sure." Dain clears his throat, "It's nothing exciting."
+
+Kaia claps and bounces around a bit, hopping in a cricle, "Oh, do tell about your *boring magical powers bequeathed to you buy a flying apex predator!*"
+
+*"A proper human."* Cath sighs.
+
+Dain rolls his eyes.
+
+"It's memory recalling and reading."
+
+Kaia's eyes are big and round and bright green, "Like mind reading?"
+
+"No," Dain pushes his plate away on the tray and picks up the two biscuits wrapped neatly in a linen cloth, "I'm not *that* inntinnsic. I can traverse a person's mind, with natural limitations, and review a memory of my choice, or other times I see them... but by accident."
+
+"Accident?" Kaia repeats, "Like involuntarily?"
+
+"Right. I..."
+
+Dain pauses.
+
+Can he tell them these things? Discussing one's signet isn't a Codex offending action, and there's not a single article or addendum he can conjure to stop himself from doing so. But it's still strange, opening up so easily about his something so huge in his life. It's a point of contention for him emotionally as well—but it's not as if he hates Cath or his signet, he just...
+
+*"You lose nothing to simple conversation."*
+
+*"I wouldn't think so."* Dain admits, tapping at the table, *"But it's not right."*
+
+*"Isn't it? It is yours, after all."*
+
+Dain lets his diaphram double, forcing down a breath that makes both Kaia and Darius shift nervously,
+
+"I have to touch a person's face to see their memories, normally. Their face or head. But lately I end up previewing moments I don't want to see. I'm stuck remembering things that aren't any of my business, that I don't even want to see."
+
+Kaia presses her lips together in a empathetic grimace, "That sounds awful when you put it that way."
+
+"How is that made combative?" Darius wonders alound, he presses his knuckles against his mouth and chin, "Lieutenant Colonel Sorrengail told me once that he'd participated in an interrogation, they had him mend a person a few times over so they could break them in the same place."
+
+Dain looks away.
+
+Darius reaches across the table to brush their finger tips together, "You don't have to talk about it," he pulls away and grins, "it doesn't make me think of you any differently though. We do what we have to, and regarding the military; we really don't get a choice."
+
+"Okay, I've got one, touch me." Kaia blurts,
+
+"Huh?"
+
+"I have a memory for you, touch my head——"
+
+"——yeah grab her massive five-head; shits big enough to fit the whole Continent——"
+
+Kaia flattens her hand and jabs Darius in the throat with it. His body doubles over, face smacking the table as his hands fly up to grab at his neck, "You *bitch!*" he coughs, "Ugh..."
+
+Dain explodes into laughter, he's nearly caught offgaurd by how candidly it tears out of him while watching the two, "Okay, come here Kaia, don't beat him."
+
+"I can't let it be you though," she whines, stepping between Dain's legs as he scoots back from the table, "Darius *wants* you to beat him."
+
+Cath chortles, *"Hear that?"* 
+
+*"Nope."* Dain quips, still grinning.
+
+Kaia takes a breath mimicking Dain's from earlier, "Okay, so do I need to brace for impact or something?"
+
+"No," Dain assures her, looking up to clash her hazel gaze with his brown one, "are you sure you want to do this?"
+
+She snaps to attention from the hinged bend she had taken.
+
+"I, Kaia Braam, am a fully consenting adult who would like her face touched by Dain Aetos so that he may read my mind——"
+
+"——*memories*——" Darius chokes out, still recovering,
+
+"——and see what I know!"
+
+Dain shakes his head and extends his hand, "I have no idea why you're so stoked about this."
+
+"I have no idea why *you're* not," Kaia complains, offering her cheek in a cutesy fashion, "like you have literal magical powers, quit your bitching."
+
+Dain exhales, lets her cheek fall into his hand, and closes his eyes.
+
+---
+
+Sloane Mairi should not be here until tomorrow evening.
+
+Sloane Mairi shouldn't be in his room.
+
+Sloane Mairi shouldn't be asking him what he's doing.
+
+Yet, she's here when she shouldn't be, standing in the room with the door wide-open behind her, and asking——
+
+"What the fuck are you doing?"
+
+Her voice digs into the fat of his concentration with jagged teeth that are all canines. It spooks him, mostly, and his channeling is interuppted—as if he were amateur at utilizing his magic. He winces, hissing out a pained grunt and snatching his hand back from Kaia. His eyes fly open, squinted with pain, but assessing her condition nonetheless. She's not looking at Dain though, and he turns to see where her face is so aggressively scrunched at,
+
+"You ever try knocking, first-year?" Kaia bites, damn near growling the words out at Sloane.
+
+Darius crosses his arms across his chest, but he remains silent.
+
+Sloane lifts her chin, undisturbed at being met with such venom,
+
+"Maybe close the door then? Were you raised in the stables, third-year?"
+
+Darius sucks his teeth, "Damn she got you, Kaia." he jerks his thumb at Dain's room door, "You and doors have a shit relationship."
+
+Kaia isn't ging for whatever deescalation Darius has provided and shoves her palm out to silence him,
+
+"Even if it were a stable, it's one you weren't invited into."
+
+Sloane stalks into the room, lithe and leaisurely, placing a notebook a finger larger than his Itinerarium, between himself and Darius, "I was, actually, I'm just here early for my own reasons. Regardless, last I checked he's not bleeding out or dying, and therefore *you* shouldn't have any reason to be here either."
+
+She steps back, but closer to Dain; scented soaps and lotions clamor in his nostrils and he nearly leans forward to get a better idea of what notes he's smelling off her body.
+
+Kaia snatches the notebook off the table,
+ 
+"Oh." she begins.
+
+"*You're* the reason he might not get to graduate this year?"
+
+Sloane pops out her hip and rests a hand against it, "The fact that you're suggesting he'd fail is annoying the fuck out of me, healer."
+
+Kaia's eyebrows jump.
+
+"And you putting him in this position does what for you, nothing?"
+
+"Kaia..." Darius nearly begs, pressing his hands together in prayer; he glances at Dain when neither woman gives him a crumb of attention.
+
+"I do not need to explain myself to the likes of you." Sloane deadpans, then turns to Dain, "You asked what I know or what I've tested, this is that information. Violet said it'd be better for me if you had more to work with beforehand."
+
+"I like it. A Future First Year shitting her issues onto her warden, checks out. Can't wait to learn about this."
+
+Sloane coils tightly, and Dain recognizes the impending threat before anyone else does——but Kaia isn't backing down.
+
+Can she fight?
+
+"You aren't learning about shit, and he's not a warden, he's a *wingleader.*" Sloane snaps, hands curling to fists at her side,
+
+"We were having a jolly good time until duty walked in with freshly washed hair and an assignment. But don't worry, we'll look into it with him."
+
+Sloane sneers and her head rolls forwards in disbelief, "He doesn't need a fucking healer to look into anything for him!"
+
+"Not sure if you know what a friend is, but they usually help distribute the deadweight that's otherwise crushing one of their own." Kaia drops the notebook back onto the table without ceremony, then slams her hand atop it, leaning against the table.
+
+Sloane cranes her neck downwards, setting Dain ablaze with slate-grey eyes so frigid the color is all but lost. Her eyes skip back and fourth as they search his face.
+
+"I'll see you tomorrow after dinner." she tells him and waits for a moment to recieve a response.
+
+"Right... I've got an guideline for us to follow if you're okay with it." Dain reports.
+
+"Whatever you want."
+
+She abruptly leaves, slamming the door shut so viciously the magelight chandelier above them trembles.
+
+"Kaia, holy shit." Darius gasps, covering his face in... embarrassment?
+
+Dain looks up at the vice-warden,
+
+"Are you sure you're in the correct Quadrant?"
+
+"Kaia Braum, with a 'K,' for *kill.*" Kaia announces, flicking her hair back, and gesturing at herself.
+
+Darius doesn't share their sentiment, "That was completely unecessary." he growls.
+
+Dain picks up the notebook.
+
+"It really wasn't. If a first-year just strolled into a warden's bedroom in our Quadrant there would be hell to pay and we are not about to sit here and play in his face like it's any different in his own, Darius."
+
+Darius smacks the table, gently enough, "That's not my point."
+
+Their bickering is washed away as Dain reads Sloane's anecdotes and admissions in the prettiest caligraphy he's ever seen.
+
+    When attempting to siphon plain, otherwise unsuspecting, and/or inanimate objects nothing happens.
+        -Control: a Polylepis tree
+
+Dain lifts a brow. Siphons siphon *magic,* so why would she try and siphon a tree?
+
+"You don't know what kind of relationship they have, you can't just speak to people however you like; you're way too fucking territorial!"
+
+Dain glances up at Darius and then to Kaia; they've all but forgotten he's there now.
+
+    When attempting to siphon from an animal, nothing happens.
+        -Control: Broccolli
+
+He palms his face. *Damnit* Sloane.
+
+"See, look——" Darius swings a hand in Dain's direction.
+
+Kaia lets out a howling laugh that makes Dain peak up at her, "It's not me, it's whatever bullshit he's reading in that notebook."
+
+    When attempting to siphon from a dragon, results are conclusive, though I'm pretty sure I'm just channeling.
+        -Control: Thoirt
+
+Dain snorts and bites his bottome lip; sounds about right Sloane, he thinks. His eyes flick to the next page.
+
+    When attempting to siphon from another rider results are conclusive. I have successfully siphoned a very, very, very, very, miniscule amount of magic from a peer. Unwilling to siphon anymore than what I have.
+        Control: Kai
+
+"——always so fucing tired and it's because the people within his nearest vincinty at any given time suck ass——"
+
+    Whilst attempting to siphon from another peer, nothing happens.
+        -Control: Jessinia
+        -Note: weird
+
+Perplexion plays across Dain's face; she siphons successfully from one person, but not another? Weird indeed.
+
+    While eating dinner, I attempt to siphon from my meal, because why the fuck not. Whatever.
+        -Control: a yuzu
+
+Dain presses his lips together and bites down. He will not laugh at her; she's trying and that's more than enough for him and a great start for her.
+
+    While sharpening daggers during sparring, I tried to imbue one of my daggers. Results are inconclusive (?)
+        -Control: my dagger
+        -Note: I feel a bit weaker
+
+"I'm not asking you to be passive, *or* passive aggressive Kaia. I'm just saying it's not your place, or mine, that's his cadet to correct, he doesn't need your help."
+
+Dain flips to the next page.
+
+    I am able to start and stop siphoning at my will, excluding the time I siphoned from Lillith Sorrengail.
+
+    I can choose to siphon slowly, or quickly, at my will.
+
+    I can only siphon from certain humans (?)
+
+    It feels warm when I take, but I feel relieved when I give. Almost as if I'd rather give and not take to begin with.
+
+    I have to be touching whatever I siphon or imbue; I can't do it from a distance.
+
+Dain reads her conclusive anecdotes carefully; he's already drawing up more to his guideline for her, and reaches for the Itinerarium.
+
+    I'm not forgiving you or anything at all. But Liam wouldn't have liked how I've been acting, and Violet and Imogen are already extremely stressed out. More than I've ever seen them be. I fully intend to do my best, it's just unfortunate that it has to be the two of us to get me there.
+        Very respectuflly,
+        Sloane.
+
+The notebook contains several dozen empty pages, safe for the last few doused in black ink near their corners and small paw prints fading from the spill.
+
+He can't help but grin wide at them.
+
+*"Fascinated?"*
+
+*"With her signet."*
+
+Cath is quiet, but he speaks up again no sooner, *"I hadn't felt the need to specify."*
+
+Dain groans, and Kaia and Darius give him a sideways look.
+
+"Everything okay?" they inquire in uncanny unison,
+
+*"Tell them no; as it seems you are utterly smitten with repetitively petting a kitten who bites."*
+
+"Yes."

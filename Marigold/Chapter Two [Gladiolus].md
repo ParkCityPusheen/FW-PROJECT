@@ -272,11 +272,11 @@ There's a neutral murmuring happening around them, Dain simply speaks over it, l
 
 He waits for the collective groan, and there it is. Dain smiles empathetically.
 
-"Today Claw Section, first squad will be assisting Riorson House staff until dismissed, Tail Section second squad with the agricultural focuses; you can go ahead and muster up with the veteran riders at the courtyard, apparently more directives will be put out by them, there."
+"Today Claw Section, first squad will be assisting Riorson House staff until dismissed, Tail Section Squad Two with the agricultural focuses; you can go ahead and muster up with the veteran riders at the courtyard, apparently more directives will be put out by them, there."
 
-Dain watches that squad file out, then drones on, "Flame Section, third squad for medicinal herbs..." he drops his head down to the scroll, "...mustering at the peak northbound past the valley, Professor Kaori and some healers are there to intercept you at the rendezvous point." 
+Dain watches that squad file out, then drones on, "Flame Section, Squad Three for medicinal herbs..." he drops his head down to the scroll, "...mustering at the peak northbound past the valley, Professor Kaori and some healers are there to intercept you at the rendezvous point." 
 
-Likewise, Jareth mimics his assignments but in the opposite order, starting with Flame Section, first squad and down the line,
+Likewise, Jareth mimics his assignments but in the opposite order, starting with Flame Section, Squad Three and down the line,
 
 "In the meantime we've been assigned those three classes, starting with flight maneuvers, right here in the valley—standby for whoever comes in—"
 
@@ -292,7 +292,7 @@ Dain nods, "Got that?"
 
 He hears the collective "Yes Sir," from his Wing and rolls the scroll back up, tucking it away into his pocket,
 
-"We'll rotate the Aretian tasks clockwise by one section and squad. Meaning: tomorrow Riorson House staff will be assisted by Tail Section, third squad."
+"We'll rotate the Aretian tasks clockwise by one section and squad. Meaning: tomorrow Riorson House staff will be assisted by Tail Section, Squad Three."
 
 Another murmur of understanding leaves Dain satisfied and ready to step away, but a voice cracks through the air like a crossbolt,
 
@@ -846,7 +846,7 @@ It's the early afternoon when Dain gets to his barracks room. He eats an early l
 
 Firstly, he drafts up his request for a personally appointed Executive Officer.
 
-Secondly, he finishes a synopsis on lesser magics for a first-year by the name of Rengar Donnahue, Tail Section, third squad. Dain writes up the guidance in a smaller, stitchbound-handbook about properly visualizing magic, tips in balancing output versus input while utilizing it, and some voluntary excersises to help master it's usage. Part of revisiting the principles of lesser magic makes Dain feel nostalgic; he no longer think when doing things like locking doors, flicking open latches, sound shields, and using ink pens.
+Secondly, he finishes a synopsis on lesser magics for a first-year by the name of Rengar Donnahue, Tail Section, Squad Three. Dain writes up the guidance in a smaller, stitchbound-handbook about properly visualizing magic, tips in balancing output versus input while utilizing it, and some voluntary excersises to help master it's usage. Part of revisiting the principles of lesser magic makes Dain feel nostalgic; he no longer think when doing things like locking doors, flicking open latches, sound shields, and using ink pens.
 
 He glances down at his own, one his father gave him, heavy and hand-carved polished wood. He'd asked for it on his fourteenth birthday, maybe his fifteenth, and the man had simply handed it to him with a smile. He might've been smiling because it was humorous to him that Dain wouldn't be able to use it until years later. It was fleeting now, unimportant, and he still has the pen.
 
@@ -1126,7 +1126,7 @@ Dain forces a breath out so dramtically the next few tables peer back at them.
 
 "I'm not fucking obsessed with her! She's not the fucking center of my universe. I have a life outside of endlessly crawling around at Violet's beck and call."
 
-Catriona's lip curls, revealing perfectly straight white teeth, clenched with irritation, "Oh, please, what might that be? What could possibly be more important than questioning her *Duke* lover, gone in the nigh?. All of these things keeping Navarre upright only even function because Poromiel is actively paying the price. There's nothing outside of the narritive of your life—"
+Catriona's lip curls, revealing perfectly straight white teeth, clenched with irritation, "Oh, please, what might that be? What could possibly be more important than questioning her *Duke* lover, gone in the nigh? All of these things keeping Navarre upright only even function because Poromiel is actively paying the price. There's nothing outside of the narritive of your life—"
 
 Dain stands up, chair skidding, falling across the floor as he rises.
 
