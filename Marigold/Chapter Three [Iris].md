@@ -1234,11 +1234,13 @@ Dain exhales, lets her cheek fall into his hand, and closes his eyes.
 
 ---
 
-Sloane Mairi should not be here until tomorrow evening.
+Kaia's memory is coming to it's end when Sloane's voice razes through it.
 
-Sloane Mairi shouldn't be in his room.
+However, Sloane Mairi shouldn't be here until tomorrow evening.
 
-Sloane Mairi shouldn't be asking him what he's doing.
+Sloane Mairi can't be in his room, regardless.
+
+Sloane Mairi wouldn't be asking him what he's doing.
 
 Yet, she's here when she shouldn't be, standing in the room with the door wide-open behind her, and asking——
 
