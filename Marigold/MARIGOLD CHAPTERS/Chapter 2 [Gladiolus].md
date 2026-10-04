@@ -1110,7 +1110,7 @@ His mind phases back to memory he'd heard in Draithus, that of missing personnel
 
 "Why do *you* know this?" he demands, waving her away from his face, "And—"
 
-"I told Sorrengail he was missing and she didn't have much to say about it." Catriona picks at her fingernails, "Weird, right?"
+"I told Sorrengail he was apparently missing and she didn't have much to say about it." Catriona picks at her fingernails, "Weird, right? Then to also immediately be pulled away by higher rank that just happens to be your older brother?"
 
 Dain sideeyes her, "Not really. Considering your character and past actions I wouldn't want to talk to you about him either."
 
