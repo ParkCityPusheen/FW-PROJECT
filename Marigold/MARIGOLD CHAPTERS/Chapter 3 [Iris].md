@@ -404,7 +404,7 @@ He hates the way the light in her eyes has all but evacuated where it belongs, a
 
 Their eyes meet again and Dain pushes his plate to the side.
 
-"During the week, on a day of your choice we'll start the the next proceeding will be our off day. I want to meet later in the day, after dinner. Rinse and repeat. You feel uncomfortable at any time, you can just leave and drop the program, have Violet and her crew train you entirely."
+"During the week, on a day of your choice we'll start the the next proceeding will be our off day. I want to meet later in the day, after dinner. Rinse and repeat. You feel uncomfortable at any time, you can just leave and drop the program, have Iron Squad train you entirely."
 
 Sloane blinks, "Where?" 
 
@@ -1102,7 +1102,7 @@ Darius rolls his eyes and flicks her off.
 
 Dain's widened eyes sling to Darius, "Hey your dad is an uptight weirdo. I'm so glad my dad filed his request for my permanent residency in Aretia to the King's Company and not with General Aetos. I couldn't have imagined leaving Basgiath any faster than I had."
 
-"If my dad was anything like Ruehn I'd try my damndest, leave too." Dain admits ruefully.
+"If my dad was anything like Ruehn I'd try my damndest, come back home too." Dain admits ruefully.
 
 Darius points at him, "Why'd you say his name like that?"
 
@@ -1110,7 +1110,9 @@ Darius points at him, "Why'd you say his name like that?"
 
 "You met my dad? How? *When?!*"
 
-"Darius, what about the stuff? What if it was important? He gave me coin for transporting for him——"
+Kaia twirls a lock of light brown hair around her index finger, "He trusted you enough to make you mule a bag of shit?"
+
+"I couldn't exactly tell him no after I mentioned Darios; but, what about the stuff? What if it was important? He gave me coin for transporting for him——"
 
 "——breathe, pretty boy. I work in Truama unit, Kaia works with the Pharmacuetical unit."
 
@@ -1118,7 +1120,9 @@ Kaia makes a heart with her hands, "Did we confuse you with the care package?"
 
 "I didn't think you would've had access to all that if you weren't pharamacy," He tells Darius and retrieves his fork to finish off the crab, "So yeah, kind of."
 
-"That stuff was from home." his ivory teeth sparkle, "Where'd you guys even meet?"
+"I'm assuming it's more tincture and healing prerequisite." Kaia guesses, "Ruehn basically wholesales medicinal supplies to the resistance."
+
+"That *shit* is exactly that, curated freshly within the Mulder Apothacary." his ivory teeth sparkle, "Where'd you guys even meet?"
 
 "Pennies Postages."
 
@@ -1126,7 +1130,11 @@ Kaia makes a heart with her hands, "Did we confuse you with the care package?"
 
 Dain gulps down a few mouthfuls of water and taps the table with his knuckles, 
 
-"You got to *leave* Basgiath?"
+"So, you got to *leave* Basgiath?"
+
+Dain can only conjure up pieces of a hallucination where he no longer needs to return to Basgaith. In the grand scheme of his life Basgaith is the terminal illness that cripples any chance at a proper relationship with his father, what forces his mother away so easily, and where he eventually crashes and burns, himself. It's no wonder Darius seems so at peace even with how bleak their reality is; for him, there's life outside of Basgaith.
+
+For Dain, there had never been.
 
 Darius shrugs, "Technically I graduated early, I work fulltime here at Riorson House as one of Lieutenant Colonel Sorrengail's first and only aides. It only worked out that way since Riorson House is considered a post, and a interim campus away from Basgiath," he winks at Dain, "Since the Rider's Quadrant was split by the headmaster's gorgeous son, some of Cliffsbaine's professors have moved into town from drained cities all of Poromiel and brought newly bonded fliers with them."
 
@@ -1140,9 +1148,13 @@ Kaia is resting along the side of Dain's bed, her head rests against it's frame,
 
 Dain nods, picks up his ink pen, and scribbles what he'd just learned into the the Itinerarium.
 
+For a second, Sloane skitters between his thoughts and nearly onto the grided pages. What it would be to tell Sloane she'd never have to go back there again, to be in those wretched hallways alone. He imagines the face she might make knowing she could finish her time in the Quadrant right here where she should've been.
+
+Right here, where she's meant to be.
+
 "Dork." Darius release a full body chuckle that make Kaia laugh alongside him, "So hows the  Indiviualized Development Plan coming along?"
 
-Kaia tuts, "You have a Future First Year in your wing?"
+Kaia's exhale is defeated and prolonged, "You have a Future First Year in your wing?"
 
 Dain winces at the nickname, "Yeah," he peers over at Kaia, swallowing before speaking again, "Healers get the same penalty?"
 
@@ -1401,6 +1413,6 @@ Dain groans, and Kaia and Darius give him a sideways look.
 
 "Everything okay?" they inquire in uncanny unison,
 
-*"Tell them no; as it seems you are utterly smitten with repetitively petting a kitten who bites."*
+*"Tell them no, since it seems you are utterly smitten with repetitively stroking a kitten who bites."*
 
 "Yes."
