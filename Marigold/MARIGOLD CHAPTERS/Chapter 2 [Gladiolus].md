@@ -4,7 +4,7 @@ Dain, easily impressed by man-made structures of all types, stands in obvious aw
 
 He runs his hand along the thick, stone bannister top, fingers stuttering over Tyrrish masonry, admiring subtle details visible only to the discerning eye. He wonders what other parts of the fortress he might not be allowed in, considering it houses this monument of a staircase, and what those areas might look like. If they also exist at such a scale.
 
-He hasn't flown over Riorson House to see it from above the way he'd like, slow and circling, because he fears being casually skyborne with Cath might be cause for concern. Dain reasons that they're already suspicious to anyone here in ill-standing with Navarre.
+He hasn't flown over Riorson House to see it from above the way he'd like, slow and circling, because he fears being casually skyborne with Cath might be cause for concern. Dain knows there are reasonable suspicions of them from anyone here in ill-standing with Navarre.
 
 Which is mostly everyone, probably.
 
@@ -286,7 +286,7 @@ Varen peeks over Jareth's shoulder, "There's no professor assigned?"
 
 Varen clicks his tongue and she finishes addressing the Wings.
 
-"Weapons training is a half hour after that, we'll break for an hour long lunch, and then rune weaving is last. Battle Brief Saturday morning in the theatre."
+"Weapons training is a half hour after that, we'll break for an hour long lunch, and then rune weaving is last. Battle Brief Sunday morning in the theatre."
 
 Dain nods, "Got that?"
 

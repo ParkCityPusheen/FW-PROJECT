@@ -302,23 +302,23 @@ He bows, hinging enough for it to be rather formal, then pulls a small scroll fr
 
 "For herein onward, Basgaith War College, both by necessity and by decree, will recognize two independent school houses: the Prestigious Navarrian Campus and, newly erected, Aretian Campus."
 
-Dain's mind blips from it's conceptual existance to a place, far, far away, while Kaori continues to speak after rolling up the scroll and passing it to Melgren. The general takes the scroll and walks right off the dais, back to whereever he'd came from.
+Dain's mind blips from it's conceptual existence to a place, far, far away, while Kaori continues to speak after rolling up the scroll and passing it to Melgren. The general takes the scroll and walks right off the dais, back to wherever he'd came from.
 
-"I like transparency where and when I can give it, so on behalf of the Aretian Empyrean I've been asked to offer a brief explanation regarding this decision." He steps forward to the very edge of the dais, "Without dragons, there is no bond for which we are priveledged with magic to wield. Our relationship with dragonkind exists almost entirely on the basis that hatching grounds remain sacred and protected. The Aretian hatching grounds are no less important than the Vale, and as the threat nears our borders we have a duty to reinforce those points of contingency that might comprimise those safeties."
+"I like transparency where and when I can give it, so on behalf of the Aretian Empyrean I've been asked to offer a brief explanation regarding this decision." He steps forward to the very edge of the dais, "Without dragons, there is no bond for which we are privileged with magic to wield. Our relationship with dragonkind exists almost entirely on the basis that hatching grounds remain sacred and protected. The Aretian hatching grounds are no less important than the Vale, and as the threat nears our borders we have a duty to reinforce those points of contingency that might compromise those safeties."
 
 He takes a breath and soldiers on,
 
-"All cadets who chose to join the resistance will be made to stay with their dragons in Aretia pending the Aretian Empyrean's orders. Fliers are encouraged to remain in Aretia as well, in lieu of migrants and concerns of health and wellness during the settlement within newly open borders." he clears his throat, "There is much to be considered and organized in the coming month, and we ask that you remain obedient and diligent in this time of growth, or be displined accordingly..."
+"All cadets who chose to join the resistance will be made to stay with their dragons in Aretia pending the Aretian Empyrean's orders. Fliers are encouraged to remain in Aretia as well, in lieu of migrants and concerns of health and wellness during the settlement within newly open borders." he clears his throat, "There is much to be considered and organized in the coming month, and we ask that you remain obedient and diligent in this time of growth, or be disciplined accordingly..."
 
 Kaori's eyes fall onto Eleni and Dain, and they exchange a glance before becoming even more rigid.
 
-"Wingleaders, now, more than ever, you bare the responsibilty of *authority* and *accountability.* Leadership will support you wherever you need it."
+"Wingleaders, now, more than ever, you bare the responsibility of *authority* and *accountability.* Leadership will support you wherever you need it."
 
-Eleni and Dain howl out a "yes sir," and Kaori dissmisses himself, after placing the riot as ease.
+Eleni and Dain howl out a "yes sir," and Kaori dismisses himself, after placing the riot as ease.
 
 *"I don't have to go back to Basgaith?"* Dain gasps, floundering, still standing with his mouth dropped open while Eleni pulls at his sleeve for him to sit,
 
-*"Here you shall remain, as I do."* Cath procclaims, calm, controlled, *"And your allegience—"*
+*"Here you shall remain, as I do."* Cath proclaims, calm, controlled, *"And your allegiance—"*
 
 *"——with you, Cath. Always."*
 
@@ -332,9 +332,9 @@ Later that evening, Dain finds his room chock full of his peers. He bites his li
 
 With the exception of Catriona, he likes these people. But he doesn't dislike her either, in all honesty.
 
-He's in his bed, clad in his sleeping set, freshly showered after dinner with Kaia and Eleni; the two click immediately and Dain spends most of his meal listening to Kaia explain how the Aretian healer's quadrant is operated. Darius had knocked on his door, barreling past Dain with another carrafe of piping hot coffee that the two share two cups worth, together until Catriona and Maren come knocking.
+He's in his bed, clad in his sleeping set, freshly showered after dinner with Kaia and Eleni; the two click immediately and Dain spends most of his meal listening to Kaia explain how the Aretian healer's quadrant is operated. Darius had knocked on his door, barreling past Dain with another carafe of piping hot coffee that the two share two cups worth, together until Catriona and Maren come knocking.
 
-"You look halfway decent." Catriona smugly admits while doing a predatiorial circle around him after he lets them in, "Never thought I'd see you in anything besides your uniform."
+"You look halfway decent." Catriona smugly admits while doing a predatorial circle around him after he lets them in, "Never thought I'd see you in anything besides your uniform."
 
 "I'll be back in it in a few hours if you wanna stop by then." Dain rasps, sitting on the edge of his bed so either woman could take a seat by Darius at the table.
 
@@ -360,7 +360,7 @@ She nods and Maren glances between them.
 
 "It's nothing that's a secret, but it's causing issues within the nobility in Navarre. It only effects Tyrrish lords, however, so I'm not certain *why* they're being so difficult."
 
-Darius snorts and drop his head against the back of his chair to burn a glare through the cieling, "That's just a Navarrian's nature."
+Darius snorts and drop his head against the back of his chair to burn a glare through the ceiling, "That's just a Navarrian's nature."
 
 "Agreed." Catriona growls, then takes the seat next to Darius at his table.
 
@@ -368,33 +368,33 @@ Dain laments, ignoring the jab, "Think General Melgren is only here to say like 
 
 "I'm glad he only said a singular sentence." Catriona gags, "He makes my skin crawl."
 
-Maren chuckles, "Kai overheard he's there because his dragon wants to speak with the Aretian Empyrean. There's also specific professor's who's dragons are picking sides. Naturally Navarre thinks it has it's say in those particularties."
+Maren chuckles, "Kai overheard he's there because his dragon wants to speak with the Aretian Empyrean. There's also specific professor's who's dragons are picking sides. Naturally Navarre thinks it has it's say in those particularities."
 
-"So what? He thinks his dragon can sway a whole court?" Dain sneers, eyes flared at the show of audactiy.
+"So what? He thinks his dragon can sway a whole court?" Dain sneers, eyes flared at the show of audacity.
 
 "Maybe he can." Darius advocates, "How many dragons are in an Empyrean anyway? One? Two? Is the whole Riot itself the Empyrean?"
 
 Dain rubs his eyes and sighs, "That's information that is never privy to humans."
 
-Darius pats his lap in defeat, "Then you can't assume this will just work out the way the Aretian dragons want it to. Especially when you don't understand their poltics and there is clearly a divide amongst themselves."
+Darius pats his lap in defeat, "Then you can't assume this will just work out the way the Aretian dragons want it to. Especially when you don't understand their politics and there is clearly a divide amongst themselves."
 
 The room shares a disturbed pause.
 
 *"Maybe that one is in the incorrect quadrant as well."* Cath muses.
 
-Maren's eyes are nearly glowing, quivering at the information she giddishly begins to release, "Since the Aretian schoolhouse has been offically recognized both by Navarre and the Empyreans, there is talks of establishing a Cliffsbane branch within this campus for the fliers."
+Maren's eyes are nearly glowing, quivering at the information she giddily begins to release, "Since the Aretian schoolhouse has been officially recognized both by Navarre and the Empyreans, there is talks of establishing a Cliffsbane branch within this campus for the fliers."
 
 Dain can't conceal the surprise that then translates into his features.
 
-He spills, rubbing his face, "This is all... momnumental. I can remember the moment I learned venin and wyvern existed and it changed everything, and now everything is changing *again.*"
+He spills, rubbing his face, "This is all... monumental. I can remember the moment I learned venin and wyvern existed and it changed everything, and now everything is changing *again.*"
 
-"On the dragon's bidding, so this is surely permanent." Catriona comments. Darius pours her a cup of coffee, pushing the cermaic mug towards her that he no longer drinks from, "According to the Zeniths, if it's the Aretian Riot there's no issue in joining forces."
+"On the dragon's bidding, so this is surely permanent." Catriona comments. Darius pours her a cup of coffee, pushing the ceramic mug towards her that he no longer drinks from, "According to the Zeniths, if it's the Aretian Riot there's no issue in joining forces."
 
 *"This is insane."*
 
 Cath is utterly unimpressed, *"Is it?"*
 
-*"I mean fliers have always bean villified, you know? And now Tyrrendor and Poromiel can make a move towards a symbiosis. We might be able to reclaim eastern territories if we can hold our borders."*
+*"I mean fliers have always been vilified, you know? And now Tyrrendor and Poromiel can make a move towards a symbiosis. We might be able to reclaim eastern territories if we can hold our borders."*
 
 *"Ah yes, by the propaganda your kingdom was so good at curating."* his voice becomes haggard, *"Regardless, the age of retribution will begin yet again."*
 
@@ -410,15 +410,15 @@ Darius watches Catriona drink from his cup and turns to Dain, he opens and close
 
 No.
 
-Elsum and Morraine's frontiers with their four hundred years of war against Poromiel makes venin eradicting them all the more sweet to the people living in those provinces.
+Elsum and Morraine's frontiers with their four hundred years of war against Poromiel makes venin eradicating them all the more sweet to the people living in those provinces.
 
 "Navarre doesn't give a rat's ass about Poromish cities." Dain mutters, "They'd rather risk every human after their eastern most provinces and fight venin directly at the border with the Poromish dead underneath their boots."
 
-He rubs his eyes, "Apparently it was like pulling teeth to even allow the flier cadets into Basgaith, and even then they were still subjected to unecessary cruelty."
+He rubs his eyes, "Apparently it was like pulling teeth to even allow the flier cadets into Basgaith, and even then they were still subjected to unnecessary cruelty."
 
 "I hate to put it this way," Darius begins, voice low and words careful, "But I always thought it made more sense to fight alongside Poromiel; if they survive to do we. Right? It would make all the sense in the Kingdoms to see to it that they live, they're our *first* defense again venin simply because the fuckers are coming from the Barrens to begin with."
 
-The more sense it makes, the less inclined Navarre is to participate, Dain thinks venemously.
+The more sense it makes, the less inclined Navarre is to participate, Dain thinks venomously.
 
 Maren looks tired suddenly, "I thought that at one point too, but our lives aren't even worth the ones they'd lose quicker than if we lived alongside them."
 
@@ -426,13 +426,13 @@ Maren looks tired suddenly, "I thought that at one point too, but our lives aren
 
 Maren nods, and pushes off the door to approach Catriona, she grabs the other flier's shoulder and together they make their way to the threshold of Dain's room.
 
-"I just wanted to mention that all runing courses are being held by Cliffsbane proffessors now, and one of our quickest developing has apparently recruited you specifically in the making of runes." Maren tells him while opening his barracks door, "And I was thinking it'd be great to have Navarrian leadership help with the weaving of foundational runes for the fliers branch."
+"I just wanted to mention that all runing courses are being held by Cliffsbane professors now, and one of our quickest developing has apparently recruited you specifically in the making of runes." Maren tells him while opening his barracks door, "And I was thinking it'd be great to have Navarrian leadership help with the weaving of foundational runes for the fliers branch."
 
-"I don't mind, it'd be an honor." Dain acquieses, not needing more than a moment to make his decision.
+"I don't mind, it'd be an honor." Dain acquiesces, not needing more than a moment to make his decision.
 
 "My uncle has already commissioned Poromish masons in helping with carving out more of the mountain to avoid Tyrr's getting taxed for it. They're being brought over by a drift and can teach you more about runes one-on-one, if you wanted."
 
-"I'd like that too. And, if you needed a dragon for anything I'm sure Cath wouldn't mind assissting."
+"I'd like that too. And, if you needed a dragon for anything I'm sure Cath wouldn't mind assisting."
 
 *"Right?"*
 
@@ -442,9 +442,9 @@ His dragon doesn't respond, but that's not a no either.
 
 Darius stands up and stretches, "You're probably going to learn health and wellness runes soon, if my gut says anything."
 
-"Health and wellness runes?" Dain echoes cursiously.
+"Health and wellness runes?" Dain echoes curiously.
 
-"Yeah, like temprature control, stoves, magelights," Darius taps his lips with his pointer-finger, "doors and lifts. We're always buying temperature runes, the ones that are thin and circular, my Dad and his staff frequently break them."
+"Yeah, like temperature control, stoves, magelights," Darius taps his lips with his pointer-finger, "doors and lifts. We're always buying fire-based runes, the ones that are thin and circular, my Dad and his staff frequently break them."
 
 Dain cocks his head a bit, then lays across his bed, "You *buy* runes?"
 
@@ -454,13 +454,13 @@ Yeah, not like we can weave them ourselves, and we can use them, but if they're 
 
 The stiffness in his shoulder is paired with phantom pains he can't seem to get rid of and he'd felt the worst of it during sparring with the halberd again. He rubs his shoulder while Darius paces the room,
 
-"Dad used to get the cheapeast possible temprature runes at first, we just call them stoves because that's how we use them," he suddenly thrusts out his hands, "and they fucking *sucked.* I can't tell you how many solutions and precursor cultures I lost to uneven stove plates; they'd slide off the sides of them as soon as you looked away, if you stopped stirring for even a second."
+"Dad used to get the cheapest possible temperature runes at first, we just call them stoves because that's how we use them," he suddenly thrusts out his hands, "and they fucking *sucked.* I can't tell you how many solutions and precursor cultures I lost to uneven stove plates; they'd slide off the sides of them as soon as you looked away, if you stopped stirring for even a second."
 
 "Why though?" Dain yawns again, "Stove plates?"
 
-"You have to heat up herbs to active the principal effects that you'd want active in a medication. We get proper ones now, they're flat, and completely smooth and only work with beakers and flasks made with a specifically compatible glass." Darius puts his hands parallel to themselves, "You activate the rune and it heats up where the rune itself is woven into the stone, and you can set one of those paticular containers on top of it to boil whatever it is you need to use. They *only* get hot enough to boil too. We'd gotten a few at some point that were hastily made and would explode, or were just so fucking uneven your flask wouldn't stay on it."
+"You have to heat up herbs to active the principal effects that you'd want active in a medication. We get proper ones now, they're flat, and completely smooth and only work with beakers and flasks made with a specifically compatible glass." Darius puts his hands parallel to themselves, "You activate the rune and it heats up where the rune itself is woven into the stone, and you can set one of those particular containers on top of it to boil whatever it is you need to use. They *only* get hot enough to boil too. We'd gotten a few at some point that were hastily made and would explode, or were just so fucking uneven your flask wouldn't stay on it."
 
-Darius grins at him, "So yeah, they just make certain things more practical, if you can afford them. Runes are outlawed, or were, and even then riders and fliers are held accountable for the ones they make. Every rune is different but every wielder has a persistant signature."
+Darius grins at him, "So yeah, they just make certain things more practical, if you can afford them. Runes are outlawed, or were, and even then riders and fliers are held accountable for the ones they make. Every rune is different but every wielder has a persistent signature."
 
 "Pass me that."
 
@@ -490,7 +490,7 @@ Her features smooth over, adopting a calm that makes her look like a porcelain a
 
 Dain scowls, "Well naturally, deductions. And that makes creating a baseline of ability and threshold for your signet easier to build."
 
-Behind Sloane is Thoirt, her Red daggertail who occaisionaly shines magenta at a glance. His eyes naturally pass over Thoirt's as he observes them, perched at the tip of a stone rupture that pierces outwards from the cliffside that the fifth floor terrace overlooks. He scans the mountain range behind Thoirt but doesn't Cath against any of them.
+Behind Sloane is Thoirt, her Red Daggertail who occasional shines magenta at a glance. His eyes naturally pass over Thoirt's as he observes them, perched at the tip of a stone rupture that pierces outwards from the cliff-side that the fifth floor terrace overlooks. He scans the mountain range behind Thoirt but doesn't Cath against any of them.
 
 He gestures to one of the wrought iron tables and bench-seats, sitting only after Sloane herself is seated. She seems tired, but not in a defeated way,
 
@@ -524,7 +524,7 @@ When Sloane silently sits down Dain begins his treatise,
 
 She blinks at him, and begins pulling her hair out of the bundle of it that sits on top of her head. She might not want to be, but she's listening,
 
-"You were able to siphon from Kai, but not the tree, Broccoli, or Jessinia." Dain's eyes scan over Sloane's writing in her notebook, and Dain's anecdotes in the Itinerarium, "Kai is a flier and therefore weilds magic that can be siphoned. Jessinia, and the other controls do not wield, they objectively just exist."
+"You were able to siphon from Kai, but not the tree, Broccoli, or Jessinia." Dain's eyes scan over Sloane's writing in her notebook, and Dain's anecdotes in the Itinerarium, "Kai is a flier and therefore wields magic that can be siphoned. Jessinia, and the other controls do not wield, they objectively just exist."
 
 Sloane is looking at him now, and a breeze passes through the terrace, lifting her hair gently away from her chest and dropping it messily along her shoulders and back,
 
@@ -790,7 +790,7 @@ Kaori nods, and whips out a notebook similar to Dain's with a speed that makes h
 
 "Yes," Dain reports, while removing his flight goggles, "So we can teach it to the fliers."
 
-Kaori leans forward, eyes so wide Dain cringes again, "He's teaching you a dismount, to teach the *fliers?*"
+Kaori leans forward, eyes so wide Dain cringes again, "He's teaching you a new dismount dismount, off of him, to teach the *fliers?*"
 
 Dain nods, "Yes."
 
@@ -798,11 +798,11 @@ Dain nods, "Yes."
 
 Because Cath thinks fliers and riders should be battling wyvern in tandem isn't what he tell Kaori.
 
-"It's a casualty control measure," Dain explains, "Injured fliers are about fifty percent more likely to be dropped than a rider since scales provide more security than fur and feathers. Riders can catch falling fliers, and this dismount can get them on the ground running straight to their gryphon and back into the aispace without risking being drained if their quick enough."
+"It's a casualty control measure," Dain explains, "injured fliers are about fifty percent more likely to be dropped than a rider since scales provide more security than fur and feathers. Riders can catch falling fliers, and this dismount can get them on the ground running straight to their gryphon and back into the aispace without risking being drained if their quick enough."
 
 "And when they aren't quick enough?" Kaori asks, knowing the answer.
 
-Dain shrugs, "That's not my variabble to be concerned with."
+Dain shrugs, "That's not my variable to be concerned with."
 
 "Are the others accepting of this practice?" Kaori interrogates further, pointing at the Reds whom Cath now glides in ranks with,
 
@@ -846,13 +846,13 @@ Dain disengages from his professor's memory as calmly an quickly as he can, winc
 
 "Yes Professor," Dain rasps, "I'll do that."
 
-*"Did you see that?!"* Dain exclaims to Cath, shooting his bond a look as Kaori flips through his notebook to note something, *"That was terrifying!"*
+*"Did you see that dragon?!"* Dain exclaims to Cath, shooting his bond a look as Kaori flips through his notebook to note something, *"That was terrifying!"*
 
-Cath circles where he is above Dain, with the other Reds, *"An old invalid? I suppose for a human, that would be... disgruntling."*
+Cath circles where he is above Dain, with the other Reds, *"That old invalid? I suppose for a human, he would be... disgruntling."*
 
-Dain rears his neck in offense, *"Tarin and Sgaeyl don't intimidate you?"*
+*"He was qutie large,"* Dain rears his neck in offense, *"Tarin and Sgaeyl don't intimidate you?"*
 
-Above them Cath screeches and the riders' and fliers' eyes all snap up to his Red, unbenowst that he's snarling at Dain in the bond, *"No Hatchling, they do not. Sgaeyl is an unstoppable force and Tairn is an immovable object. I prefer peace and consistency when I can have it."*
+Above them Cath screeches and the riders' and fliers' eyes all snap up to his Red, unbenowst that he's snarling at Dain in the bond, *"No Hatchling, they do not. Sgaeyl is an unstoppable force and Tairn is an immovable object. Both act on brawn. I prefer peace and consistency when I can have it."*
 
 "As you are likely aware, but your cadet, Sloane Mairi is at risk of repeating a year."
 
@@ -868,7 +868,7 @@ Kaori gives Dain an empathetic look that only irritates the cadet further, "He's
 
 "Orders are orders, and the Aretian Emyrean gave theirs." Dain bites out, "We serve *dragons* not his ego."
 
-"Well said," Kaori praises, then pauses to look up at Cath again, "your dragon and yourself are becoming quite the topic. I hope you two will continue down this path you've chosen."
+"Well said," Kaori praises, then pauses to look up at Cath again and back to Dain with a suspicious, newfound conviction, "your dragon and yourself are becoming quite the topic. I hope you two will continue down this path you've chosen."
 
 Dain gives Kaori a perplexed glance, "Right."
 
@@ -889,4 +889,78 @@ Dain waits as Cath starts his descent to his rider, realizing he'd been too exci
 Dain thinks of the battered Red for some reason, pulling his flight goggles over his eyes.
 
 *"It always has been."* Cath sighs.
+
+"Oh, Cadet Aetos?!" Kaori belts over Cath's beating wings, "I've approved your formal request for your Executive Officer!"
+
+Dain nods and mounts Cath; at least he'll have someone reliable to defer to.
+
+---
+
+Rhiannon Matthais... She's alright, Dain decides, capable as the next, properly righteous and concerned for all of humanity like any human ought to be.
+
+She's waiting for him at the entrance of the repurposed office earlier than he is, and typically Dain shows up before the Wing to take muster as they all file in. Her comportment tightens up when his boots sound down the hallway, eyes locking on his and not faltering once,
+
+"Aetos. Good evening."
+
+"Good evening."
+
+She closes her hands, once, twice then opens her mouth, and closes it right back.
+
+"Let's head inside?" he suggests casually, hand sweeping towards the doorway that she blocks,
+
+"Right," she twists, opening the door and giving him her back—something she wouldn't normally do when there weren't others around.
+
+The office squad four and one are assigned to for rune weaving is large enough to fit a few dozen people standing. He wills his magic into the magelight sconces along the walls, blinking at the reddish hues they take on, and scans the room. It's been cleaned, made ideal for regular use. There's a massive wooden desk, with matching tables and chairs, Dain approaches curiously to poke at the stone slabs organized neatly into a cat-sized chest. Some seem more breakable than others, and next to the chest is a stack of wooden discs that are usually used to weave runes into. He spies silk and fiber ropes in the half open drawer at the bottom of the desk, then steps away.
+
+There are eight tables, two at each direction of the room with four chairs per table. Matthais shuts the door behind them, and still seems to visibly struggle to find the words.
+
+"Don't think about it too much. You're reliable and empathetic. It's unfortunate that you despise me, because I think you're the better of humankind and the cadets coming up deserve a leader like you."
+
+He's surprised at himself that the verbiage flows so easily, and Matthais only nods, "I——"
+
+"——we don't need to tie up loose ends or even find neutral ground. Keep hating me, it's what I'm used to." He nods at the door, "I'll be outside."
+
+He opens the door, exits, and—Matthais has hold of his wrist over the cuff of his uniform blouse, "That's not fair to either of us. We need to be a unit, you picked *me.*" her eyes contain only certainty,
+
+"Tell me what you want then." Dain obliges.
+
+Again, their brown eyes clash, "If you don't want my apology then at least grant me some grace, please."
+
+"You don't need it. I'm not upset about anything pertaining you."
+
+"Well that's fucking shitty for me, all I've done is persecute you. Doesn't that make you angry?"
+
+Dain inhales and scratches behind his ear, "I was in the wrong, so no."
+
+"For doing your *duties?*"
+
+"You know that's not what I mean."
+
+The discomfort is finally pulled from her heart and into her eyes, but Matthais doesn't flinch away from it, "I know."
+
+"In a few months, I'm graduating, and we'll never see each other again. You being my Executive Officer doesn't particularly mean that *our* leadership," he points from himself, and then back to her, "will want you as a wingleader, so do your best to make my job as undemanding as possible."
+
+Her shoulders droop and her braided hairs goes tumbling with them, "You do a lot, Aetos."
+
+"Not recently, and not for the next few months." he forces the words out, "There's a lot of other things I need to prepare for if I want a life after Basgaith."
+
+"Violet," she breathes, "She needs your help still."
+
+"I know."
+
+"Please don't..." Matthais chews the inside of her cheek, "Don't abandon her, she's lost enough."
+
+That's all the confirmation Dain needs to know Riorson actually fucking *gone.* He can't avoid this for much longer, and honestly doesn't want to. He soaks in the crushing acknowldgement and lets his resolve morph again.
+
+"I'm not." Dain gently works his wrist out of her grip and leans againt the wall to the right of the classroom threshold, "I promise. I have the feeling if I don't help her there won't *be* life after Basgaith."
+
+They don't speak again after that, and it's fine by Dain. Since even before Liam's death Matthias had only ever been able to mirror whatever emotions Violet broadcast at him. He hated how vain she seemed in that aspect and wouldn't ever be eager to forge anything with her besides nuetrality.
+
+"Thanks for helping Sloane out, too."
+
+His eyes cut to the corner of his sockets. He definitely doesn't need the lieks of Matthias telling him that; she should be training her signet as well, right alongside himself, Violet, and Imogen.
+
+Whatever.
+
+
 
