@@ -316,21 +316,21 @@ Kaori's eyes fall onto Eleni and Dain, and they exchange a glance before becomin
 
 Eleni and Dain howl out a "yes sir," and Kaori dismisses himself, after placing the riot as ease.
 
-*"I don't have to go back to Basgaith?"* Dain gasps, floundering, still standing with his mouth dropped open while Eleni pulls at his sleeve for him to sit,
+*"I don't have to go back to Basgiath?"* Dain gasps, floundering, still standing with his mouth dropped open while Eleni pulls at his sleeve for him to sit,
 
 *"Here you shall remain, as I do."* Cath proclaims, calm, controlled, *"And your allegiance—"*
 
 *"——with you, Cath. Always."*
 
-Dain's eyes wander, bumping around the dais until eventually they drop to meet Eleni's. He blinks and cranes his neck, looking right to see his Wing and hers watching him with the same befuddled gaze.
+Dain's eyes wander, bumping around the dais until eventually they drop to meet Eleni's. He blinks and cranes his neck, looking right to see his Wing and hers watching them with the same befuddled gaze.
 
 For the first time in his life, he's proud to meet each one of them with his own.
 
 ---
 
-Later that evening, Dain finds his room chock full of his peers. He bites his lip, fighting smiling, they're all people he's fond of. It feels like a leadership meeting back in Basgaith, but it's not only Cianna, who he'd been otherwise willing to tolerate. And his father isn't halfway down the hall, listening.
+Later that evening, Dain finds his room chock full of his peers. He bites his lip, fighting smiling, they're all people he's fond of. It feels like a leadership meeting back in Basgiath, but it's not just Cianna, who he'd been otherwise willing to tolerate. And his father isn't halfway down the hall, listening.
 
-With the exception of Catriona, he likes these people. But he doesn't dislike her either, in all honesty.
+With the exception of Catriona, he likes these people. But Dain doesn't dislike her either, in all honesty.
 
 He's in his bed, clad in his sleeping set, freshly showered after dinner with Kaia and Eleni; the two click immediately and Dain spends most of his meal listening to Kaia explain how the Aretian healer's quadrant is operated. Darius had knocked on his door, barreling past Dain with another carafe of piping hot coffee that the two share two cups worth, together until Catriona and Maren come knocking.
 
@@ -722,7 +722,7 @@ Fuck's sake.
 
 His voice cracks so badly even Sloane winces.
 
-"Is that why Second Wing's wingleader is always touching you like you're a bigass dog?"
+"Is that why Second Wing's wingleader is always touching you like you're a big-ass dog?"
 
 Dain grins, stupidly.
 
@@ -748,9 +748,9 @@ She mimics his voice cracking, "Your second puberty?"
 
 "You think I need a second one?" He volleys, eyes narrowing.
 
-Her pinchable face goes pink and she snaps at him, "You need——" Sloane whips around, standing up so quick from where she'd been lying across the bench that it shakes the table, "——shouldn't you be drooling over his dragon somewhere?"
+Her pinch-able face goes pink and she snaps at him, "You need——" Sloane whips around, standing up so quick from where she'd been lying across the bench that it shakes the table, "——shouldn't you be drooling over his dragon somewhere?"
 
-She points at her daggertail, still perched on her stone seat in the cliffside behind them and when Sloane turns back to face him, she's so pink the tips of her ears look like they're glowing.
+She points at her Daggertail, still perched on her stone seat in the cliff side behind them and when Sloane turns back to face him, she's so pink the tips of her ears look like they're glowing.
 
 "Should I take that?" she mutters, turning back and pointing at the notebook she left with him.
 
@@ -762,7 +762,7 @@ Dain holds the terrace door open until she stubbornly strides through it and wat
 
 "Good night, Mairi." he calls, hopefully.
 
-Sloane stops, swivels at the hips to look at him and flicks him off, "Sweet dreams, Proffessor Aetos."
+Sloane stops, swivels at the hips to look at him and flicks him off, "Sweet dreams, Professor Aetos."
 
 Dain masturbates for the first time in months and falls asleep sweaty and twice as guilty.
 
@@ -770,7 +770,7 @@ Dain masturbates for the first time in months and falls asleep sweaty and twice 
 
 During flight maneuvers Dain is summoned from the skies, and away from Catriona, Maren, and Kai.
 
-Cath turns his dismount into more training, and their preformance jarrs Professor Kaori, who watches with his fists balled so tightly that his knuckles are white once Dain reaches him,
+Cath turns his dismount into more training, and their performance jars Professor Kaori, who watches with his fists balled so tightly that his knuckles are white once Dain reaches him,
 
 "What was that?" he gasps, his eyes are bouncing back and fourth between Dain and Cath, "Did he tell you to do that?"
 
@@ -778,7 +778,7 @@ Dain looks over his shoulder at Cath; he's now joined a small grouping of Reds, 
 
 "He's been having me do a lot of undocumented manuevers lately, says I need to adapt and do it quickly." Dain mutters through panted breaths.
 
-Cath's most recent endeaveor included three new dismounts, only one of which they'd recently began to practice after heavy discussion. Cath tucks into a downward vertical and Dain is meant to scale his Red, adjusting with gravity as he leaves his seat to Cath's swordtail. He's certain that what has Kaori shaking is Dain's literal dismount; sprinting from his seat, up Cath's back to his tail, and *down* as the Red turns upwards to ascend the skies again. Dain is expected to clear Cath's tail and onto the earth by the time Cath's climb phase has begun in his parabolic descent.
+Cath's most recent endeavor included three new dismounts, only one of which they'd recently began to practice after heavy discussion. Cath tucks into a downward vertical and Dain is meant to scale his Red, adjusting with gravity as he leaves his seat to Cath's swordtail. He's certain that what has Kaori shaking is Dain's literal dismount; sprinting from his seat, up Cath's back to his tail, and *down* as the Red turns upwards to ascend the skies again. Dain is expected to clear Cath's tail and onto the earth by the time Cath's climb phase has begun in his parabolic descent.
 
 To Dain it's mostly successful and easy to execute as long as he's consistent and able to climb properly, though he's got to admit, physics make him green in the face and he did puke a bit the first time they tried it.
 
@@ -950,7 +950,9 @@ Her shoulders droop and her braided hairs goes tumbling with them, "You do a lot
 
 "Please don't..." Matthais chews the inside of her cheek, "Don't abandon her, she's lost enough."
 
-That's all the confirmation Dain needs to know Riorson actually fucking *gone.* He can't avoid this for much longer, and honestly doesn't want to. He soaks in the crushing acknowldgement and lets his resolve morph again.
+That's all the confirmation Dain needs to know Riorson actually fucking *gone.* 
+
+He can't avoid this for much longer, and honestly doesn't want to. He soaks in the crushing acknowldgement and lets his resolve morph again.
 
 "I'm not." Dain gently works his wrist out of her grip and leans againt the wall to the right of the classroom threshold, "I promise. I have the feeling if I don't help her there won't *be* life after Basgaith."
 
@@ -958,9 +960,9 @@ They don't speak again after that, and it's fine by Dain. Since even before Liam
 
 "Thanks for helping Sloane out, too."
 
-His eyes cut to the corner of his sockets. He definitely doesn't need the lieks of Matthias telling him that; she should be training her signet as well, right alongside himself, Violet, and Imogen.
+His eyes cut to the corner of his sockets. He definitely doesn't need the likes of Matthias telling him that; she should be training her signet as well, right alongside himself, Violet, and Imogen.
 
 Whatever.
 
-
+He really needs to speak with Violet.
 
