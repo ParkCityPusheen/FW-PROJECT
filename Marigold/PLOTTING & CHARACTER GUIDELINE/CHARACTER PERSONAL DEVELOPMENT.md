@@ -32,11 +32,15 @@
 | **Core principle** | **Don't teach her what her signet does; teach her how to discover what it does.**                             |
 
 
+
+
 ### Late-Night Training
 
 - Sloane realizes Dain is more tired/less argumentative late at night.
 - She deliberately schedules training later and stretches sessions out.
 - She starts exploiting his exhaustion to get more access to him.
+
+
 
 ### First Bed Incident
 
@@ -45,12 +49,16 @@
 - Dain eventually gets in too out of sheer defiance.
 - Sloane gradually presses closer; Dain becomes visibly/physically flustered.
 
+
+
 ### The Game
 
 - Sloane realizes proximity makes Dain weak.
 - She deliberately uses harmless skinship: shoulder-to-shoulder, leaning against him, staying close.
 - She teases him about reacting while he insists she's imagining it.
 - Dain increasingly looks forward to their late-night sessions despite himself.
+
+
 
 ### Other Intimate Moments
 
@@ -59,8 +67,8 @@
 - **Minor injury:** Dain becomes unexpectedly gentle and attentive.
 - **Stolen clothes:** Sloane repeatedly "borrows" his shirts/jacket.
 - **Falling asleep:** Sloane sees Dain completely unguarded and relaxed.
-- **Core dynamic:** Darius receives Dain's voluntary vulnerability; Sloane starts finding ways to access his vulnerability through proximity and exhaustion.  
-  
+- **Core dynamic:** Darius receives Dain's voluntary vulnerability; Sloane starts finding ways to access his vulnerability through proximity and exhaustion.
+
 1. Curiosity
   - She starts noticing things about Dain she hadn't before: his physical capability, intelligence, gentleness, and especially how different he becomes around Darius.
   - **Thought:** *Since when is Dain like this?*

@@ -262,7 +262,7 @@ She sets her hand on his thigh and squeezes, "Oh, then yeah that's fine, sounds 
 
 "——You're really about to just let him in your brain? Just like that?"
 
-Sloane is twisted at the waist, face craned upwards to watch the two of them, and Imogen is pivoted slightly, enough to watch Sloane. Matthais, to Imogens right, is already looking apologetic,
+Sloane is twisted at the waist, face craned upwards to watch the two of them, and Imogen is pivoted slightly, enough to watch Sloane. Matthias, to Imogens right, is already looking apologetic,
 
 "Yep, to see my aunt give me a massive metal canteen; the same way you're about to turn around and see yourself out of my business."
 
@@ -292,9 +292,9 @@ Fliers stay in their seat, some smirking.
 
 Every laugh, sigh, throat clearing, a sniff, his aged stare tidals over the body's of each that the commandeers, before finally speaking to them with his hands laced behind his back.
 
-"On behalf of King Tauri, Aretian and Navarrian Riots, all of the following proclaimed hereby stand as direct orders; Kaori."
+"On behalf of King Tauri, Aretian and Navarrian Riots, all of the following proclaimed hereby stand as direct orders; Kaori. Regardless of Riot, do remember all riders remain under direct order of General Aetos, *myself,* and his Highness, King Tauri."
 
-General Melgren flicks out his hand on with an uninvested motion, summoning Kaori to the dais.
+General Melgren flicks out his hand on with an uninvested motion, summoning Kaori to the dais. Dain's eyes nearly cross because that was no announcement, *that* was a warning.
 
 "Good evening."
 
@@ -476,7 +476,13 @@ Darius leans over him on the bed, peering out Dain's window, and then petting hi
 
 *"Sleep."*
 
-"Alright, see you around."
+"Alright, see you around." his voice goes husky and low, the way it always does when he starts falling asleep or after he's woken up, "Thanks for——"
+
+Darius is opening the door, "——friends don't thank friends for doing friend things for their friends Dain, don't be a weirdo, thanks!"
+
+Dain snuggles more deeply into his bed, and while yanking his pillow down to hold, his stomach becomes an empty pit. This is the *exact* kind of distraction you'd need to keep the news of a missing Duke held in abeyance.
+
+He needs to speak with Violet.
 
 ---
 
@@ -484,9 +490,9 @@ Dain despises people with bad breath.
 
 Sometimes he finds himself wishing he could build a to-scale toothbrush for each and every dragon, and a potion he could instruct cadets to rinse with that would do away with odor of their last meal or the marination of sleep against their gums and teeth. Cleanliness is what Amari demands of her followers, and so Dain complies, but Sloane leaning towards his face to ask if he'd brushed his teeth peeves him slightly, and he pulls away, worried his mouth bear stench itself.
 
-"I had been sleeping, so I did, before I came to see you." he admits carelessly while retrieving the Iterarium and her research from his trouser pocket, "I appreciate your notes too, by the way."
+"I had been sleeping, so I did, before I came to see you." he admits carelessly while retrieving the Itinerarium and her research from his trouser pocket, "I appreciate your notes too, by the way."
 
-Her features smooth over, adopting a calm that makes her look like a porcelain art peice, "Not sure what they possibly could've helped you with but you're welcome."
+Her features smooth over, adopting a calm that makes her look like a porcelain art piece, "Not sure what they possibly could've helped you with but you're welcome."
 
 Dain scowls, "Well naturally, deductions. And that makes creating a baseline of ability and threshold for your signet easier to build."
 
@@ -498,7 +504,7 @@ He gestures to one of the wrought iron tables and bench-seats, sitting only afte
 
 "Of Navarre and Basgaith? Yes."
 
-Dain lets the comment swing past him, "No I meant, you, in general, I want to have properly recorded constants for your signet. So if you're tired it needs to be documented along with whatever results we get today."
+Dain lets the comment hurdle past him, "No I meant, you, in general, I want to have properly recorded constants for your signet. So if you're tired it needs to be documented along with whatever results we get today."
 
 "Oh," Sloane sighs, then glances behind her at Thoirt, "I was in the gym with Imogen for two hours, and just finished eating."
 
@@ -576,7 +582,7 @@ Dain scratches the base of his neck, then reaches farther back to scratch betwee
 
 "So if I tried to siphon Violet, do you think I would struggle?"
 
-"If she was willingly giving you magic, no... but under the right circumstances, and if she were being particularly defensive, absolutely, yes." his biceps drop onto the table and he drops his forehead onto the itnerarium, "I'm not trying to be snice or nefarious when I say this, but Violet isn't someone you'd use to claim control when wielding. She's still under strict mentoring from Felix, and Carr thinks she's unreliable."
+"If she was willingly giving you magic, no... but under the right circumstances, and if she were being particularly defensive, absolutely, yes." his biceps drop onto the table and he drops his forehead onto the Itinerarium, "I'm not trying to be since or nefarious when I say this, but Violet isn't someone you'd use to claim control when wielding. She's still under strict mentoring from Felix, and Carr thinks she's unreliable."
 
 "Carr thinks I'm useless."
 
@@ -586,7 +592,7 @@ Dain drags his chin up to look at her through some of his curls that drop forwar
 
 Dain shrugs, and sits up properly.
 
-"What about the faucet, about how I can take more or less at will, if it's not against someone who is a stronger wielder than myself." Sloane's fingers tap from thumb to pinky against her knees with her face still smooshed against them.
+"What about the faucet, about how I can take more or less at will, if it's not against someone who is a stronger wielder than myself." Sloane's fingers tap from thumb to pinky against her knees with her face still pressed against them.
 
 "I think that's just an aspect of your signet, typically with more complex signets there are aspects *stipulations* that are applicable when wielding. I've always thought Bodhi's signet was unimaginable, and wondered about those things in respect to it."
 
@@ -626,13 +632,9 @@ When she doesn't respond, just looks at him, he adds:
 
 "Navarre's best boy turning a blind eye to Tyrrs? Since when?"
 
-Since he'd discovered his father was willing to make increasingly stupid decisions as a means to an egotistical, narricistic end, while hundreds of thousands of innocent civilians die beyond their borders. Or, two unsuspecting cadets.
+Since he'd discovered his father was willing to make increasingly stupid decisions as a means to an egotistical, narcissistic end, while hundreds of thousands of innocent civilians die beyond their borders. Or, two unsuspecting cadets.
 
-Since he'd slid that dagger across Varrish's throat and felt *giddy* about it.
-
-Since he'd split his quadrant.
-
-Since Cath came clean about the wvyern and venin while he was detained in the Aretian Fortress after doing so.
+Since he'd slid that dagger across Varrish's throat and felt *giddy* about it. Since he'd split his quadrant. Since Cath further educated him about wyvern and venin while he was detained in Riorson House.
 
 "I wish I could convey to you how happy I am to never have to step foot in Basgaith again." Dain mumbles, "How happy I am for *you.*"
 
@@ -644,7 +646,7 @@ Dain shakes his head, "I'm not. I'll serve you until you cast me aside. I'll die
 
 "Well," he responds, "You won't ever have to."
 
-When she pulls her head away from her knees, Sloane eyes find the cieling above them. It's carved out of the cliffside the terracce opens up,
+When she pulls her head away from her knees, Sloane eyes find the ceiling above them. It's carved out of the cliff side the terrace opens up,
 
 "There is no God of Forgiveness." Sloane informs him.
 
@@ -652,9 +654,9 @@ Dain's shoulders drop, "But if there were I'd pray to them everyday. As often as
 
 Her eyes are glassy again when they hold each other's concerned gazes. He feels his soul jerk away from his body as if begging to meet hers,
 
-"Anyway," he soldiers on, caught in the light that flickers off of her irises from the magelights. He swears he's looking at sapphires that are imbued with a live flame, trapped behind the glass of a jewlers display case; he'll never be able to afford Sloane. She'll always be something strong, and beautiful, and off-limits to him,
+"Anyway," he soldiers on, caught in the light that flickers off of her irises from the magelights. He swears he's looking at sapphires that are imbued with a live flame, trapped behind the glass of a jewelers display case; he'll never be able to afford Sloane. She'll always be something strong, and beautiful, and off-limits to him,
 
-"The natural state of your signet is a closed valve by defualt, if you want to refer to it as a faucet. You can touch people without taking anything, and that speaks to it being a closed valve in it's normal conditions. If you were to draw from a person, you'd need to touch their skin, and even then you still have to wield. When you transfer, it's the same difference. These are some of the foundational principles of your signet, and we'll be able to add more as you master it."
+"The natural state of your signet is a closed valve by default, if you want to refer to it as a faucet. You can touch people without taking anything, and that speaks to it being a closed valve in it's normal conditions. If you were to draw from a person, you'd need to touch their skin, and even then you still have to wield. When you transfer, it's the same difference. These are some of the foundational principles of your signet, and we'll be able to add more as you master it."
 
 Sloane fixes herself lengthwise across her bench, pressing the side of her hip into it while unfolding herself, and hanging onto the table with her arms crossed under her head for cushioning, "Gotta hand it to you, you're really good with words."
 
@@ -662,7 +664,7 @@ Sloane fixes herself lengthwise across her bench, pressing the side of her hip i
 
 *"And why is she encouraging that? You already wield them with considerably less restraint than you should.”"*
 
-Dain's head jerks back and his indignance leaks into his facial expression, *"So do you!"*
+Dain's head jerks back and his indignant feelings leak into his facial expression, *"So do you!"*
 
 "What'd he say?" Sloane demands, eyes sharp with wit; the emotional abyss he'd been privy to witnessing in them is now nowhere to be found.
 
@@ -672,7 +674,7 @@ Sloane groans, "You're a horrible liar."
 
 "You're nosey." Dain snaps.
 
-"No one ever tells me anything, it's a naturally occurring result of being unincluded." she claims with an eyeroll.
+"No one ever tells me anything, it's a naturally occurring result of being secluded." she claims with an eye roll.
 
 He understands that position, "I can sympathize."
 
@@ -700,11 +702,11 @@ Her eyes narrow, "You told us you don't use your signet."
 
 "I hadn't, but lately..."
 
-Eleni's memory of her greyhaired aunt passing along the beat up canteen she'd passed along to him shutters in his mind, right alongside the one Kaia shared with him. Of her and Darius's conversation about him in how Dain reminds their them of Darius's sick uncle, of Darius's dead mother. He discovers the two healers were raised together in that same memory, that they're relationship runs deeper than any of Dain's could ever.
+Eleni's memory of her grey-haired aunt passing along the beat up canteen she'd then re-gifted to him reanimates in his mind, right alongside the one Kaia shared with him. The one of her and Darius's conversation about Dain in how Dain reminds them of Darius's sick uncle, of Kaia's dead father. He discovers the two healers were raised together in that same memory, that their relationship runs deeper than any of Dain's have ever. Probably could ever.
 
 "I *have* been using it."
 
-*"Yes."* Cath hisses, lighting the bond up with pride.
+*"Yes."* Cath hisses, lighting the bond up with pride, *"A job well done, Hatchling."*
 
 Dain cheeks heat and he waves around the top of his head as if his red were buzzing about his face.
 
@@ -730,7 +732,7 @@ He wasn't a dog but if she asked him to bark he would, probably. And she was mor
 
 He slaps his hands over his face and Sloane grimaces at him.
 
-*"How dignifying for me to be the first of my kind to bond a canine."* Cath snarls.
+*"How dignifying for me to be the first of my kind to bond a canine."* Cath snarls. His mood has violently swung left.
 
 *"Can you——"*
 
@@ -740,7 +742,7 @@ Dain shields.
 
 He drags his palms down his face and clears his throat, "I think she's just a touchy person."
 
-"Oh," she deadpans, eyes rolling so hard she blinks a few times afterwards, "well I won't tell anyone about your second puberty, don't worry."
+"Oh," Sloane deadpans, eyes rolling so hard she blinks a few times afterwards, "well I won't tell anyone about your second puberty, don't worry."
 
 "My what?"
 
@@ -748,9 +750,9 @@ She mimics his voice cracking, "Your second puberty?"
 
 "You think I need a second one?" He volleys, eyes narrowing.
 
-Her pinch-able face goes pink and she snaps at him, "You need——" Sloane whips around, standing up so quick from where she'd been lying across the bench that it shakes the table, "——shouldn't you be drooling over his dragon somewhere?"
+Her pinch-able face goes pink and she snaps at him, "You need——" Sloane whips around, standing up so quick from where she'd been lying across the bench that it shakes the table, "——shouldn't *you* be drooling over his dragon somewhere?"
 
-She points at her Daggertail, still perched on her stone seat in the cliff side behind them and when Sloane turns back to face him, she's so pink the tips of her ears look like they're glowing.
+She points at her Daggertail, still perched on her stone seat in the cliff side behind them and when Sloane turns back to face him, she's so increasingly pink the tips of her ears look like they're glowing.
 
 "Should I take that?" she mutters, turning back and pointing at the notebook she left with him.
 
@@ -786,7 +788,7 @@ To Dain it's mostly successful and easy to execute as long as he's consistent an
 
 "Cath would never suggest I do something he doesn't see is within my potential." Dain nearly snaps, "I'm useless to him dead."
 
-Kaori nods, and whips out a notebook similar to Dain's with a speed that makes him cringe and the thirdyear makes a personal note to avoid mimcking the same action, "Did Cath suggest these evolutions of his own volition?"
+Kaori nods, and whips out a notebook similar to Dain's with a speed that makes him cringe and the third-year makes a personal note to avoid mimicking the same action, "Did Cath suggest these evolutions of his own volition?"
 
 "Yes," Dain reports, while removing his flight goggles, "So we can teach it to the fliers."
 
@@ -798,7 +800,7 @@ Dain nods, "Yes."
 
 Because Cath thinks fliers and riders should be battling wyvern in tandem isn't what he tell Kaori.
 
-"It's a casualty control measure," Dain explains, "injured fliers are about fifty percent more likely to be dropped than a rider since scales provide more security than fur and feathers. Riders can catch falling fliers, and this dismount can get them on the ground running straight to their gryphon and back into the aispace without risking being drained if their quick enough."
+"It's a casualty control measure," Dain explains, "injured fliers are about fifty percent more likely to be dropped than a rider since scales provide more security than fur and feathers. Riders can catch falling fliers, and this dismount can get them on the ground running straight to their gryphon and back into the airspace without risking being drained if their quick enough."
 
 "And when they aren't quick enough?" Kaori asks, knowing the answer.
 
@@ -810,11 +812,9 @@ Dain shrugs, "That's not my variable to be concerned with."
 
 He assumes they're done and pivots a bit, but Kaori reaches out to grab Dain's shoulder,
 
-"Where is your flight jacket?" Kaori demands, "It's unlike you to fly without it."
+"Where is your flight jacket?" Kaori demands, when Cath dips just above them, eyes fixed on both riders and then away again, "It's unlike you to fly without it, and winter nears."
 
-Dain's memory works itself, flitting to where he'd dropped it just outside of Cath's den.
-
-He opens his mouth to tell Kaori but snaps his jaw shut when one of Kaori's memories severs his processing; Dain immediately shields, squinting at the pressure of it, at how badly it's being shoved at him as if someone nearby *wants* him to know.
+He opens his mouth to tell Kaori but clamps his jaw shut when one of the professor's memories severs his processing; Dain immediately shields, squinting at the pressure of it, at how intensely it's being reminisced.
 
 *"Don't shield,"* Cath barks, proving just how useless they are in the moment, *"ground. Be still and accept what is given to you."*
 
@@ -824,13 +824,13 @@ It's dark, pitch black and it fucking *stinks* wherever this person is. Dain wat
 
 They must be in a tunnel.
 
-The uncanny, watery snarl of a dragon makes the person whip around to face where the memory had begun intially, only intead of darkness a singular golden eyes percieves them. Fear begins to smother Dain as the one who wields that eye is uncovered by the light escaping through the cave mouth.
+The uncanny, watery snarl of a dragon makes the person whip around to face where the memory had begun initially, only instead of darkness a singular golden eyes perceives them. Fear begins to smother Dain as the one who wields that eye is uncovered by the light escaping through the cave mouth.
 
 A red who is perfectly smaller than Tairn, and larger than Sgaeyl looks down at him.
 
-It's riddled with red scars that have been reoffended so many times the scar tissues grows thick as it's scales in the shapes of the gashes and bite marks. It's horns scrape painfully at the top of the cave cieling, dropping small boulders as it leans forward with a gaping mouth that is missing more teeth than it has. His sight blips involuntarily to the cieling, scurrying back to avoid being crushed by the rocks and the dragon slithers forwards with them to maintain it's proximity. When the person looks back up, so does Dain, and together they witness the true extent of the injuries on this dragon.
+It's riddled with scars that have been reopened so many times the scab tissues grow thick in the shapes of the gashes and bite marks its received. It's horns scrape painfully at the top of the cave ceiling, dropping small boulders as it leans forward with a gaping mouth that is missing more teeth than it has. His sight blips involuntarily to the ceiling, scurrying back to avoid being crushed by the rocks and the dragon slithers forwards with them to maintain it's proximity. When the person looks back up, so does Dain, and together they witness the true extent of the injuries on this dragon.
 
-It's right wing is so tattered that it's obvious even tucked against it's body in rest, and the morningstartail it bears is missing the jutting, outward reaching scales in random groupings. Most notabley, it's right eyes is scabbed over, Dain can see it moving around behind where the scabbing hasn't grown over it, so the eyes is still there but this Red sure can't see out of it.
+It's right wing is so tattered that it's obvious even tucked against it's body in rest, and the Morningstartail it bears is missing the jutting, outward reaching scales in random groupings. Most notably, it's right eyes is scabbed over, Dain can see it moving around behind where the scabbing hasn't grown over it, so the eyes is still there but this Red sure can't see out of it.
 
 *"I've come with the promise of flesh to scale."*
 
@@ -842,7 +842,7 @@ Dain disengages from his professor's memory as calmly an quickly as he can, winc
 
 "Sorry," Dain licks his lips, "I lost it in Draithus."
 
-"See to it that you get another, then, yes?"
+"See to it that you're issued another, then, yes?"
 
 "Yes Professor," Dain rasps, "I'll do that."
 
@@ -850,31 +850,31 @@ Dain disengages from his professor's memory as calmly an quickly as he can, winc
 
 Cath circles where he is above Dain, with the other Reds, *"That old invalid? I suppose for a human, he would be... disgruntling."*
 
-*"He was qutie large,"* Dain rears his neck in offense, *"Tarin and Sgaeyl don't intimidate you?"*
+*"He was large,"* Dain rears his neck in offense, *"Tairn and Sgaeyl don't intimidate you?"*
 
-Above them Cath screeches and the riders' and fliers' eyes all snap up to his Red, unbenowst that he's snarling at Dain in the bond, *"No Hatchling, they do not. Sgaeyl is an unstoppable force and Tairn is an immovable object. Both act on brawn. I prefer peace and consistency when I can have it."*
+Above them Cath screeches and the riders' and fliers' eyes all snap up to his Red, unbeknownst that he's snarling at Dain in the bond, *"Size is an insignificant measure of strength. And, while Sgaeyl is an unstoppable force and Tairn an immovable object. Both act on brawn and behave as Oranges. I am no Orange."*
 
-"As you are likely aware, but your cadet, Sloane Mairi is at risk of repeating a year."
+"Additionally, I'm sure you've been made aware of Sloane Mairi's call to recommence her first year."
 
-Dain nods, and allow Kaori to continue.
+Dain nods and allows Kaori to continue.
 
-"I've come to notify you that each of her three assessments will be observed in Basgaith, by seventeen-hundred, as per General Aetos."
+"Her assessments will be observed in Basgaith, by seventeen-hundred, as per General Aetos, and graded accordingly by the requesting professors. They'll be held three months apart and we'll be sure to send a scroll excusing you both from academic obligation for the day prior and a half day after. This was agreed upon in order to provide her time to acclimate prior," Kaori lifts a studious pointer finger, "and rest afterwards."
 
 Irritation more pure than Cath's sluices Dain's mood.
 
-"Of course they are." he snaps, "How fucking pointless."
+"Of course they are." he snaps. "I suppose I should thank him for the travel liberties."
 
 Kaori gives Dain an empathetic look that only irritates the cadet further, "He's been quite busy upsetting Aretian personnel, it's not just you." and then imparts that information as if it might fucking soothe a nerve.
 
-"Orders are orders, and the Aretian Emyrean gave theirs." Dain bites out, "We serve *dragons* not his ego."
+"Orders are orders, and the Aretian Empyrean gave theirs." Dain bites out, "We serve *dragons* not his ego."
 
-"Well said," Kaori praises, then pauses to look up at Cath again and back to Dain with a suspicious, newfound conviction, "your dragon and yourself are becoming quite the topic. I hope you two will continue down this path you've chosen."
+"Well said," Kaori praises, then pauses to look up at Cath again and back to Dain with a suspicious, newfound conviction, "Your dragon and yourself are becoming quite the topic. I hope you two will continue down this path you've chosen."
 
 Dain gives Kaori a perplexed glance, "Right."
 
 "Then, until next time, in Basgaith."
 
-"You're going back to Navarre?" Dain bursts, "Why?"
+"You're going back to Navarre already?" Dain bursts, "Why?"
 
 "Graduation is just on the horizon Aetos, I've got first years to prepare for."
 
@@ -896,7 +896,7 @@ Dain nods and mounts Cath; at least he'll have someone reliable to defer to.
 
 ---
 
-Rhiannon Matthais... She's alright, Dain decides, capable as the next, properly righteous and concerned for all of humanity like any human ought to be.
+Rhiannon Matthias... She's alright, Dain decides, capable as the next, properly righteous and concerned for all of humanity like any human ought to be.
 
 She's waiting for him at the entrance of the repurposed office earlier than he is, and typically Dain shows up before the Wing to take muster as they all file in. Her comportment tightens up when his boots sound down the hallway, eyes locking on his and not faltering once,
 
@@ -912,15 +912,15 @@ She closes her hands, once, twice then opens her mouth, and closes it right back
 
 The office squad four and one are assigned to for rune weaving is large enough to fit a few dozen people standing. He wills his magic into the magelight sconces along the walls, blinking at the reddish hues they take on, and scans the room. It's been cleaned, made ideal for regular use. There's a massive wooden desk, with matching tables and chairs, Dain approaches curiously to poke at the stone slabs organized neatly into a cat-sized chest. Some seem more breakable than others, and next to the chest is a stack of wooden discs that are usually used to weave runes into. He spies silk and fiber ropes in the half open drawer at the bottom of the desk, then steps away.
 
-There are eight tables, two at each direction of the room with four chairs per table. Matthais shuts the door behind them, and still seems to visibly struggle to find the words.
+There are eight tables, two at each direction of the room with four chairs per table. Matthias shuts the door behind them, and still seems to visibly struggle to find the words.
 
 "Don't think about it too much. You're reliable and empathetic. It's unfortunate that you despise me, because I think you're the better of humankind and the cadets coming up deserve a leader like you."
 
-He's surprised at himself that the verbiage flows so easily, and Matthais only nods, "I——"
+He's surprised at himself that the verbiage flows so easily, and Matthias only nods, "I——"
 
 "——we don't need to tie up loose ends or even find neutral ground. Keep hating me, it's what I'm used to." He nods at the door, "I'll be outside."
 
-He opens the door, exits, and—Matthais has hold of his wrist over the cuff of his uniform blouse, "That's not fair to either of us. We need to be a unit, you picked *me.*" her eyes contain only certainty,
+He opens the door, exits, and—Matthias has hold of his wrist over the cuff of his uniform blouse, "That's not fair to either of us. We need to be a unit, you picked *me.*" her eyes contain only certainty,
 
 "Tell me what you want then." Dain obliges.
 
@@ -936,7 +936,7 @@ Dain inhales and scratches behind his ear, "I was in the wrong, so no."
 
 "You know that's not what I mean."
 
-The discomfort is finally pulled from her heart and into her eyes, but Matthais doesn't flinch away from it, "I know."
+The discomfort is finally pulled from her heart and into her eyes, but Matthias doesn't flinch away from it, "I know."
 
 "In a few months, I'm graduating, and we'll never see each other again. You being my Executive Officer doesn't particularly mean that *our* leadership," he points from himself, and then back to her, "will want you as a wingleader, so do your best to make my job as undemanding as possible."
 
@@ -948,15 +948,15 @@ Her shoulders droop and her braided hairs goes tumbling with them, "You do a lot
 
 "I know."
 
-"Please don't..." Matthais chews the inside of her cheek, "Don't abandon her, she's lost enough."
+"Please don't..." Matthias chews the inside of her cheek, "Don't abandon her, she's lost enough."
 
 That's all the confirmation Dain needs to know Riorson actually fucking *gone.* 
 
-He can't avoid this for much longer, and honestly doesn't want to. He soaks in the crushing acknowldgement and lets his resolve morph again.
+He can't avoid this for much longer, and honestly doesn't want to. He soaks in the crushing acknowledgement and lets his resolve morph again.
 
-"I'm not." Dain gently works his wrist out of her grip and leans againt the wall to the right of the classroom threshold, "I promise. I have the feeling if I don't help her there won't *be* life after Basgaith."
+"I'm not." Dain gently works his wrist out of her grip and leans against the wall to the right of the classroom threshold, "I have the feeling if I don't help her there won't *be* life after Basgaith."
 
-They don't speak again after that, and it's fine by Dain. Since even before Liam's death Matthias had only ever been able to mirror whatever emotions Violet broadcast at him. He hated how vain she seemed in that aspect and wouldn't ever be eager to forge anything with her besides nuetrality.
+They don't speak again after that, and it's fine by Dain. Since even before Liam's death Matthias had only ever been able to mirror whatever emotions Violet broadcast at him. He hated how vain she seemed in that aspect and wouldn't ever be eager to forge anything with her besides neutrality.
 
 "Thanks for helping Sloane out, too."
 
@@ -966,3 +966,158 @@ Whatever.
 
 He really needs to speak with Violet.
 
+"Aetos!"
+
+"Godsdamnit Tink, will you slow the fuck down?!"
+
+Dain looks to his left, he counts three lighter-khaki uniforms barreling towards him and at the front, Tink Halson grinning so widely he doesn't recognize the flier at first. Her haste lessens as she draws nearer, composition going formal once she's close enough to extend her hand in greeting,
+
+"Ready to get irritated?" she squeaks.
+
+---
+
+Halson's eyes are very pretty, they're a blue true to lapis lazuli, as if a small sphere of it had been formed in a bed of amber so light it seemed yellow, and then set into her skull. They're gentle and never regain the excitement they'd bore when the two of them were sparring during weapons training, she's too focused for excitement.
+
+"Okay so," her eyes bounce from Catriona, who took a seat with Maren to Dain's left, and back to the uneven disc of Hemlock ahead of him, "I'm going to regurgitate everything our professor said but in a way that you'll understand."
+
+Dain, in offense, bites out, "I understood him. I've also done it before."
+
+"Then why can't you weave it *now?*" Halson growls back, pointing at his stack of failures between himself and Catriona; exactly three. And that's not even that fucking bad when Ridoc has ten more than Dain's three.
+
+Maren covers her mouth but Dain can still hear the stuttering breaths that punch out of her while she laughs at them.
+
+"And you rehashing the explanation is going to make it any different than when he explained it?" Dain whines, leaning back and glaring at Maren over Catriona's head. She removes her hand and begins to laugh aloud,
+
+"Aetos I'm so sorry, you're so committed and you still suck so badly." she howls, pushing Catriona into him when she doubles over in her seat, "Oh, Amari please. Mercy."
+
+Dain's eyes narrow and he gently pushes Catriona off of him, she goes with no resistance, "Get to explaining then, Halson."
+
+"Don't you wanna get out your notes?"
+
+"For what?"
+
+"To write it down?" Halson looks genuinely confused, "So you can take your notes or whatever."
+
+Dain's lip twitches, "Why would I——"
+
+"——you take notes while *draognback,* I didn't think a table would be so abhorrent for once."
+
+Maren wheezes, "Tink, please leave him alone."
+
+Dain snatches the Hemlock disk from their table, glaring at Halson,
+
+"This is *raw* Hemlock. Wood medium, uneven, not sanded, and raw."
+
+Halson grins, "Yes, and you are Dain Aetos. Rider, wingleader, Navar——"
+
+Maren enters a coughing fit and Catriona laugh joins hers with unnecessary giggling.
+
+"It's a softer wood, and when it's this dry, more likely to split." Dain hisses, soldiering on, "There's going to be two symbols," he places the disk on the table and places his right hand onto it.
+
+Fuck them. His forehead wrinkles as Dain suspends himself into the bond, he reaches for Cath and feels gravelly sand beneath his feet; he finds his Red there. Cath stares down at him,
+
+*"I'm going to teach you how to weave a rune today, Cath."*
+
+Cath's chin jerks downwards as the Dain imagines the process in his head, *"Very well."* His dragon remarks.
+
+*"It's been a while,"* he whispers stupidly, *"But I've done it before, right?"*
+
+Cath's Swordtail flicks out, but the water doesn't splash around it. *"If you say so."* 
+
+Dain's fingers itch, he takes from Cath, borrows graciously to create from what his Swordtail allows,
+
+*"Firstly, once you've selected your medium, you must define the rune's intended purpose."*
+
+Dain peeks up at Cath and finds marigold eyes the size of church bells peering back at him.
+
+*"Ours is just simple sound shield. It need only establish a small perimeter around the user, containing all sound produced within it,"* his hand moves on it's own, hand caressing the Hemlock disk with all fingers excluding his thumb that drags close along the edge of it's surface subconsciously searching for the shapes of *shield* and *sound,* *"and blocking all sound originating beyond it"*
+
+His hands itch so badly Dain nearly stops grounding to scratch them and Cath's head dips downwards to where Dain stands in their lake,
+
+*"The way they're written doesn't make any sense."* Dain complains.
+
+Cath's head twists exactly ninety degrees in thought.
+
+*"Languages are written across mediums to create words,"* Cath supplies, *"you said once before, runes seem logosyllabic to you."*
+
+*"Right,"* Dain nods, *"They're more symbol than letter, but the symbols have meanings and specific words at times. And the symbols can vary based on how complicated the rune is; I think only simple runes have shared shapes and patterns."*
+
+*"Perhaps try drawing, and not writing then."*
+
+Dain digs his fingers into the disk.
+
+*"What do you mean?"*
+
+*"Your companions complain they no longer need to speak to you; they have the urge to show you what they wish for you to know. You needn't write anything, only convey what you need."*
+
+*"I can't write what my——"*
+
+He begins to channel from Cath. Their lake dissolves, climbing up his body and into the palms of his hand as he instructs it too; he needs it quiet, *silent,* just this part of his world and life. The water crawls around him, encapsulating him in complete serenity.
+
+*"Like that."* Cath's voice chuffs, *"They no longer wish to speak when they can simply convey their intentions."*
+
+*"Okay,"* Dain responds, eager, *"Now what?"*
+
+*"Look."*
+
+Dain leaves the bond, ready to weave; but his disk has already been neatly runed. He picks it up and examines it with the intention of making the same shapes he sees on it: a perfectly symmetrical square with an equally flawlessly round circle within it touching each side of the square. It's about the size of his fist on the disk that's more the size of a porridge bowl.
+
+"I was gonna do it." Dain sighs, waving the used disk at Halson and trying to hand it to her.
+
+She bats it away, "What do you mean?" she scoffs, "You just did that."
+
+Dain looks down at the run and activates it.
+
+The world goes utterly silent and remains that way until Halson shoves him,
+
+"You can't hear me?" she bites, eyes wide, "Really?"
+
+"Not at all." Dain's head swings side-to-side and he blinks away the muted brown curls that are nearly falling into his eyes.
+
+"Too much magic." Halson mandates, "Try not to weave too intently when you're setting your magic into your mediums."
+
+Catriona snatches the disk away from them. "Don't explain it to him that way Tink," she hands the disk back to Dain, "The shape you make is formed by the intention and *set* with magic; your sound shield making it so you can't hear what's happening around you isn't because there's too much magic. It's because your magic is too strong."
+
+"Is there a way to modify the strength of my magic?" Dain asks with round eyes, "Can I set the run more weakly?"
+
+"No, but you can find a stronger medium. Try buloke, it's the hardest wood in the continent after livitae."
+
+Tink points to the chest of materials and then adds, "Livitae is three times more affordable than buloke, and you can get it from Poromiel, so it's more readily available to you."
+
+"Those are great points." Maren heads up to their instructor's desk, "Aetos, if you plan on weaving runes often, you should find out what you need for which runes, and how much it's going to cost you. If you don't want to buy or barter for materials it'll do you well to research where you can get them yourself."
+
+She tosses a disk of livitea to Catriona, and who passes it to Dain; it's nearly teal in color and doesn't bend as much as the hemlock did. For whatever reason it's cut into a square shape and not a round one.
+
+Dain makes quick work of setting his rune into it this time, spurred by the eyes on him and the knowledge of the actual shape of the rune itself. Once it's been carved into the stone by his magic, he looks over at Catriona,
+
+"Try it." she fiddles with the ends of her dark hair while waiting for him to make his attempt.
+
+"He catches on quick." Maren notes while finishing up one of her own; she sounds terrible far away, though she's right next to him after Catriona, "He was horrible the first time, do you remember?"
+
+*"Good job."*
+
+Dain grins, *"Thanks to you."*
+
+*"Usually."* Cath chuffs at his rider.
+
+*"Ostentatious."* Dain let's his consonants drag the way Cath does when he's irritated. 
+
+His eyes bounce to Catriona; she's watching him the same way her silver-winged gryphon does, "Try this," she insists, passing his first rune to Maren.
+
+Maren glances at Catriona, mouth moving but not a word is registered.
+
+"You can't hear me at all can you?"
+
+"Nope."
+
+
+
+
+
+- next i need dain to understand what the order of operations was for that to happen: 
+[1] what is his intention
+[2] how can he convey it
+[3] how much magic is needed
+[4] can the medium handle that amount of magic
+
+- this is where Dain being insanely powerful will come into play, because he's about to fuck up that table

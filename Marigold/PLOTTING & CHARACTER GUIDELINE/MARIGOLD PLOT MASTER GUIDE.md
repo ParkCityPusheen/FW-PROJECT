@@ -18,14 +18,47 @@ After the assessment. Sloane and Dain become an item. Dain graduates. As an offi
 
 THE MOVING ON: Dain begins to learn about venin, blood magic, history, civil war war between Riots, etc. not getting into that yet..... thnx
 
-THE BIG ISSUE: Dragons can exist, but bonding must STOP. Gryphons lend magic from the skies, and dragons do not, excluding irids, Navarre knows this and does not want to give up their power and neither do some dragons. Navarre does not want to bow down to fliers who will be able to keep their magics. (The and THIRD part of marigold)
+***THE BIG ISSUE**:* Dragons can exist, but bonding must STOP. Gryphons lend magic from the skies, and dragons do not, excluding irids, Navarre knows this and does not want to give up their power and neither do some dragons. Navarre does not want to bow down to fliers who will be able to keep their magics. (The and THIRD part of marigold)
 
 POROMIEL AND NAVARRE WILL NEED TO UNANIMOUSLY AGREE TO END BONDING OF HUMANS, THE IRIDS WILL COME ABOUT TO EXPLAIN THIS IN THE SECOND HALF OF MARIGOLD (AFTER GRADUATION)
 
 - CURRENTLY WE ARE IN PHASE: **PLEASE AMARI, GRADUATION**
 
-* DAIN MUST GET SLOANE TO PASS HER THREE ASSESSMENTS & DAIN MUS GRADUATE
-* DAIN MUST MASTER HIS WEAPON (HALBERD) AND RUNES
-* SLOANE MUST ALSO MASTER RUNES BECAUSE SHE IS A MAIRI AND THIS IS DAIN'S PERSONAL PREROGATIVE
-* DARIUS MUST HAVE AT LEAST ONE BREAKTHROUGH IN DRAGON MEDICINES
-* DAIN IS SO TRUSTED BY CATH'S DEN THAT HE BECOMES A SPOKESPERSON FOR IT
+- DAIN MUST GET SLOANE TO PASS HER THREE ASSESSMENTS & DAIN MUS GRADUATE
+- DAIN MUST MASTER HIS WEAPON (HALBERD) AND RUNES
+- SLOANE MUST ALSO MASTER RUNES BECAUSE SHE IS A MAIRI AND THIS IS DAIN'S PERSONAL PREROGATIVE
+- DARIUS MUST HAVE AT LEAST ONE BREAKTHROUGH IN DRAGON MEDICINES
+- DAIN IS SO TRUSTED BY CATH'S DEN THAT HE BECOMES A SPOKESPERSON FOR IT
+
+
+
+***REGARDING SLOANE'S ASSESSMENTS AND IDP***
+    Sloane's assessments are each one month apart
+
+++[1]-Professor Emetterio++
+    Primarily weapons. Determined by a random match
+++[2]-Professor Carr++
+    Primarily wielding. Determined by besting Carr 
+++[3]-General Alloces Aetos++
+    Combined effort. Determined by a random match
+
+
+- REGARDING SLOANE'S SIGNET
+
+[Dain is her conduit equivalent]
+
+[She is exceptional at imbuing]
+
+- REGARDING WEAPON MASTERY
+
+[Sawyer begins honing his signet because Dain wants him to make all sorts of shit for runed weapons]
+
+[Tink's family commission's a halberd for Dain]
+
+[Dain genuinely starts whooping ass]
+
+- REGARING RUNES AND MASTERY
+
+[Halson dies]
+
+[The later permission is narrow. Cath's father collects stones and gems because he fancies them. He will allow Dain into the den to take them as mediums for runes, and for runes only. That is the door between the den and the rune work.]
