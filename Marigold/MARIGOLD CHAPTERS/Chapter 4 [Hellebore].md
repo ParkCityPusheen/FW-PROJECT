@@ -982,7 +982,9 @@ Halson's eyes are very pretty, they're a blue true to lapis lazuli, as if a smal
 
 Dain, in offense, bites out, "I understood him. I've also done it before."
 
-"Then why can't you weave it *now?*" Halson growls back, pointing at his stack of failures between himself and Catriona; exactly three. And that's not even that fucking bad when Ridoc has ten more than Dain's three.
+"Then why can't you weave it *now?*" Halson growls back, pointing at his stack of failures between himself and Catriona; exactly three. And that's not even that fucking bad when Lynx has ten more than Dain's three.
+
+They make eye contact and Lynx very awkwardly shoes his teeth.
 
 Maren covers her mouth but Dain can still hear the stuttering breaths that punch out of her while she laughs at them.
 
@@ -1056,13 +1058,15 @@ He begins to channel from Cath. Their lake dissolves, climbing up his body and i
 
 *"Like that."* Cath's voice chuffs, *"They no longer wish to speak when they can simply convey their intentions."*
 
+Cath's words find him as his peripheral existence fades to nothing; he stutter for a second, nearly breaking the connection where he's dragging his magic with his hands—he needs to hear things from outside, but what's here needs to remain with him...  he feels compelled to tie off where he'd cocooned himself and begins making a cage around himself and the coffin of magic. Once he's satisfied with the neatness of it, Dain manifests his intentions, eyes closing briefly while the magic he'd been "drawing" with leaves him weak for a single second.
+
 *"Okay,"* Dain responds, eager, *"Now what?"*
 
 *"Look."*
 
 Dain leaves the bond, ready to weave; but his disk has already been neatly runed. He picks it up and examines it with the intention of making the same shapes he sees on it: a perfectly symmetrical square with an equally flawlessly round circle within it touching each side of the square. It's about the size of his fist on the disk that's more the size of a porridge bowl.
 
-"I was gonna do it." Dain sighs, waving the used disk at Halson and trying to hand it to her.
+"I was going to do it." Dain sighs, waving the used disk at Halson and trying to hand it to her.
 
 She bats it away, "What do you mean?" she scoffs, "You just did that."
 
@@ -1074,21 +1078,23 @@ The world goes utterly silent and remains that way until Halson shoves him,
 
 "Not at all." Dain's head swings side-to-side and he blinks away the muted brown curls that are nearly falling into his eyes.
 
-"Too much magic." Halson mandates, "Try not to weave too intently when you're setting your magic into your mediums."
+"Too much magic." Halson mandates, plucking the disk from his sweaty palms, "Try not to weave too intently when you're setting your magic into your mediums."
 
-Catriona snatches the disk away from them. "Don't explain it to him that way Tink," she hands the disk back to Dain, "The shape you make is formed by the intention and *set* with magic; your sound shield making it so you can't hear what's happening around you isn't because there's too much magic. It's because your magic is too strong."
+Catriona snatches the disk away from Tink. "Don't explain it to him that way Tink," she hands the disk back to Dain, "The shape you make is formed by the intention and *set* with magic; your sound shield making it so you can't hear what's happening around you isn't because there's too much magic. It's because your magic is too strong."
 
 "Is there a way to modify the strength of my magic?" Dain asks with round eyes, "Can I set the run more weakly?"
 
 "No, but you can find a stronger medium. Try buloke, it's the hardest wood in the continent after livitae."
 
-Tink points to the chest of materials and then adds, "Livitae is three times more affordable than buloke, and you can get it from Poromiel, so it's more readily available to you."
+Tink points to the chest of materials and then adds, "Livitae is three times more affordable than buloke, and you can get it from Poromiel, so it's more readily available to you since we're close."
+
+Catriona finishes her fourth rune and sets it on the table, "Dragons fly higher, harder, and further, too."
 
 "Those are great points." Maren heads up to their instructor's desk, "Aetos, if you plan on weaving runes often, you should find out what you need for which runes, and how much it's going to cost you. If you don't want to buy or barter for materials it'll do you well to research where you can get them yourself."
 
 She tosses a disk of livitea to Catriona, and who passes it to Dain; it's nearly teal in color and doesn't bend as much as the hemlock did. For whatever reason it's cut into a square shape and not a round one.
 
-Dain makes quick work of setting his rune into it this time, spurred by the eyes on him and the knowledge of the actual shape of the rune itself. Once it's been carved into the stone by his magic, he looks over at Catriona,
+Dain makes quick work of setting his rune into it this time, spurred by the eyes on him and the knowledge of the actual shape of the rune itself. It looks different this time, another perfect square with a circle nested inside of it, only this time the circles edges don't touch the sides of the square. Once it's been carved into the stone by his magic, he looks over at Catriona,
 
 "Try it." she fiddles with the ends of her dark hair while waiting for him to make his attempt.
 
@@ -1108,16 +1114,70 @@ Maren glances at Catriona, mouth moving but not a word is registered.
 
 "You can't hear me at all can you?"
 
-"Nope."
+"Nope." Marin flips the hemlock disk over, once, then twice, "But you could probably trade this for something nice, or even a service." she finishes while rubbing her hand against the rune, against the magelighting in their classroom Dain can nearly see through the symbols; looks like he'd nearly carved it through.
 
+Dain puzzles while holding the properly woven rune, "Like what? Why would someone want that?"
 
+"Can't hear you," Maren chuckles, her dark eyes are kind and teasing, "You still have your sound shield activated."
 
+It takes him a split second to cut his own reserves from the connection he's made on the wooden disk, "Darius was telling me his family buys runes to help with their business."
 
+"That is a thing," she sits down and leans her head onto the arm that she drapes across their table, "Civilians get stir crazy about them in Navarre, since they'd been banned an all, and somewhat done away with."
 
-- next i need dain to understand what the order of operations was for that to happen: 
-[1] what is his intention
-[2] how can he convey it
-[3] how much magic is needed
-[4] can the medium handle that amount of magic
+Dain's focus blurs, and his eyes drop to his lap.
 
-- this is where Dain being insanely powerful will come into play, because he's about to fuck up that table
+Tecarus's palace had been more than accommodating in several excessive ways, though Dain *had* known about runes on account of his father exploiting their existence to him when he'd taken Dain to see the Basgiath wardstone. He'd never seen them so casually used and obliviously placed about a facility. He wonders what the average household might utilize with runes, if they make the citizens of Navarrian provinces seem archaic and backwater.
+
+Furthermore, if you could sell runes that would infer that a marketplace for them exists, right?. How would a rider or flier gauge the value of their rune, and what kind of guarantee can they offer if a faulty rune isn't identified upon purchase.
+
+His stream of consciousness slides into that horribly niche nook of his mind that is indubitably and perpetually occupied by Sloane Mairi. Colonel Mairi, her mother, had been a rune master. What in Malek's name might she have been capable of? What would *Sloane* be capable of? He can only begin to contemplate the feats Sloane might achieve with that blazing personality and confidence of hers. She'd bring upon a resurrection of runes, leveling the playing field between fliers and riders if there ever had been equal grounds against venin.
+
+"...Is it the runes or the alloy that actually vanquishes venin and wyvern?"
+
+Their runing instructor rounds the table behind them, and Dain pivots to look the man in his face, "Great question, Aetos. It's a combination of the two," he pulls out his own and sets ahead of his face, right beneath his waterline,
+
+"The alloy in this dagger is imbued with the magic needed to desiccate venin, but it's not a standalone operation: the expensive metals used to make it are part one, and the runes carved into the dagger itself are the final."
+
+"I don't see runes on that one." Dain squints, but the flier, one Horatio Hans, sheaths it back into a perfectly conceals fitting along the underside of his forearm.
+
+That's got to be uncomfortable.
+
+Maren speaks up; the tone that she uses is always consistent, in sadness and fret, in anger and jolly, Maren's voice is comfortably soft and administrative, he's happy to hear it, "It depends on where the daggers are smelted, for rune placement; in Poromiel the runes are preferred etched into the daggers tang, this way venin can't learn the runes if there's a bad throw, or faulty rune, if it's ever recovered."
+
+That makes a lot of sense.
+
+And pisses him off.
+
+He'd been running around left and right with daggers issued to him meant to banish his oppositions with the key to their demise right along the fuller of his dagger. What the fuck. Navarre, the more he'd spent time away from it—Dain corrects himself, *Basgiath—* existed in folly, and ridiculous decisions backed and foiled in the gold of irresponsibility and fucking lies.
+
+"How expensive is the metal?" Dain presses.
+
+The flier shrugs, "Very, considering only pockets of it exist, that we currently know of."
+
+"And the runes?"
+
+Halson's voice rings out beside him, "Very complicated."
+
+"How do you know?" Baylor asks, across the room at a table that includes Avalynn, Lynx and Sloane. He'd forgotten they were there trying to avoid anymore conversation with Matthias earlier.
+
+Halson flings her focus to his table, dragging a hot glare across Baylor and his year-mates, "Because Cliffsbane is where the runes to defeat venin originated. We've been fighting these gangly fucks much longer than you all have."
+
+Horatio coughs and scratches the back of his neck, "Can we lose the pointless animosity please, we've got a fighting chance at never having to go back to Basgiath so let's not turn Aretia into a second one during the process." He points at Halson, "You get all snippy when you're focused. Cool it."
+
+Dain winces; he can hear Halson's teeth grinding against themselves.
+
+"Anyway, I can't think of another alloy that has the effect this one does on venin and wyvern, and I feel like the Continent might be drained clean by the time you find another."
+
+"Why?" Dain mutters, "How'd they even find this one?"
+
+Horatio flips his palms outwards, "Beats me, General Melgren ordered the manufacturing of alloy last year just before Resson was drained. And, that being said, there's no starting point or base line in what does and doesn't harm them. Dragon fire won't even kill them, and dragon fire kills everything."
+
+"There's bound to be a signet that'll be able to kill them."
+
+Violet's name is thrown into the discussion, along with Riorson's, and eventually the room explodes into a discussion regarding signets incapabilities. As much as Dain would love to join in on the conversation he can't help sneaking a look at Catriona. She's planted the side of her face onto the table and is already watching him; they stare at each other, until finally Dain asks,
+
+"Isn't weaving a rune technically imbuing? I took my magic and stored it in a medium, essentially that's imbuing."
+
+Catriona's eyes close, "Yes, but not entirely because you're giving a command and specific amount of magic to a medium
+
+---

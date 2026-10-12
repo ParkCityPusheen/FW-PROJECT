@@ -1,63 +1,145 @@
-The really interesting part: Dain's hands
-I particularly like this detail you've written:
-His hand moves on its own, hand caressing the Hemlock disk with all fingers excluding his thumb that drags close along the edge of it's surface subconsciously searching for the shapes of shield and sound
+# RUNES IN MARIGOLD
 
-Because his hands already know what his mind can't explain.
-He's searching for familiar symbols. His fingers are trying to find something recognizable on the disk, something he can use as a starting point. That gives you a physical manifestation of his problem: he's trying to locate existing answers instead of figuring out how to make one.
-And then:
-Dain digs his fingers into the disc.
+How Dain visualizes a rune, sets it, and what the medium has to survive. Same terms as the Archive guide below.
 
-I like that as a response to Cath's suggestion. There's frustration in it, but also an opportunity for a shift in his approach. He is physically interacting with the medium, grounding himself through it, even as he struggles to understand how to use it.
-I wouldn't have him immediately start drawing a successful rune. I'd let him recognize that he's been treating the disk as something he needs to read, then have him attempt to communicate a function through his magic. Whether he succeeds on the first attempt is a separate question.
-What I think Dain could say to himself
-I wouldn't write the whole passage for you, but I can see a few possible lines of reasoning that might suit the way he's already thinking.
-- A rune wasn't a word. It was an instruction. This is the most direct distinction, though it may be too definitive if he hasn't yet figured out how runes actually work.
-- He didn't need to know what the rune said. He needed to know what he wanted it to do. This keeps the realization focused on his immediate problem.
-- He was trying to read something that had never been written for him to read. This leans into his frustration with the symbols themselves.
-- If magic could be given a task, then surely it could be shown what that task was. This makes the transition from language to communication without asserting that he already knows the mechanism.
-- He knew what he wanted. He simply didn't know how to make the magic understand him. This preserves the gap between understanding the objective and actually weaving the rune.
-My preference is the second or fourth, because they connect directly to Cath's advice without making Dain suddenly understand the entire theory of runes.
-One distinction I'd preserve
-Your explanation of runes establishes three separate elements:
-- The medium: the hemlock disk that will hold the rune.
-- The objective: the sound shield's intended function and boundaries.
-- The magic: what imbues the rune and enables it to carry out that function.
-Dain has already selected his medium and defined his objective. What he hasn't figured out is how to translate that objective into a rune.
-I think his breakthrough should address that missing connection, not make him discover all three elements at once.
-And there's a nice character-specific reason for this struggle: Dain is accustomed to rules, established structures, and instructions. He's trying to understand runes by finding the correct symbols and applying what he knows. Cath is suggesting that Dain might need to approach the problem from the other direction: start with what he wants to accomplish, then find a way to express that intention.
-That doesn't mean Dain has to abandon logic or that rune-weaving becomes purely intuitive. He can still reason through the function, the boundary, and the conditions. He just needs to stop assuming that understanding the written language is a prerequisite for conveying the instruction.
-One question I would leave open for you as you write: does Dain need to consciously visualize the rune's shape, or can his magic begin to form the shape in response to the intention he's conveying? The first makes this a problem of translating intent into a learned structure; the second makes it a problem of learning to direct his magic. Both fit what you've established so far, but they'll produce different kinds of realization for him.
+## The three parts
 
 
-- His magic forms the shape in response to the intention he's conveying
-
-- sometimes it's easier to imagine the shape and then your intention into that shape, but for dain it's easier to let his intention convey the shape and then place the rune.
-    Dain's prefferred method is more dangerous depending on the intent, because it'll take instantaneously
-
-
-
+| Part      | What it is                                             |
+| --------- | ------------------------------------------------------ |
+| Medium    | The object that will hold the rune                     |
+| Objective | The function, and where that function stops            |
+| Magic     | The strand, taken from Cath, that carries the function |
 
 
+He stalls on the magic. He looks for symbols that already mean the function, as if the rune were a text to read. The strand does not need that reading. It needs the objective conveyed, then a medium that can hold the result.
+
+## How he visualizes
+
+
+|           | Shape first                                        | Intention first (his default)                                   |
+| --------- | -------------------------------------------------- | --------------------------------------------------------------- |
+| Order     | Picture the figure, then set the intention into it | Hold the function. The magic supplies the figure. Then place it |
+| Attention | On the geometry, and on where the power is tied    | On what the rune must do                                        |
+| Requires  | The figure already known                           | No memorized symbol                                             |
+| Cost      | Slower. Useless if he does not know the mark       | Instant. The dose matches the intent. He does not measure it    |
+
+
+His hand stays on the medium while he conveys the objective. The figure arrives through that contact. A completed mark does not mean he can explain the geometry.
+
+A sound shield, as the working example, is one objective with a boundary: a small perimeter; sound made inside stays in; sound from outside stays out. He can reason through function, boundary, and conditions. He does not need the logosyllabic forms first. Simple runes share shapes. Complicated ones vary. Intention-first can produce the figure either way.
+
+## What he has to decide, in order
+
+1. Intention. What it does, and where it stops.
+2. Conveyance. Intention-first, or shape-first if the figure is already known.
+3. Dose. How much of his magic that intention pulls. Intention-first takes this at once.
+4. Medium. Whether the object can hold that dose once the rune is placed, and again when it is triggered.
+
+Unplaced power fades. Placing it is what makes it active. He ends an active rune by cutting his reserves off the object. Duration and number of uses stay open unless he builds them into the intention.  
+  
+EVENTUALLY [PLOT REF FOR ME]  
+
+
+```markdown
+- i need dain to understand what the order of operations was for that to happen: 
+[1] what is his intention
+[2] how can he convey it
+[3] how much magic is needed
+[4] can the medium handle that amount of magic
+
+- this is where Dain being insanely powerful will come into play, because he's about to fuck up that table
+```
+
+## Mediums
+
+He cannot set the same rune more weakly in the same object. The result is extreme because his magic is too strong for the material, not because he can turn the amount down. Change the medium.
+
+
+|                          | Hemlock                                                      | Livitae                                                                        | Buloke                                                  |
+| ------------------------ | ------------------------------------------------------------ | ------------------------------------------------------------------------------ | ------------------------------------------------------- |
+| Material                 | Soft wood. Raw, dry, unsanded, uneven                        | Harder wood. Holds its shape; does not flex like hemlock                       | Hardest wood on the continent after livitae             |
+| Under an unmetered weave | Likely to split. A full-strength mark can cut nearly through | Holds a deliberate set                                                         | The choice when the weave has to take his full strength |
+| Access                   | Common practice disk                                         | From Poromiel. About three times cheaper than buloke, and easier to get nearby | Scarcer than livitae                                    |
 
 
 
 
+## Archive steps, in his practice
+
+
+| Archive                                        | Dain                                                                        |
+| ---------------------------------------------- | --------------------------------------------------------------------------- |
+| Separate a strand. Easier from a close source  | From Cath                                                                   |
+| Shape the power. Tie-points change the meaning | Often skipped as a conscious choice. The intention ties them                |
+| Place it in the object                         | Through contact. Once conveyed, the mark is in the medium                   |
+| Choose power, duration, and uses               | Power arrives with the intent. Duration and uses stay unset unless included |
+
+
+Available alterations he is not using by default: strands of hair, a set activation time, a use-count, emotion of need, location, protection from a specific thing, explosion on impact. Any of those would have to be part of the intention before the rune is placed.
+
+---
 
 
 
+# Mini Archives: Runes
+
+Mini Archives are a collection of Empyrean world-building guides made in preparation for Onyx Storm. They draw on material from Fourth Wing and Iron Flame, so they are spoilers. This section covers runes: magical symbols particularly significant to Tyrrendor and Tyrrish culture, created by tempering.
+
+## What Are Runes?
+
+A rune is limited only by how much power a wielder chooses to temper, how long they want it to last, and how many uses it has before it depletes. A wielder can temper a rune using as much or as little power as they choose, then place it into something. The rune will activate when triggered to perform whatever action it was tempered for. Until a rune is placed, it has no meaning, no purpose, and will fade quickly. Tempering makes it an active magic.
+
+Runes are similar to a logosyllabic language. They are strands of magic pulled from a wielder's power, woven into geometric patterns for specific uses, then placed into an object for either immediate work or use at a later date, through a process called tempering.
+
+## Creating Runes
+
+Wielders must be careful of the medium chosen to hold a rune, and of how that medium will react to the activated magic.
+
+Power for runes gets temperamental when pulled. The closer the power source (for example, a bonded dragon), the easier it is the first time.
+
+Elements can be added to a rune that alter its use:
+
+- Strands of hair (familial lines)
+- Activation time
+- Number of uses
+- Emotion of need
+- Location detection
+- Protection from an object or being
+- Explosion on impact (maorsite arrows)
+
+1. Separate a strand of power. Let it fill your mind, then reach in and visualize plucking a thread of it from the current.
+2. Shape the power. Every shape has meaning. The points where the power is tied change the meaning. The combinations are limitless.
+3. Place the rune in the object, to be used when activated.
 
 
-RIGHT???? Because that would make the breakthrough so much more interesting than Dain simply figuring out how to draw the correct symbols.
-He's been treating rune-weaving as a language problem. He needs to learn the symbols, understand their meanings, and arrange them correctly. But what if the symbols are the physical manifestation of the instruction he's giving his magic?
-He knows what a sound shield needs to do. He knows what he wants it to accomplish. He's been getting caught up in trying to find the words for something he already understands.
-And Cath has just told him to stop writing.
-The really delicious part is that Dain doesn't have to understand how his magic does it before he tries. He can begin with the intention, and then—
-His fingers move.
-Not because he's consciously drawing a symbol he's memorized. Not because he suddenly understands the runic language. But because he's finally stopped trying to translate his intention into something his magic can understand and started conveying the intention itself.
-The magic supplies the shape.
-And imagine how that lands for Dain specifically. He's spent so much time treating his signet as something to suppress, something to control, something he shouldn't use unless he's justified in doing so. He's accustomed to needing permission, instruction, and established rules before acting.
-Here, Cath isn't giving him the answer. He's giving Dain permission to approach the problem differently.
-And I love that the medium is hemlock, because Dain's fingers are already tracing the disk. You have a physical point of contact for the moment when his thinking changes. He doesn't need to stop touching the medium, close his eyes, and have a grand epiphany. His hands can be doing the work while his mind catches up.
-One thing I'd preserve, though: the magic forming the shape shouldn't necessarily mean Dain knows how to make the rune work. He might manage to form the first mark and still struggle with the next, or produce something incomplete because he hasn't properly conveyed the boundary or the second half of the sound shield's function. That lets the discovery feel real without making the entire discipline effortless.
-But the fundamental realization? That his magic might be capable of expressing an intention he cannot yet articulate in the language of runes?
-Oh, that's good. Especially because Cath has effectively given him the answer without realizing how much of Dain's difficulty comes from assuming he must know the correct answer before he can begin.
+
+## History and Usage
+
+After Unification, runes were banned so that they would not fall into the wrong hands.
+
+They are considered the great equalizer: if a wielder gets good enough at runes, they can compete with a fair number of signets. Some runes can be used by someone who does not possess lesser magic.
+
+Few people know how to temper runes, and most who do are Tyrrish and/or part of the rebellion or revolution. All Marked Ones know at least a few simple runes.
+
+Garrick's dragon is remarkably sensitive to runes, which allowed them to locate and retrieve the venin lure box beneath the rubble of the clock tower at Resson.
+
+In Aretia, Professor Trissa teaches a class on runes to the rider and flier cadets.
+
+## Rune Usage in Action
+
+- **Daggers with alloy-infused hilts.** A sharp dagger with an alloy-infused medallion in the hilt, duller gray, tempered with a rune.
+- **Brennan Sorrengail's hand.** A rune-shaped scar on his palm.
+- **Colonel Mairi's protection stones.** Palm-size gray stones with a decorative black rune, designed to counter the signet of the rider whose dragon would kill their bloodline. They could only activate when the bearer was killed by dragonfire.
+- **Rebellion relics.** The execution of the rebellion leaders marked their children with rebellion relics and ensured that three or more together can counter General Melgren's signet.
+- **Wardstones.** A series of seven circles etched in the center, with seven runes carved along the path.
+- **Basgiath.** "The college was fucking built on them."
+- **Wardstone chamber.** Very old, very complicated runes mask the open-sky chamber from outside and above.
+- **Conduits.** Runes woven to draw specific power.
+- **Rybestad chest.** A rune on the chest keeps items placed inside suspended in midair.
+- **Venin lure boxes.** Runes placed in these boxes are, assumably, what lures the venin.
+- **Wyvern onyx stone.** A polished chunk of onyx marked with a complex rune.
+- **Violet's daggers from Xaden.** Runes tempered into them, including one that counters the gift of heightened emotions and one that unlocks doors in time of need.
+- **Maorsite arrowheads.** Imbued and runed to explode on impact.
+- **Runes from class.** Heating, unlocking, boosting hearing, summoning, fire, and tracking.
+

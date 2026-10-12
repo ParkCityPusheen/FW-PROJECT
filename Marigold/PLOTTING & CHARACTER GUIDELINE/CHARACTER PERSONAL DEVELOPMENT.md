@@ -98,3 +98,14 @@
   ### The progression in one line:
   **"Why is Dain like this?" → "Why does Darius get this version of him?" → "Can I get that version too?" → "Oh, I can make him flustered." → "This is fun." → "I actually want to be close to him."**
 
+
+
+ADDED 11OCT
+
+REGARDING CATH
+
+Cath chooses Dain and Dain chooses CATH and ALL DEAR TO HIM (his den)
+
+On SEVERAL occasions Reds conform to intervene and assist Dain, it really puts the pressure on the Navarrian Empyrean in the beginning, but also Cath does very, very, un-dragon like things in the name of his rider while Dain will let humans die for certain offenses towards dragon kind with not a eye blinked.
+
+Cath: *He has chosen scale over flesh, and so he shall receive his own unto his skin. The same way you forsook your own kind and disabled my father is the same way I will smite you and yours until your line is drawn out and **dried**. Die with your decisions and meet Malek with your resolve!*

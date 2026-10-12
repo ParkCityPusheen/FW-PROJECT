@@ -2,21 +2,25 @@ Instinct, logic, and emotion; the triumvirate of decision-making. Not one may be
 
 He can't breathe.
 
-He can't breathe, so at exactly zero-three hundred, Dain Aetos finds himself in the Riorson House armory, greeted by the duty armorer and borrowing both a glaive and a halberd. Two weapons he thinks are ridiculous, he carries stiffly to the courtyard, up Cath's leg, and down onto an undisclosed mountain peak.
+At exactly zero-three hundred Dain Aetos forces himself to the Riorson House armory. He's greeted by the duty armorer, requests both a glaive and halberd, two weapons he thinks are ridiculous, and stiffly makes his way to the courtyard where he's intercepted by Cath, and flown to an undisclosed mountain peak.
 
-Catriona is right and he fucking *hates* when Catriona is right.
+Catriona is right and he fucking hates when Catriona is right.
 
-He starts with the glaive, repeating a jab, a stroke, downwards and upwards, a sweep, then another but assisted with his magic. It makes the glaive swing so quickly it nearly launches out of his hands, but he catches it each time, and with momentum begins another series of movements.
+Dain starts with the glaive, repeating a jab, a stroke, downwards then upwards. A sweep, then another but assisted with his magic. His lesser magic makes the glaive swing so quickly it nearly always launches out of his hands, but he catches it each time, and with momentum begins another series of movements.
 
-Xaden Riorson is missing, his dragon with him, and his mate is presumably injured to an extent that she needs time away from the riot to recover. The leader of a resistance and Duke of the Tyrrish Province, Poromiel's only representation within Navarre is *gone.* Logically, and instinctively it feels wrong to ask Violet anything about Riorson, emotionally he feels that would be taking advantage of her in whatever state she's in currently, and none of those states he'd consider fall under "stable." But, he understands that it's what has to happen to help, *that's* why Catriona keeps hounding him. Dain doesn't need to parse the particulars she's fed him to understand that she is not, and has never been, and will likely never be in a place where asking Violet about Riorson (especially in the situation at hand) would get her an answer. That's just not how this works.
+*Xaden Riorson is missing,* his dragon Sgaeyl with him, and her mate, presumably injured to an extent that he needs time away from the riot to recover. The leader of a resistance and Duke of the Tyrrish Province, Poromiel's only actual representation within Navarre is *gone.* 
 
-Cath lies down across the knee high grass behind Dain. The moonlight makes his scales look bloodied and slick, beautiful but terrifying in more ways than one; Dain uses magic to drive the glaive through stroke after stroke, from the blade down the shaft to the blunt end, enough times that the callouses he's given himself, swinging and jabbing with it, burst. He winces, but he keeps doing it. Dain watches as he adopts the same color across his hands that he sees on his dragon's scales.
+Logically, and instinctively, it feels wrong to ask Violet anything about Riorson. Emotionally he feels that would be taking advantage of her in whatever state she's in currently, assuming her lover is in fact gone. Dain understands that asking and involving himself further is inevitable in order to understand what the fuck is happening, or has happened. *That's* why Catriona keeps hounding him. Dain doesn't need to parse the particulars she's fed him to understand that she is not, and has never been, and will likely never be in a place where asking Violet about Riorson (especially now) would get her an answer. That's just not how this works.
 
-He knows better than to ask any person beside the ones directly involved for anything at all, unless he wants to make a mess of one already made, so seeking leads from the other marked ones, or other leadership—that's out of the question. He can't fucking breathe thinking about this shit, and it's so cold with this wind chill his teeth chatter. Cath must've brought him to one of the highest peaks he could find.
+Cath lies down across the knee high grass behind Dain. The movement catches Dain's eye enough to distract him from infinitely thrusting the glaive outwards. Moonlight makes his scales look bloodied and slick, beautiful but terrifying in more ways than one. It's a wonder to Dain that this magnificent beast refrains from beating his reservations towards others out of him—he knows the attitudes Reds maintain, and time and time again has seen riders driven to their death on account of their bonds pushing them past their own mental or physical thresholds.
 
-Dain heaves, breathes in haphazardly, wheezes out on his exhale, drops the glaive and wipes his hands across his face to get his sweat out of his eyes. This would be so simple to solve for himself and Catriona if he would just approach Violet and ask, but since he'd found a resolution for himself, to *care* for himself and his agency in how his peers regarded him—it would turn all of that into a crock of bullshit. It's fucking unfair that he's meant to play the insect that skitters across the tavern floor, like some fallen saint scavenging for information that nobody wants to openly disclose to him and, with that same damn reservation, they ask for his assistance.
+Dain uses magic to assist the drive froward, stroke after stroke, from the blade down the shaft, to the blunt end, enough times that the callouses he's given himself, swinging and jabbing with it, burst. He winces, but he keeps doing it. Dain watches as he adopts the same color across his hands that he sees on his dragon's scales.
 
-He picks up the halberd and glances back at Cath who watches him like a concerned parent. His scales press together above his brow a bit, the way they do before he snarls, or lights something on fire. Dain knows his Red is in here, in his head, with him and every thought he could possibly have, but Cath says nothing. Those marigold eyes, his glowing beacon home, watch as he tears himself apart from the inside out.
+He knows better than to ask any person indirectly involved for anything at all, unless he wants to make a mess of one already made. So seeking leads from the other marked ones, or other leadership—that's out of the question. He can't fucking breathe thinking about this shit, and it's so cold with this mountainous wind chill his teeth chatter. Cath must've brought him to one of the highest peaks he could find.
+
+Dain heaves, breathes in haphazardly, wheezes out on his exhale, drops the glaive and wipes his hands across his face to get his sweat out of his eyes. This would be so simple to solve for himself and Catriona if he would just approach Violet and ask, but since he'd found a resolution for himself. To *care* for himself even mildly for once, and his agency in how his peers regarded him... it would turn all of that into a cauldron of bullshit. It's fucking unfair that he's meant to play the insect that skitters across the tavern floor, like some fallen saint scavenging for information that nobody wants to openly disclose to him and, with that same damn reservation, they ask for his assistance.
+
+He picks up the halberd this time and glances back at Cath who watches him like a concerned parent. His scales press together above his brow enough to notice, the way they do before he snarls, or lights something on fire. Dain knows his Red is in here, in his head, with him and every thought he could possibly have, but Cath says nothing. Those marigold eyes, his glowing beacon home, watch as he tears himself apart from the inside out.
 
 There's a tree just a few meters away, thick enough that it would take two of him to wrap his arms around it. His hands pull the halberd up and forward, swinging with a rasping grunt, and he launches it into the tree only a foot lower than his waist. It gets stuck and he burns magic through the flesh of his hands, retrieving it with ease, only to do it again, and again until the tree begins to keen and whine, swaying with each hit and leaning against the wind——
 
@@ -48,7 +52,7 @@ Tavis crunches his bushy brows together and leans forward, this giant fuck, and 
 
 "Because my blood is all over the shaft." Dain hisses.
 
-The other male's face shrinks with disinterest and he wipes at his uniform for about two seconds.
+The other male's face shrinks with disinterest and he wipes at his uniform for all of about two seconds.
 
 Dain turns away from him, dragging his boots through the dirt and grass until he's at the widest stance he's taken all morning. He grounds, pulling his magic and pressing it into the halberd. His wind up is slow, and he steeps the weapon as much as he can before swinging it forward against the tree for a final time. The blade cleaves clean through the tree trunk, then breaks away from its shaft. The freed head slashes through the remaining four feet of trunk above the cut and vanishes into the darkness away from them, and the severed top falls forwards and towards them.
 
@@ -56,7 +60,7 @@ Tavis looks puzzled as the treetop begins its descent, glancing at where the bla
 
 "So, uh, you're gonna move right?"
 
-Dain glares at him and drops the broken shaft.
+Dain glares at him and drops the broken shaft, glances at the tree and then Cath.
 
 "The tree," Tavis explains, "It's gonna fall on us."
 
@@ -66,11 +70,13 @@ Dain's face tilts up, eyes widened, voice embellished with disbelief, laced with
 
 "I think so too." Dain snaps.
 
-The tree reaches halfway to the mountain clearing before Tavis moves them both; setting Dain at the base of Cath's tail, which is just stopping to where it had moved to cut the tree in half where Dain had been standing. Behind them all, the tree finishes collapsing into the earth.
+The tree reaches halfway to the mountain clearing before Tavis moves them both, setting Dain at the base of Cath's tail, which is just stopping after moving to cut the tree in half where Dain had been standing. Behind them all, the tree finishes collapsing into the earth.
 
-"Since when could you do that?" Dain asks evenly, arms crossed, while turning to the marked one, "You and Imogen."
+Tavis looks at where Cath's tail had intercepted the falling tree, his brows lifting as the dragon settles it back against his body, and then to Dain, whose expression hasn't changed. The wingleader doesn't spare either a second glance.
 
-Tavis tips a shoulder, but Dain sees the surprise and concern that dances behind his green-brown irises, "I think you should stick to the halberd," he responds instead.
+"Since when could you do that?" Dain asks evenly, arms crossed, while turning to the marked one pretending to be surprised at the exposure to Tavis's second signet again, "You and Imogen. Maybe Mairi too? Riorson even, certainly?"
+
+Tavis plays the role of indifference this time and tips a shoulder, but Dain sees the surprise and concern that dances behind his green-brown irises, "I think you should stick to the halberd," he responds instead.
 
 "And why's that?" Dain says flatly,
 
