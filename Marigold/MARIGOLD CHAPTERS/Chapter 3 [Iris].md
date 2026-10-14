@@ -390,7 +390,7 @@ He looks at her, she's standing in the middle of all of them, clutching her bice
 
 Sloane nods, she takes another step forward, breaching his personal space,
 
-"I will, but I need *you.*"
+"I will, but I need you."
 
 The sound that escapes his throat is undeniably tortured, pulled from a place of disinterest and inescapable duty, steeped in guilt and devastation. Dain slaps his hands over his face and scrubs downwards, pulling hard at his skin and beard,
 
@@ -1210,7 +1210,7 @@ Darius reaches across the table to brush their finger tips together, "You don't 
 
 "I have a memory for you, touch my head——"
 
-"——yeah grab her massive five-head; shits big enough to fit the whole Continent——"
+"——yeah grab her massive forehead; shits big enough to fit the whole Continent——"
 
 Kaia flattens her hand and jabs Darius in the throat with it. His body doubles over, face smacking the table as his hands fly up to grab at his neck, "You *bitch!*" he coughs, "Ugh..."
 
@@ -1236,19 +1236,13 @@ She snaps to attention from the hinged bend she had taken.
 
 Dain shakes his head and extends his hand, "I have no idea why you're so stoked about this."
 
-"I have no idea why *you're* not," Kaia complains, offering her cheek in a cutesy fashion, "like you have literal magical powers, quit your bitching."
+"I have no idea why *you're* not," Kaia complains, offering her cheek in a childish fashion, "like you have literal magical powers, quit your bitching."
 
 Dain exhales, lets her cheek fall into his hand, and closes his eyes.
 
 ---
 
-Kaia's memory is coming to it's end when Sloane's voice razes through it.
-
-However, Sloane Mairi shouldn't be here until tomorrow evening.
-
-Sloane Mairi can't be in his room, regardless.
-
-Sloane Mairi wouldn't be asking him what he's doing.
+Kaia's memory is coming to it's end when Sloane's voice razes through it. However, Sloane Mairi shouldn't be here until tomorrow evening.
 
 Yet, she's here when she shouldn't be, standing in the room with the door wide-open behind her, and asking——
 
@@ -1256,13 +1250,21 @@ Yet, she's here when she shouldn't be, standing in the room with the door wide-o
 
 Her voice digs into the fat of his concentration with jagged teeth that are all canines. It spooks him, mostly, and his channeling is interrupted—as if he were amateur at utilizing his magic. He winces, hissing out a pained grunt and snatching his hand back from Kaia. His eyes fly open, squinted with pain, but assessing her condition nonetheless. She's not looking at Dain though, and he turns to see where her face is so aggressively scrunched at,
 
+Kaia answers sweetly, sickeningly so, "Playing with magic."
+
+"His signet is classified." Sloane croaks, slamming the door shut being her.
+
+"Hmm," Kaia presses a long fingernail against her bottom lip, "Not sure what the fuck that has to do with me?"
+
+Sloane calms herself as quickly as she'd begun to simmer and Dain isn't sure he'd ever seen her exercise this kind of self control before.
+
+"You should try and educate yourself then." Sloane snickers, "Instead of actively risking his safety for stupid shit."
+
 "You ever try knocking, first-year?" Kaia bites, damn near growling the words out at Sloane.
 
 Darius crosses his arms across his chest, but he remains silent.
 
-Sloane lifts her chin, undisturbed at being met with such venom,
-
-"Maybe close the door then? Were you raised in the stables, third-year?"
+Sloane lifts her chin, undisturbed at being met with such venom, "The door wasn't even closed? Were you raised in the stables, third-year?"
 
 Darius sucks his teeth, "Damn she got you, Kaia." he jerks his thumb at Dain's room door, "You and doors have a shit relationship."
 
@@ -1270,13 +1272,19 @@ Kaia isn't going for whatever deescalation Darius has provided and shoves her pa
 
 "Even if it were a stable, it's one you weren't invited into."
 
-Sloane stalks into the room, lithe and leisurely, placing a notebook a finger larger than his Itinerarium, between himself and Darius, "I was, actually, I'm just here early for my own reasons. Regardless, last I checked he's not bleeding out or dying, and therefore *you* shouldn't have any reason to be here either."
+Sloane stalks into the room, lithe and leisurely, placing a notebook a finger larger than his Itinerarium, between himself and Darius, "I'm here for my own reasons." her eyes dart to Dain, reading his reactions maybe? "Last I checked he's not bleeding out or dying, and therefore you don't have a reason to be here either, do you?"
 
-She steps back, but closer to Dain; scented soaps and lotions clamor in his nostrils and he nearly leans forward to get a better idea of what notes he's smelling off her body.
+Dain eyeballs the notebook. It's very unassuming. He wonders if it's Sloane, or maybe Sloane sent with something from Violet regarding whatever weird shroud has adorned Draithus and the days following the battles there.
+
+Kaia taunts Sloane then, in disbelief, "And you do? I find it hard to believe he'd choose to have any business with you considering your fucking attitude towards him."
+
+"*I* am his business." Sloane nearly barks; her jaw goes rigid after she finishes speaking and Darius covers his mouth with a hand entirely in disbelief, he looks over at Dain and raises a brow. Dain can only manage a shrug.
+
+Sloane steps around the table, closer to Dain's side where Darius and Kaia are not; scented soaps and lotions clamor in his nostrils and he nearly leans forward to get a better idea of what notes he's smelling off her body. Citrus maybe? Citrus and...
 
 Kaia snatches the notebook off the table,
  
-"So it's you." she begins, "*You're* the reason Dain might not get to graduate this year?"
+"So it's you." she begins, "You're the reason Dain might not get to graduate this year?"
 
 Sloane pops out her hip and rests a hand against it, "The fact that you're suggesting he'd fail is annoying the fuck out of me, healer."
 
@@ -1284,23 +1292,37 @@ Kaia's eyebrows jump.
 
 "And? You putting him in this position does what for you, nothing?"
 
-"Kaia..." Darius nearly begs, pressing his hands together in prayer; he glances at Dain when neither woman gives him a crumb of attention.
+"Kaia..." Darius nearly begs, pressing his hands together in prayer; he glances at Dain when neither woman gives him a crumb of mercy.
 
-"I do not need to explain myself to the likes of you." Sloane deadpans, then turns to Dain, "You asked what I know or what I've tested, this is that information. Violet said it'd be better for me if you had more to work with beforehand."
+"I don't need to explain myself to the likes of you." Sloane deadpans, then turns to Dain, "You asked what I know or what I've tested, this is that information. Violet said it'd be better for me if you had more to work with beforehand."
 
-"I like it. A Future First Year shitting her issues onto her warden, checks out. Can't wait to learn about this."
+Kaia purrs, and begins clapping slowly, "I like it. A Future First Year shitting her issues onto her warden, checks out. Can't wait to learn about this."
 
 Sloane coils tightly, and Dain recognizes the impending threat before anyone else does——but Kaia isn't backing down.
 
-Can she fight?
+Can Kaia fight?
 
-"You aren't learning about shit, and he's not a warden, he's a *wingleader.*" Sloane snaps, hands curling to fists at her side,
+*"We might find out."* Cath bellows; his excitement is sneaking into the bond and Dain wonders if his dragon even realizes it.
 
-"We were having a jolly good time until duty walked in with freshly washed hair and an assignment. But don't worry, we'll look into it with him."
+Maybe he should tell them to stop, Dain laments.
 
-Sloane sneers and her head rolls forwards in disbelief, "He doesn't need a fucking healer to look into anything for him!"
+*"No,"* Cath growls, *"Let us see who submits. Surely your Favored will establish dominance."*
 
-"Not sure if you know what a friend is, but they usually help distribute the deadweight that's otherwise crushing one of their own." Kaia drops the notebook back onto the table without ceremony, then slams her hand atop it, leaning against the table.
+*"What? Cath, no."*
+
+He should stop them.
+
+Dain's eyes go wide, *"Wait, what did you just call her?"*
+
+*"Hatchling, hush!"*
+
+"He's not a warden, he's a *wingleader.*" Sloane snaps, hands curling to fists at her side, "And there's nothing there for you to concern yourself with."
+
+"You know, we really were having a jolly good time until duty walked in with freshly washed hair and an assignment. Good thing we're here to help, right?"
+
+Sloane sneers and her head rolls forwards in disbelief, "He doesn't need a fucking healer to help him with anything!"
+
+"Not sure if you know what a friend is, but they usually help distribute the deadweight that's otherwise crushing one of their own." Kaia drops the notebook back onto the table without ceremony, then slams her hand atop it, leaning against the table into Sloane's face from between Darius and Dain.
 
 Sloane cranes her neck downwards, setting Dain ablaze with slate-grey eyes so frigid the color is all but lost. Her eyes skip back and fourth as they search his face.
 
@@ -1314,17 +1336,15 @@ She abruptly leaves, slamming the door shut so viciously the magelight chandelie
 
 "Kaia, holy shit." Darius gasps, covering his face in... embarrassment?
 
-Dain looks up at the vice-warden,
+Dain looks up at the vice-warden, "Are you sure you're in the correct Quadrant?"
 
-"Are you sure you're in the correct Quadrant?"
+Kaia hasn't shaken her leant over position, "Kaia Braam, with a 'K,' for *kill.*" she announces, flicking her hair back, and gesturing at herself.
 
-"Kaia Braam, with a 'K,' for *kill.*" Kaia announces, flicking her hair back, and gesturing at herself.
-
-Darius doesn't share their sentiment, "That was completely unnecessary." he growls.
+Darius doesn't share their sentiment, "That was completely unnecessary." he growls at Kaia.
 
 Dain picks up the notebook.
 
-"It really wasn't. If a first-year just strolled into a warden's bedroom in our Quadrant there would be hell to pay and we are not about to sit here and play in his face like it's any different in his own, Darius."
+"It really wasn't. If a first-year just strolled into a warden's bedroom in our Quadrant there would be a fortune to pay and we are not about to sit here and play in his face like it's any different in his own, Darius."
 
 Darius smacks the table, gently enough, "That's not my point."
 
@@ -1339,14 +1359,11 @@ Dain lifts a brow. Siphons siphon *magic,* so why would she try and siphon a tre
 
 Dain glances up at Darius and then to Kaia; they've all but forgotten he's there now.
 
-    When attempting to siphon from an animal, nothing happens.
-        -Control: Broccolli
+    When attempting to siphon from a regular animal, nothing happens.
+        -Control: Broccoli
 
 He palms his face. *Damnit* Sloane.
 
-"See, look——" Darius swings a hand in Dain's direction.
-
-Kaia lets out a howling laugh that makes Dain peak up at her, "It's not me, it's whatever bullshit he's reading in that notebook."
 
     When attempting to siphon from a dragon, results are conclusive, though I'm pretty sure I'm just channeling.
         -Control: Thoirt
@@ -1357,7 +1374,7 @@ Dain snorts and bites his bottom lip; sounds about right Sloane, he thinks. His 
         -Control: Kai
         -Note: he says he doesn't and didn't feel anything
 
-"——always so fucking tired and it's because the people within his nearest vicinity at any given time suck ass——"
+"——always so fucking tired and it's because the people within his nearest vicinity at any given time suck ass——" Dain nods along to whatever Kaia is nearly shouting. He feels torn that he's more compelled to read Sloane's notes than listen to his friends argue for him, and about him.
 
     Whilst attempting to siphon from another peer, nothing happens.
         -Control: Jessinia
@@ -1374,9 +1391,11 @@ Dain presses his lips together and bites down. He will not laugh at her; she's t
         -Control: my dagger
         -Note: I feel a bit weaker
 
-"I'm not asking you to be passive, *or* passive aggressive Kaia. I'm just saying it's not your place, or mine, that's his cadet to correct, he doesn't need your help."
+The two healer's argument begins to come to a head and Dain feels the energy in his room shift. He peaks over the notebook again and watches Darius press into Kaia a final time,
 
-Dain flips to the next page.
+"I'm not asking you to be passive, *or* passive aggressive Kaia. I'm just saying it's not your place, or mine, that's his cadet to correct, he doesn't need your help." Darius tells her; his voice is harsh and tired, slumped the same way he is in his chair.
+
+Dain's eyes bounce from Kaia and back to Darius, then flips to the next page of Sloane's notebook.
 
     I am able to start and stop siphoning at my will, excluding the time I siphoned from Lillith Sorrengail.
 
@@ -1408,6 +1427,6 @@ Dain groans, and Kaia and Darius give him a sideways look.
 
 "Everything okay?" they inquire in uncanny unison,
 
-*"Tell them no, since it seems you are utterly smitten with repetitively stroking a kitten who bites."*
+*"Tell them no."*
 
 "Yes."

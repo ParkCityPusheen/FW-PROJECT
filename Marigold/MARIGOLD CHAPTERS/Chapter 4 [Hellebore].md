@@ -2,7 +2,7 @@
 
 Dain blinks.
 
-His peripherals find him again, pulling him from the ocean, taking him from where his power rolls across black sand, tumbling over his feet. The smell of salt and sand escape him completely; they're replaced by bread and butter, of fruit and poultry, of his coffee growing cold in the place where a plate full of food would've made Cath much less irritated.
+His peripherals find him again, pulling him from the ocean, taking him from where his power rolls across black sand, tumbling over his feet. The smell of forest and fire escape him completely; they're replaced by bread and butter, of fruit and poultry, of his coffee growing cold in the place where a plate full of food would've made Cath much less irritated.
 
 Words escape him for a moment longer, but eventually he makes out Imogen as she tucks herself into the only other chair available at the table he's seated at,
 
@@ -24,7 +24,7 @@ There's a moment that they occupy in the shared silence that pillows between the
 
 "Were they any help?"
 
-Dain imagines her attempting to siphon the tree and then Brocolli, and ends up chuckling into his hand.
+Dain imagines her attempting to siphon the tree and then Broccoli, and ends up chuckling into his hand.
 
 "They were *something.*" he admits wearily; no one would ever know of Sloane's conclusions nor how she got there, if it were up to him. Those were for the two of them to know, and like her moment during her Threshing, Dain would meet Malek with this knowledge unspoken.
 
@@ -272,7 +272,9 @@ The blonde's jaw closes so quickly her teeth meet and the sound of it makes Dain
 
 His voice waivers a bit, and he knows there's a few fliers listening with curious glances to pair, but Dain doesn't shy away from her; he thinks of Kaia and her grin at getting to experience his magic—at her fascination with it, "I have to touch your face so..."
 
-"Oh, Dain," Eleni sings sarcastically, smiling brightly and blinking up through her eyelashes, "but what an honor it would be!"
+"Oh, Dain," Eleni sings sarcastically, smiling brightly and blinking up through her eyelashes when he offers his hand, "but what an honor it would be!"
+
+He cringes and pulls his hand back.
 
 "I change my mind."
 
@@ -1020,13 +1022,13 @@ Fuck them. His forehead wrinkles as Dain suspends himself into the bond, he reac
 
 *"I'm going to teach you how to weave a rune today, Cath."*
 
-Cath's chin jerks downwards as the Dain imagines the process in his head, *"Very well."* His dragon remarks.
+Cath's chin jerks downwards as the Dain imagines the process in his head, *"Very well."* His dragon remarks, then sarcastically adds, *"I will be the first of dragonkind to make one."*
 
 *"It's been a while,"* he whispers stupidly, *"But I've done it before, right?"*
 
-Cath's Swordtail flicks out, but the water doesn't splash around it. *"If you say so."* 
+Cath's Swordtail flicks out, but the water doesn't splash around it. *"Exactly twice."* 
 
-Dain's fingers itch, he takes from Cath, borrows graciously to create from what his Swordtail allows,
+Dain's fingers itch, he takes from Cath, borrows graciously to create from what his Swordtail allows and he begins their session, 
 
 *"Firstly, once you've selected your medium, you must define the rune's intended purpose."*
 
@@ -1034,7 +1036,7 @@ Dain peeks up at Cath and finds marigold eyes the size of church bells peering b
 
 *"Ours is just simple sound shield. It need only establish a small perimeter around the user, containing all sound produced within it,"* his hand moves on it's own, hand caressing the Hemlock disk with all fingers excluding his thumb that drags close along the edge of it's surface subconsciously searching for the shapes of *shield* and *sound,* *"and blocking all sound originating beyond it"*
 
-His hands itch so badly Dain nearly stops grounding to scratch them and Cath's head dips downwards to where Dain stands in their lake,
+His fingers itch so badly Dain nearly stops grounding to scratch them and Cath's head dips downwards to where Dain stands in their lake,
 
 *"The way they're written doesn't make any sense."* Dain complains.
 
@@ -1058,7 +1060,7 @@ He begins to channel from Cath. Their lake dissolves, climbing up his body and i
 
 *"Like that."* Cath's voice chuffs, *"They no longer wish to speak when they can simply convey their intentions."*
 
-Cath's words find him as his peripheral existence fades to nothing; he stutter for a second, nearly breaking the connection where he's dragging his magic with his hands—he needs to hear things from outside, but what's here needs to remain with him...  he feels compelled to tie off where he'd cocooned himself and begins making a cage around himself and the coffin of magic. Once he's satisfied with the neatness of it, Dain manifests his intentions, eyes closing briefly while the magic he'd been "drawing" with leaves him weak for a single second.
+Cath's words find him as his peripheral existence fades to nothing; he stutter for a second, nearly breaking the connection where he's *dragging* his magic with his hands—plucks at it like strings he's meant to knit[]...  he feels compelled to tie off where he'd cocooned himself and begins making a cage around himself and the coffin of magic. Once he's satisfied with the neatness of it, Dain manifests his intentions, eyes closing briefly while the magic he'd been "drawing" with leaves him weak for a single second.
 
 *"Okay,"* Dain responds, eager, *"Now what?"*
 
@@ -1108,21 +1110,9 @@ Dain grins, *"Thanks to you."*
 
 *"Ostentatious."* Dain let's his consonants drag the way Cath does when he's irritated. 
 
-His eyes bounce to Catriona; she's watching him the same way her silver-winged gryphon does, "Try this," she insists, passing his first rune to Maren.
-
-Maren glances at Catriona, mouth moving but not a word is registered.
-
-"You can't hear me at all can you?"
-
-"Nope." Marin flips the hemlock disk over, once, then twice, "But you could probably trade this for something nice, or even a service." she finishes while rubbing her hand against the rune, against the magelighting in their classroom Dain can nearly see through the symbols; looks like he'd nearly carved it through.
-
-Dain puzzles while holding the properly woven rune, "Like what? Why would someone want that?"
-
-"Can't hear you," Maren chuckles, her dark eyes are kind and teasing, "You still have your sound shield activated."
-
 It takes him a split second to cut his own reserves from the connection he's made on the wooden disk, "Darius was telling me his family buys runes to help with their business."
 
-"That is a thing," she sits down and leans her head onto the arm that she drapes across their table, "Civilians get stir crazy about them in Navarre, since they'd been banned an all, and somewhat done away with."
+"That is a thing," Maren sits down and leans her head onto the arm that she drapes across their table, "Civilians get stir crazy about them in Navarre, since they'd been banned an all, and somewhat done away with."
 
 Dain's focus blurs, and his eyes drop to his lap.
 
@@ -1132,7 +1122,7 @@ Furthermore, if you could sell runes that would infer that a marketplace for the
 
 His stream of consciousness slides into that horribly niche nook of his mind that is indubitably and perpetually occupied by Sloane Mairi. Colonel Mairi, her mother, had been a rune master. What in Malek's name might she have been capable of? What would *Sloane* be capable of? He can only begin to contemplate the feats Sloane might achieve with that blazing personality and confidence of hers. She'd bring upon a resurrection of runes, leveling the playing field between fliers and riders if there ever had been equal grounds against venin.
 
-"...Is it the runes or the alloy that actually vanquishes venin and wyvern?"
+"...Is it the runes or the alloy that actually vanquishes venin and wyvern?" Dain questions, carefully.
 
 Their runing instructor rounds the table behind them, and Dain pivots to look the man in his face, "Great question, Aetos. It's a combination of the two," he pulls out his own and sets ahead of his face, right beneath his waterline,
 
@@ -1144,11 +1134,13 @@ That's got to be uncomfortable.
 
 Maren speaks up; the tone that she uses is always consistent, in sadness and fret, in anger and jolly, Maren's voice is comfortably soft and administrative, he's happy to hear it, "It depends on where the daggers are smelted, for rune placement; in Poromiel the runes are preferred etched into the daggers tang, this way venin can't learn the runes if there's a bad throw, or faulty rune, if it's ever recovered."
 
-That makes a lot of sense.
+"But if they haven't woven the rune themselves, they wouldn't know what they mean." Dain challenges.
 
-And pisses him off.
+"Typically you'd want to conceal any rune that's not complex and intended for combat; these are not one of those."
 
-He'd been running around left and right with daggers issued to him meant to banish his oppositions with the key to their demise right along the fuller of his dagger. What the fuck. Navarre, the more he'd spent time away from it—Dain corrects himself, *Basgiath—* existed in folly, and ridiculous decisions backed and foiled in the gold of irresponsibility and fucking lies.
+That makes a lot of sense and pisses him off.
+
+He'd been running around left and right with daggers issued to him meant to banish his oppositions with the key to their demise right along the fuller of his dagger. Navarre, the more he'd spent time away from it—Dain corrects himself, *Basgiath—* existed in folly, and ridiculous decisions backed and foiled in the gold of irresponsibility and fucking lies.
 
 "How expensive is the metal?" Dain presses.
 
@@ -1178,6 +1170,121 @@ Violet's name is thrown into the discussion, along with Riorson's, and eventuall
 
 "Isn't weaving a rune technically imbuing? I took my magic and stored it in a medium, essentially that's imbuing."
 
-Catriona's eyes close, "Yes, but not entirely because you're giving a command and specific amount of magic to a medium
+Catriona's eyes close, "Yes, but not entirely because you're giving a command and specific amount of magic to a medium not just transferring your power, and also this," she lifts a lazy arm and drops Dain's first sound shield between them, right next to the new one, "can't be used again."
+
+"Why?" Dain groans, "I did it right."
+
+"Somewhere along the line you meant for it to be used only once."
+
+They stare at each other, quiet, and then finally, Dain deflates, "I'm going to Violet tonight."
+
+He knows she sleeps in Riorson's quarters when they're in Aretia, though he's not sure if the familial quarters' newly posted guard will let him through.
+
+"I'll come to your room later then." Catriona tells, stern and suddenly bolstered,
+
+Dain pauses, "That's fine but... depending on what I'm told, don't think it's of my concern to exploit that information to you."
+
+"And if it's something reprehensible?"
+
+"That's between myself and Violet." Dain admits.
+
+She doesn't let up, instead she lifts her head off the desk, "Well that's fucking stupid. I came to you because I think you're a righteous person, given your history. I don't need you to bail on me now."
+
+"I'm sure whatever reasoning there is, you'll come to understand, Cationa," Dain growls, grabbing her sound shield rune and activating it, "Unfortunately there are layers to everything happening around us, and one person's decisions doesn't make everything up till their actions invalid. You're going to have to accept that now."
+
+"Abandoning you province and people?" she nearly screeches, lifting out of her seat.
+
+"Your province and people *need* Tyrrendor and vice versa, whether you want to accept that or not. All I'm saying is to wrap your head around the idea that you're not going to like whatever the fuck is happening, okay?"
+
+"And how would you know?" her brown eyes are scalding his skin, "You have something you want to tell me?"
+
+Dain laughs, and deactivates the sound shield, "If it's one thing about myself and the gods, it's that they'll be sure I always learn the hard way."
+
+"Then I hope," she sneers, "for my sake, you learn before Poromiel pays for it while you're begging me for their forgiveness."
 
 ---
+
+He eats his dinner, albeit just fruit and bread, showers, and changes into his sparring gear to see Violet. They're clean, and all he has until his uniforms are finished with the House Launderers later tonight. He takes no daggers, but he does tuck the Itinerarium into his hand before dropping his forehead against his door and praying.
+
+Loial, he hopes, will receive them and reinforce his heart what needs to support Violet, hopefully for one final time before he's stationed somewhere far, far away. Luceras maybe, he can freeze his emotions solid, one day at a time until he's as unforgiving and spiteful as his Dad.
+
+*"I will be above."* Cath announces as soon as Dain pulls his barracks door open.
+
+"For what?" Dain mutters aloud, then ever sarcastically, *"You gonna fly through the mountain and take me away if you don't like what is said?"*
+
+Cath is entirely unperturbed, *"A quarter of this castle remains exposed, and it happens to be the entryway. I will simply let myself inside through it's front gates and trample the rest if I need to. Test me today, Hatchling."*
+
+*"That was a lot of threat for one very breakable human."* Dain gripes.
+
+*"Yes, one that frequently breaks you."*
+
+Well, Cath's got him there.
+
+*"Usually."*
+
+*"Ostentatious."* Dain pokes, cautiously.
+
+Cath pokes back, but it's kind of aggressive, *"Fool."*
+
+Dain makes his way down the double staircase slowly, and in a dissociative state. He doesn't want to do this. He might even be making himself look like a fool. Who's to say Riorson isn't there as soon as he knocks on her door.
+
+"She's expecting you, Aetos." the guard at the left entrance informs him, then he steps to the side so Dain can pass,
+
+*"Why would she be expecting me?"*
+
+*"Because I told Andarna you were going."*
+
+*"...and where is Andarna?"*
+
+*"In my den."*
+
+Weird.
+
+*"Andarna seems to think she can do as she pleases."*
+
+Dain cocks a brow before wrapping the back of his knuckles against Violet's door, *"Seems like she can to me."* he instigates.
+
+Cath shields, after flooding the bond with calm and reassurance.
+
+Violet opens the door seconds later.
+
+Her hair is out and mostly damp, and he's sure the sleeping set she's in belongs to Riorson what with the way she's got very edge of it rolled about twenty times and it's still too damned big. It makes her look vulnerable and pitiful.
+
+"Hey Dain!" she smiles, "Cath just told us you were on the way."
+
+"He's overinvested." Dain says when she sticks her hand out, "Do you——"
+
+"——wards."
+
+He scrunches his face, "Oh, yeah."
+
+Of course her room is warded; people at every corner of the Continent are probably dying at a chance to kill her.
+
+Dain would kill for a room like this as he walks further into it once Violet's got him entirely across her wards. There's a bed that could fit five of him comfortably, an overstuffed armchair, huge windows, an actual desk—also unfairly oversized—and wall-to-wall bookshelves that make him giddy. Beyond what's in this room he spies a private bathing chamber with a huge tub and fancy aqueducts.
+
+"Wow," Dain breathes out, stopping just short of the carpet that eats up most of the stone floor, "this is nice."
+
+Violet nods, climbing into the bed, literally, "Yeah. It's Xaden's room, so it's probably nice than it should be."
+
+"Mmm," Dain thinks, looking around and ultimately deciding to drop into another chair, which is also slightly cushioned, at Riorson's desk, "Can I sit here?"
+
+"Yeah, I mean wherever is fine." she responds neutrally.
+
+He takes her in before speaking.
+
+Hollowed cheeks, pointed shoulders and a sinking clavicle, boney fingers, sunken eyes, all things that point to obvious stress.
+
+"Have you eaten at all today?"
+
+Violet looks surprised at that, "I had dinner, just now."
+
+He shields, feels for Cath's ramparts but only finds softer barricades that he could easily press through, but he doesn't. He shields, and shields some more. Once he feels that his mental defenses are adequate enough, Dain breaks the silence.
+
+"Where is he?"
+
+The questions departs from his mouth exactly the way he wants it to, gentle and firm, but not rushed or demanding. It's just a simple question. Where is Xaden Riorson.
+
+Violet smiles, "I don't know." The words launch out of her mouth the complete opposite that Dain's left his. There's zero control or compliance with what she had intended if it wasn't this, "I don't know and I'm not supposed to go looking for him."
+
+The last bit of Violet's answer is dragged out of her forcefully, and she clutches the front of the sleeping shirt.
+
