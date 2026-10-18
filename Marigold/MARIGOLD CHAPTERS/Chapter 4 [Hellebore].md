@@ -797,6 +797,20 @@ Her pinch-able face goes pink and she snaps at him, "You need——" Sloane whip
 
 She points at her Daggertail, still perched on her stone seat in the cliff side behind them and when Sloane turns back to face him, she's so increasingly pink the tips of her ears look like they're glowing.
 
+"Anyway, you have a confidential signet that activates via touch," she gives her back to Thoirt and takes slow steps backwards until her waist hits the railing keeping them apart, "So I would suggest not letting people touch you so easily."
+
+Her face is still bright pink when his eyes slide down her body and then to their table.
+
+"I don't think anyone cares that much, it's fine."
+
+"Well, I care. I'm supposed to care about you——"
+
+"——because Violet said so, I heard you." Dain murmurs, "I got that thanks."
+
+"No." She folds her hands over her nose and closes her eyes, "No I received my letter for week two days ago. And I..."
+
+"No." her arms fold over her chest and their eyes meet, forcefully joined by some liminal force that makes both of them weak, 
+
 "Should I take that?" she mutters, turning back and pointing at the notebook she left with him.
 
 "I wrote everything we discussed today in here for you, and I have the same notes for my observation of you, so yes. And I'd like you to build off of what we've established on our off days." He begins putting away his Itinerarium while standing up, and Sloane runs her hands through her hair,
@@ -808,6 +822,14 @@ Dain holds the terrace door open until she stubbornly strides through it and wat
 "Good night, Mairi." he calls, hopefully.
 
 Sloane stops, swivels at the hips to look at him and flicks him off, "Sweet dreams, Professor Aetos."
+
+He's sure, more sure than he is confused, tired, and scared of all the things happening around him, that Sloane hadn't poked fun at him in a way that was meant to incite the perversion it pulls from the quietest parts of his thoughts. Yet, he imagines it. He imagines in another life that he's graduated, returned to Basgiath or Aretia, wherever she'd be taught and tight and willing against his desk. Asking for him, in that sweet and singing call that cuts through to the base of his spine and waves the cindering flames of his desires.
+
+He stands there after the terrace with them, clammy and swallowing watching that golden hair disappear to the floors below. Dain scratches at his palms with his fingers and gnaws at his bottom lip.
+
+*"Professor Aetos."*
+
+He takes his time, walking to his room. It's the very last barrack at the end of his floor's hall on the western wing, chocked full of other cadets who's eyes he avoids earnestly. Once he's safe behind the wooden door of his room he's out of his uniform and back in his sleeping set.
 
 Dain masturbates for the first time in months and falls asleep sweaty and twice as guilty.
 
