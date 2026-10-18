@@ -2,21 +2,19 @@
 
 Dain blinks.
 
-His peripherals find him again, pulling him from the ocean, taking him from where his power rolls across black sand, tumbling over his feet. The smell of forest and fire escape him completely; they're replaced by bread and butter, of fruit and poultry, of his coffee growing cold in the place where a plate full of food would've made Cath much less irritated.
+His peripherals find him again, pulling him from the lake, taking him from where his power rolls across smooth pebbled shores and dirt sand, tumbling over his feet. The smell of forest and fire escape him completely; they're replaced by bread and butter, of fruit and poultry, of his coffee growing cold in the place where a plate full of food would've made Cath much less irritated.
 
 Words escape him for a moment longer, but eventually he makes out Imogen as she tucks herself into the only other chair available at the table he's seated at,
 
 "Sloane said today is her first session with you. Don't you think you should eat? You know, proper preparation and whatever else you probably recite in the mirror three times each."
 
-She looks *"awful,"* and even that is a just a pond in the sea of what he's witnessing; it's only what she allows that he observes now, so Dain can only imagine how deep the pain goes. He chews on the words he could ask, affects posturing that seems necessary to enforce, but with the way her cheeks have sunken in and how her usually vibrant hair is pastel and stripped, he himself rubbing that dialogue away.
+She looks *awful,* and even that is a just a pond in the sea of what he's witnessing; it's only what she allows that he observes now, so Dain can only imagine how deep the pain goes. He chews on the words he could ask, affects posturing that seems necessary to enforce, but with the way her cheeks have sunken in and how her usually vibrant hair is pastel and stripped, he himself rubbing that dialogue away.
 
-"I'm sorry I couldn't get you more time." his voice cracks and it makes him wince, "I don't really have any close friends, so I'm not—I don't remember what it feels like to lose them."
+"I'm sorry I couldn't get you more time." his voice cracks and it makes him wince, "I don't really have any close friends, so I'm not—I don't know what it feels like to lose them."
 
-Imogen straightens up her back, and chews more slowly. Her eyes meet his and his heart pulls at the hopelessness he feels there,
+Imogen straightens up her back, and chews more slowly. Her eyes meet his and his heart pulls at the hopelessness he sees there, "I'll do right by her. Nothing else matters to me."
 
-"I'll do right by her. Nothing else matters to me."
-
-There's a moment that they occupy in the shared silence that pillows between them, and Imogen eyes come alive enough that they crinkle at their corners.
+Gods, he hopes Imogen will spare him a shred of grace while stomaching the mandate he's given. It probably sounded too overinvested for her tastes. There's a moment that they occupy in the shared silence that pillows between them, and Imogen eyes come alive enough that they crinkle at their corners.
 
 "I guess we'll see, won't we?"
 
@@ -40,7 +38,7 @@ The heat from their near death experience engulfs him before the memory of Imoge
 
 "Worried about me or something?" Imogen teases. Her voice remains as emotionless as her face after the prod,
 
-"Yeah."
+"Yeah." 
 
 He clears his throat, "You're my friend."
 
