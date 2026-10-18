@@ -172,17 +172,19 @@ Kaori whips around, quick enough that Dain's eyes snap to the dark haired rider,
 
 "Attend all," Dain growls, "Silence in the theatre!"
 
-The right side of the theatre fades to a hush, and Squad two, the last of the riders from both wings, sit in the row available to the; the one right after his own. Inevitably his eyes pull to Sloane, she lingers about, eyes shifting from Eleni to his right and the three empty seats between himself and some fliers from Second Wing on his left.
+The right side of the theatre fades to a hush, and Squad two, the last of the riders from both wings, sit in the row available to the; the one right after his own. Only the cadets cave to the command, but it's expected, his rank only holds within Basgiath. Inevitably his eyes pull to Sloane, she lingers about, eyes shifting from Eleni to his right and the three empty seats between himself and some fliers from Second Wing on his left.
 
 "Where's Varen?" Dain asks Eleni once they're both seated again.
 
 She jerks her thumb to the right, "With some fling over there, somewhere," she snorts, "probably."
 
-He nods and wonders if she might be as concerned as he's growing.
+Dain nods and wonders if she might be as concerned as he's growing to be.
 
 "This seems like General's Gathering, not an all-hands. They've even got the retired rider's in here with us."
 
-Eleni's eyes scan the dais only, "Weird enough that all Aretian Generals are here and mad as fuck too."
+Generals Gatherings demanded the presence of all military personnel to attend within a given location, while an all-hands only required those at the post. And Eleni is right, considering even the retired riders are here, and by the look of it some fliers, there has to be an important decree to be told.
+
+Eleni's eyes scan the dais only, "Weird enough that all Aretian Generals are all here, and mad as fuck too."
 
 Sloane ends up between Imogen and Avalynn, directly ahead of him.
 
@@ -198,11 +200,11 @@ He shrugs and Eleni begins craning her neck to see past senior riders to her Win
 
 Sloane's hair isn't braided today.
 
-It's... rolled and held in place by two pins, it reminds him of Cath's primary horns, neat and subtly curved up they streak backwards; her honeyed strands are tightly gathered into a ponytail positioned closer to the top of her head. Gravity pulls it to-and-fro at the slightest of her movements and he watches the green ribbon she's fastened it with peek out occasionally.
+It's... twisted back? Held in place by two pins, it reminds him of Cath's primary horns, neat and subtly curved up they streak backwards. Her honeyed strands are tightly gathered into a ponytail positioned closer to the top of her head. Gravity pulls it to-and-fro at the slightest of her movements and he watches the green ribbon she's fastened it with peek out occasionally.
 
-She leans forward to grab something, maybe adjust a dagger—Sloane hardly ever carries the correct amount of daggers he'd require of her, so not, not daggers. Whatever it is slides the ponytail to the side of her neck, exposing the skin.
+She leans forward to grab something, maybe adjust a dagger; that can't be right, Sloane hardly ever carries the correct amount of daggers he'd require of her. So no, not daggers. But whatever it is slides the ponytail to the side of her neck, exposing the skin there.
 
-Sloane's sunkissed complexion reminds his of his mother's amberscotch cake batter; creamy, but darker, as gold were caught beneath her skin——
+Her sun-kissed complexion reminds his of his mother's amberscotch cake batter; creamy, but darker, as if gold were caught beneath her skin——
 
 *"——She bites."*
 
@@ -214,9 +216,7 @@ He turns his head to smile at Eleni, "Just fine."
 
 "Cath yelling at you for having coffee for lunch?"
 
-"No, he did that earlier."
-
-He drinks the mentioned coffee, now reminded that he has it on the floor between his feet.
+"No right now, he did that earlier." He drinks the mentioned coffee, now reminded that he has it on the floor between his feet.
 
 "You should really get a canteen."
 
@@ -224,25 +224,27 @@ Dain sighs, "You have one you don't use?"
 
 "Actually I do. My aunt gave it to me, I don't use it because it's too big."
 
-"That sounds perfect; can I have it?"
+"That sounds perfect; can I have it?" he humors a smile that normally gets him some grace.
 
 Eleni eyes narrow on him, "You're going to lug around a humongous, brass canteen, filled with whatever you'd put——"
 
 "——coffee."
 
-She tips her head forward and widens her eyes, "Do you have any idea how much coffee that would be?"
+She tips her head forward and widens her eyes, "Do you have any idea how much coffee that would be? It's huge." She makes an approximation with her hands, "I'm not joking."
 
 "No." Dain gives his hands a stiff shake, "I don't know what it looks like."
 
 "It's like——"
 
-Eleni pauses, then holds her palm out, "——here."
+Eleni pauses, then she freezes and leans into his space face first "——here."
 
 "What?"
 
-Dain's eyes do circles over Eleni's palm; is she declining the offer? He gets nothing after she'd just offered it to him?
+Dain's eyes do circles over Eleni's cheek; is she declining the offer? He gets nothing after she'd just offered it to him?
 
 "Your signet stupid, can't you just," she wiggles her finger at him in the space between them, "kinda do your inntinnsic thing?"
+
+She says the last part quietly and momentarily wonders who all remembers himself exposing his signet before battling wyvern for the first time at Basgiath.
 
 He purses his lips, "I could... but are you sure you want to do that?"
 
@@ -256,13 +258,13 @@ Eleni seems annoyed, "Exposing myself to what?"
 
 She pulls her hand back, slowly, while looking at it, then her grey eyes find his again, "Do you like look at all of my memories? Or take them?"
 
-"No, I don't take them. And I could see them all, but I can only focus on retrieving one at a time," he breathes in,  "and even then I might forget it anyways."
+"No, I don't take them. And I could see them all, but I can only focus on retrieving one or two at a time," he breathes in, "and even then I might forget it anyways."
 
 She sets her hand on his thigh and squeezes, "Oh, then yeah that's fine, sounds harmless enough——"
 
 "——You're really about to just let him in your brain? Just like that?"
 
-Sloane is twisted at the waist, face craned upwards to watch the two of them, and Imogen is pivoted slightly, enough to watch Sloane. Matthias, to Imogens right, is already looking apologetic,
+Sloane is twisted at the waist, face craned upwards to watch the two of them, and Imogen is pivoted slightly, enough to watch Sloane. Matthias, to Imogen's right, is already looking apologetic,
 
 "Yep, to see my aunt give me a massive metal canteen; the same way you're about to turn around and see yourself out of my business."
 
@@ -270,7 +272,9 @@ Sloane's eyes light, and as her mouth peels open Imogen verbally scruffs her aga
 
 The blonde's jaw closes so quickly her teeth meet and the sound of it makes Dain flinch; before she turns around she burn a hole through Eleni's hand on Dain's thigh, and he looks down at it too.
 
-His voice waivers a bit, and he knows there's a few fliers listening with curious glances to pair, but Dain doesn't shy away from her; he thinks of Kaia and her grin at getting to experience his magic—at her fascination with it, "I have to touch your face so..."
+His voice waivers a bit, and he knows there's a few fliers listening with curious glances to pair, but Dain doesn't shy away from her; he thinks of Kaia and her grin at getting to experience his magic. Her innocent fascination with it, 
+
+"I have to touch your face so..."
 
 "Oh, Dain," Eleni sings sarcastically, smiling brightly and blinking up through her eyelashes when he offers his hand, "but what an honor it would be!"
 
@@ -294,7 +298,7 @@ Fliers stay in their seat, some smirking.
 
 Every laugh, sigh, throat clearing, a sniff, his aged stare tidals over the body's of each that the commandeers, before finally speaking to them with his hands laced behind his back.
 
-"On behalf of King Tauri, Aretian and Navarrian Riots, all of the following proclaimed hereby stand as direct orders; Kaori. Regardless of Riot, do remember all riders remain under direct order of General Aetos, *myself,* and his Highness, King Tauri."
+"On behalf of King Tauri, Aretian and Navarrian Riots, all of the following proclaimed hereby stand as direct orders. Regardless of Riot, do remember all riders remain under direct order of General Aetos, *myself,* and his Royal Highness, King Tauri."
 
 General Melgren flicks out his hand on with an uninvested motion, summoning Kaori to the dais. Dain's eyes nearly cross because that was no announcement, *that* was a warning.
 
@@ -302,7 +306,7 @@ General Melgren flicks out his hand on with an uninvested motion, summoning Kaor
 
 He bows, hinging enough for it to be rather formal, then pulls a small scroll from his pocket,
 
-"For herein onward, Basgaith War College, both by necessity and by decree, will recognize two independent school houses: the Prestigious Navarrian Campus and, newly erected, Aretian Campus."
+"For herein onward, Basgaith War College, both by necessity and by decree, will recognize two independent school houses: the Prestigious Navarrian Campus and, newly erected, *temporary* Aretian Campus."
 
 Dain's mind blips from it's conceptual existence to a place, far, far away, while Kaori continues to speak after rolling up the scroll and passing it to Melgren. The general takes the scroll and walks right off the dais, back to wherever he'd came from.
 
@@ -311,6 +315,10 @@ Dain's mind blips from it's conceptual existence to a place, far, far away, whil
 He takes a breath and soldiers on,
 
 "All cadets who chose to join the resistance will be made to stay with their dragons in Aretia pending the Aretian Empyrean's orders. Fliers are encouraged to remain in Aretia as well, in lieu of migrants and concerns of health and wellness during the settlement within newly open borders." he clears his throat, "There is much to be considered and organized in the coming month, and we ask that you remain obedient and diligent in this time of growth, or be disciplined accordingly..."
+
+Dain's shoulders curve and tip forward the way his head does at hearing the order. Dragons are *refusing* to return to Basgiath to protect their hatching ground in Aretia. He thinks of Cianna, or Morrison, a few other of his year-mates who flew to Aretia after he'd split the quadrant, but voiced their dragons concerns at not being near the Vale. And how would Basgiath split the Wings? Would both campuses even out the number into new Wings? Would Aretia only have it's small, local healer's quadrant and nothing more? No infantry, no scribes?
+
+Cath snaps him out of his boggle, *"Focus."*
 
 Kaori's eyes fall onto Eleni and Dain, and they exchange a glance before becoming even more rigid.
 
@@ -366,11 +374,11 @@ Darius snorts and drop his head against the back of his chair to burn a glare th
 
 "Agreed." Catriona growls, then takes the seat next to Darius at his table.
 
-Dain laments, ignoring the jab, "Think General Melgren is only here to say like what, six words and then leave?"
+Dain laments, ignoring the jab, "Think General Melgren is only here to say like what, sixteen words and then leave?"
 
-"I'm glad he only said a singular sentence." Catriona gags, "He makes my skin crawl."
+"I'd be more glad had he only said a singular sentence." Catriona gags, "He makes my skin crawl."
 
-Maren chuckles, "Kai overheard he's there because his dragon wants to speak with the Aretian Empyrean. There's also specific professor's who's dragons are picking sides. Naturally Navarre thinks it has it's say in those particularities."
+Maren chuckles, "Kai overheard he's there because his dragon wants to speak with the Aretian Empyrean. There's also specific professor's who's dragons are picking sides. Naturally Navarre thinks it has it's say in those particularities. That, and manpower."
 
 "So what? He thinks his dragon can sway a whole court?" Dain sneers, eyes flared at the show of audacity.
 
@@ -382,15 +390,19 @@ Darius pats his lap in defeat, "Then you can't assume this will just work out th
 
 The room shares a disturbed pause.
 
+"And why would manpower be an issue further inland? Borders will be more secure now than ever with a bulkier home base in Aretia." Darius thinks aloud.
+
 *"Maybe that one is in the incorrect quadrant as well."* Cath muses.
 
 Maren's eyes are nearly glowing, quivering at the information she giddily begins to release, "Since the Aretian schoolhouse has been officially recognized both by Navarre and the Empyreans, there is talks of establishing a Cliffsbane branch within this campus for the fliers."
 
-Dain can't conceal the surprise that then translates into his features.
-
-He spills, rubbing his face, "This is all... monumental. I can remember the moment I learned venin and wyvern existed and it changed everything, and now everything is changing *again.*"
+Dain can't conceal the surprise that then translates into his features. He spills, rubbing his face, "This is all... monumental. I can remember the moment I learned venin and wyvern existed and it changed everything, and now everything is changing *again.*"
 
 "On the dragon's bidding, so this is surely permanent." Catriona comments. Darius pours her a cup of coffee, pushing the ceramic mug towards her that he no longer drinks from, "According to the Zeniths, if it's the Aretian Riot there's no issue in joining forces."
+
+"Zeniths?" Dain prods.
+
+Maren provides a brief enough explanation, "Gryphon Empyrean Equivalent."
 
 *"This is insane."*
 
@@ -398,7 +410,9 @@ Cath is utterly unimpressed, *"Is it?"*
 
 *"I mean fliers have always been vilified, you know? And now Tyrrendor and Poromiel can make a move towards a symbiosis. We might be able to reclaim eastern territories if we can hold our borders."*
 
-*"Ah yes, by the propaganda your kingdom was so good at curating."* his voice becomes haggard, *"Regardless, the age of retribution will begin yet again."*
+His Red's voice becomes haggard, *"Regardless, the age of retribution will begin yet again."*
+
+*"Again?"*
 
 Maren, while leaning against his door continues speaking, "Since Riorson remains in direct control of his tactile assets he's proposed dual-military posts. Technically, the Aretian Empyrean refusing to return to Navarre to protect it's hatching grounds means Navarre's own forces have been compromised."
 
@@ -490,15 +504,15 @@ He needs to speak with Violet.
 
 Dain despises people with bad breath.
 
-Sometimes he finds himself wishing he could build a to-scale toothbrush for each and every dragon, and a potion he could instruct cadets to rinse with that would do away with odor of their last meal or the marination of sleep against their gums and teeth. Cleanliness is what Amari demands of her followers, and so Dain complies, but Sloane leaning towards his face to ask if he'd brushed his teeth peeves him slightly, and he pulls away, worried his mouth bear stench itself.
+Sometimes he finds himself wishing he could build a to-scale toothbrush for each and every dragon, and a potion he could instruct cadets to rinse with that would do away with odor of their last meal or the marination of sleep against their gums and teeth. Cleanliness is what Amari demands of her followers, and so Dain complies. Sloane leaning towards his face to ask if he'd brushed his teeth peeves him slightly, and he pulls away, worried his mouth might carry a stench from his nap.
 
 "I had been sleeping, so I did, before I came to see you." he admits carelessly while retrieving the Itinerarium and her research from his trouser pocket, "I appreciate your notes too, by the way."
 
-Her features smooth over, adopting a calm that makes her look like a porcelain art piece, "Not sure what they possibly could've helped you with but you're welcome."
+Her features smooth over, adopting a calm that makes her look like a porcelain art piece, "Not sure what they possibly could've helped you with, but you're welcome."
 
 Dain scowls, "Well naturally, deductions. And that makes creating a baseline of ability and threshold for your signet easier to build."
 
-Behind Sloane is Thoirt, her Red Daggertail who occasional shines magenta at a glance. His eyes naturally pass over Thoirt's as he observes them, perched at the tip of a stone rupture that pierces outwards from the cliff-side that the fifth floor terrace overlooks. He scans the mountain range behind Thoirt but doesn't Cath against any of them.
+Behind Sloane is Thoirt, her Red Daggertail who occasional shines a storybook red. His eyes naturally pass over Thoirt's as he observes them, perched at the tip of a stone rupture that pierces outwards from the cliff-side that the fifth floor terrace overlooks. He scans the mountain range behind Thoirt but doesn't Cath against any of them.
 
 He gestures to one of the wrought iron tables and bench-seats, sitting only after Sloane herself is seated. She seems tired, but not in a defeated way,
 
@@ -510,33 +524,43 @@ Dain lets the comment hurdle past him, "No I meant, you, in general, I want to h
 
 "Oh," Sloane sighs, then glances behind her at Thoirt, "I was in the gym with Imogen for two hours, and just finished eating."
 
-Dain opens the Itinerarium and jots it into the notebook, "All right."
+Dain gives her a long stare, "And are you tired as a result?"
+
+"No." Sloane grins playfully, but equally as menacingly, "I would take a lot more than that to tire me out."
+
+Absentmindedly Dain praises her apparent stamina, "Would it?"
+
+"It would."
+
+"Imogen used to wear Violet out, glad to hear you're fairing better." Dain opens the Itinerarium and jots it into the notebook, "All right——"
 
 Sloane stands and slaps her hand over the page where the ink is still drying and Dain scowls, he looks up at her to ask what her fucking issue is,
 
 "Did you tell them what happened during my Threshing?" she barks directly into his face.
 
-"No, I'll die with that memory unspoken. Why?" He begins calmly, "Don't do that again and fucking sit down."
+He flinches.
+
+Why would she think he'd ever tell anyone about that?
+
+"No, I'll die with that memory unspoken. Why?" He begins calmly, leaning away, "Don't do that again and fucking sit down."
 
 She doesn't sit. In fact, she stands up.
 
 "Imogen and Violet are adamant that I don't stress you out anymore than you already are. Apparently we're all supposed to give a shit about you suddenly?"
 
-Dain laughs only for moment, "Probably because you're incapable of acting civilized for anything longer than ten seconds, Mairi. Do you want to get your customary remonstrating that I'm still breathing out of the way while we're at it? Or can we both move along so we can graduate, and get the fuck out of Basgaith?"
+Dain laughs only for moment, "Probably because you're incapable of acting civilized for anything longer than ten seconds, Mairi. Do you want to get out your customary remonstrating that I'm still breathing out of the way while we're at it? Or can we both move along so we can graduate, and get the fuck out of Basgaith?"
 
-He doesn't wait for her response before dropping his head to look at his ruined, first entry, irritated.
-
-When Sloane silently sits down Dain begins his treatise,
+He doesn't wait for her response before dropping his head to look at his ruined, first entry, irritated. When Sloane silently sits down Dain begins his treatise,
 
 "I want to lay the ground that you are not venin, and are in fact incapable of preforming the same action with your signet based on your own findings."
 
 She blinks at him, and begins pulling her hair out of the bundle of it that sits on top of her head. She might not want to be, but she's listening,
 
-"You were able to siphon from Kai, but not the tree, Broccoli, or Jessinia." Dain's eyes scan over Sloane's writing in her notebook, and Dain's anecdotes in the Itinerarium, "Kai is a flier and therefore wields magic that can be siphoned. Jessinia, and the other controls do not wield, they objectively just exist."
+"You were able to siphon from Kai, but not the tree, Broccoli, or Jessinia." Dain's eyes scan over Sloane's writing in her notebook, and Dain's anecdotes in the Itinerarium, "Kai is a flier and therefore wields magic that can be siphoned. Jessinia, and the other controls do not wield, objectively they are not mediums by which magic would flow."
 
-Sloane is looking at him now, and a breeze passes through the terrace, lifting her hair gently away from her chest and dropping it messily along her shoulders and back,
+Sloane is looking at him now, and a breeze passes through the terrace, lifting her hair gently away from her chest and dropping it messily along her shoulders and back, "I hadn't even considered that." she acknowledges her overlooking what he'd noticed, 
 
-"I hadn't even considered that." she acknowledges her overlooking what he'd noticed, "So, I guess in conclusion, that means I can only drain magic."
+"So I guess, in conclusion, that means I can only drain magic."
 
 "No." Dain, presses his fingers into her notebook,
 
@@ -558,9 +582,11 @@ Her eyes drop to the table and Dain let's the harshness fade in his tone, "I kno
 
 His Dad told him how he'd be using his signet, otherwise there'd be consequences to suffer, like his life, for manifesting an Inntinnsic.
 
-"You don't have to choose that path for yourself. And I won't let you understand?"
+"You don't have to choose that path for yourself. And I won't let you understand?" He groans, and taps the table with his pen, "Up here."
 
-"I don't need you looking out for——"
+Again, a true cerulean hue finds him and drowns him in the same instance.
+
+Sloane's voice lacks the traction her words demand when she speaks, "I don't need you looking out for——"
 
 "——I don't need anything outside of a 'yes' or a 'no.' We aren't hanging out, Mairi, this is fucking training." he barks.
 
@@ -569,6 +595,21 @@ Her body recoils, pulling back and away from the table, their eyes meet again an
 "Okay, I'll work on it." She rubs her forearms although it's not cold, even as the sun nearly finishes vanishing behind the mountains, "You're fucking cranky when you wake up, huh?"
 
 Dain lifts an eyebrow at her and she dodges him again, face turning to her right. He counts to sixty, watching her, until her shoulders unfold and she looks up at him again. One day she'll look at him with resolve, and hopefully he'll be just as certain.
+
+"I'm not... cranky. I'm trying to graduate, and stay out of the way." He offers, off topic and unwilling, but hoping it'll make her not look so fucking dejected.
+
+Sloane peaks at him through her eyelashes and then somewhere behind him, "You're socializing quite a bit for someone trying to stay out of the way."
+
+"What?" Dain huffs, "I'm staying out of..." he turns his palms outwards in defeat after placing the Itinerarium cover up, "Violet's way."
+
+"So you're going to ignore everyone in Iron Squad until you graduate?"
+
+"If I have to." he looks at her, "Few more months and your wish will come true."
+
+Sloane's head tips to her shoulder, "When did I wish for anything——"
+
+"Sloane, you *don't* like me, not remotely. Don't forget that.
+
 
 "Want to keep going?" he asks, gently, letting the exhaustion that his nap only quelled parts of and running his hands through his hair.
 
@@ -1288,3 +1329,4 @@ Violet smiles, "I don't know." The words launch out of her mouth the complete op
 
 The last bit of Violet's answer is dragged out of her forcefully, and she clutches the front of the sleeping shirt.
 
+"Last he was seen was with King Tecarus."
