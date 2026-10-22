@@ -142,7 +142,7 @@ Cath's neck twists to observe his rider with squinted eyes, *"You shall do so in
 
 *"We don't need babysitters."*
 
-*"This,"* Cath snaps, mere meters from Dain's face, *"is non-negotiable, Hatchling."*
+*"This,"* Cath snaps, mere feet from Dain's face, *"is non-negotiable, Hatchling."*
 
 "Did you just ask?" Catriona yells, "Don't die on my behalf, Aetos!"
 
@@ -598,24 +598,56 @@ Dain lifts an eyebrow at her and she dodges him again, face turning to her right
 
 Sloane peaks at him through her eyelashes and then somewhere behind him, "You're socializing quite a bit for someone trying to stay out of the way."
 
-"What?" Dain huffs, "I'm staying out of..." he turns his palms outwards in defeat after placing the Itinerarium cover up, "Violet's way."
+"What?" Dain huffs, "Why would you even..." he turns his palms outwards in defeat after placing the Itinerarium cover up, "Do you have an issue?"
 
-"So you're going to ignore everyone in Iron Squad until you graduate?"
+"You're going to ignore everyone in Iron Squad until you graduate? Even though I asked you to train me?"
 
-"If I have to." he looks at her, "Few more months and your wish will come true."
+"Training you doesn't make the distaste for me vanish and it's more comfortable for all of us this way." he gives her an incredulous groan at her, "Few more months and you won't even need to consider me."
 
-Sloane's head tips to her shoulder, "When did I wish for anything——"
+Sloane's head tips to her shoulder, "Why wouldn't I c——"
 
-"Sloane, you *don't* like me, not remotely. Don't forget that.
+"——Mairi, you *don't* like me, not remotely. Don't forget that."
 
+Now she looks like she wants to rip his tongue out and shove it in her pocket, "And *you?* I know you've been doing people's assignments for me and fixing my matches——"
 
-"Want to keep going?" he asks, gently, letting the exhaustion that his nap only quelled parts of and running his hands through his hair.
+His head snaps left and right, but there still the only two on the terrace. He didn't coddle any of the first-years, he'd never make that mistake again; what he was doing with all of these exceptions were the only things protecting Sloane most times. Especially during sparring and weapons training.
+
+He had control there, leverage even thanks to his position. Even Emetterio had been nice enough to send word of Carr superseding the Codex in going straight to his Dad with Sloane's failures. He was able to properly contest it and not look stupid doing it; since Riorson had graduated, the weapon master had to find new favorites and Dain was one of them.
+
+"——Because you won't *train* more. And that wasn't just me." finishes, voice terse and resigned.
+
+Violet was also actively meddling, much less as of late, so Dain had just... picked up the slack. Why even argue about receiving help?
+
+Her eyes are filled with weary disbelief, "I don't understand why you're helping me if you think I'm so pathetic."
+
+"I never once, and never will say you're pathetic because you're not." Reluctantly he tracks her blue eyes, waiting patiently until their worked on him again, "You can hate me, but don't hate the people I'm choosing for myself. They don't deserve that."
+
+The sun has set on them now. Rising for another somewhere someplace else in the world and taking Dain's dirty guilt with it. He's put out all he can for her, and hopes she'll allow his words to penetrate. He'd noticed Sloane's walls don't just exist for him, and, as of late like himself, she'd been opening up slowly to people around her.
+
+Gently as he can he adds, "Just a few more months, okay? Let me get you up on your feet and then I'll make sure you never have to see me again. I have to do at least that, for Liam."
+
+She just stares at him, still in that in-between space.
+
+"Want to keep going?" Dain offers as the exhaustion that his nap only quelled parts of seeks him out, and he runs his hands through his hair.
 
 "I do."
 
+The breath Sloane drinks down is so big her shoulders shift up to her ears, "I'm confused at what I'm supposed to do with you. It's... hard."
+
+The corners of his mouth rise, and the same confession he'd made to Imogen spills out his lips to join Sloane's "Emotions are hard." then, rubs the back of his neck, "Just use me. It's what I'm here for."
+
+
+She looks like she wants to smile at him and his stomach swoops oddly; she looks so unsure and kind this way, floating in her uncertainty and giving him honesty,
+
+"I'll try." Sloane decides.
+
+Okay.
+
+Dain straightens up and gets back to what she needs him for the most.
+
 "Alright, then, on that note: regarding Lillith. I feel like there's a secondary limitation there, and that is that if you can't channel the same amount of magic as they do, you might be in less control of how the siphoning goes."
 
-Sloane shuffles on her bench, blinking, theeh pulls her knees up to her chest, she drops her on top of them and then rolls her head over to her cheek; it puffs out and makes her lips pout—he wants to fucking pinch them. He wants to rub his thumbs over the top of them when she gets frustrated and they turn pink with embarrassment *or* frustration.
+Sloane shuffles on her bench, blinking, then pulls her knees up to her chest, she drops her on top of them and then rolls her head over to her cheek; it puffs out and makes her lips pout—he wants to fucking pinch them. He wants to rub his thumbs over the top of them when she gets frustrated and they turn pink with embarrassment *or* frustration.
 
 "Why though?" She wraps her arms around her legs and the margelight torches catch against the platinum cross-hatching hairs at the back of her forearms, they're nearly invisible without the light, "Same principle regarding experience with wielding probably, if I had to guess?"
 
@@ -623,19 +655,19 @@ Dain scratches the base of his neck, then reaches farther back to scratch betwee
 
 "So if I tried to siphon Violet, do you think I would struggle?"
 
-"If she was willingly giving you magic, no... but under the right circumstances, and if she were being particularly defensive, absolutely, yes." his biceps drop onto the table and he drops his forehead onto the Itinerarium, "I'm not trying to be since or nefarious when I say this, but Violet isn't someone you'd use to claim control when wielding. She's still under strict mentoring from Felix, and Carr thinks she's unreliable."
+"If she was willingly giving you magic, no. But, under the right circumstances, if she were being particularly defensive, absolutely, yes." his biceps drop onto the table and he drops his forehead onto the Itinerarium, "I'm not trying to be nefarious when I say this, but Violet isn't someone you should consider when it's pertaining control. She's still under strict mentoring of Felix, and Carr thinks she's unreliable too."
 
-"Carr thinks I'm useless."
+"Carr thinks I'm *useless.*"
 
-Dain drags his chin up to look at her through some of his curls that drop forward, "You won't be, but right now... are you particularly useful?"
+Dain drags his chin up to look at her through some of his curls that drop forward, "Consider it this way: are you particularly useful the way you are now?"
 
-"I fucking hate you." She groans, "... But no, I'm not."
+She groans, "No, I'm not."
 
-Dain shrugs, and sits up properly.
+They watch each other until Sloane speaks again.
 
-"What about the faucet, about how I can take more or less at will, if it's not against someone who is a stronger wielder than myself." Sloane's fingers tap from thumb to pinky against her knees with her face still pressed against them.
+"What about the faucet, about how I can take more or less at will, and if it's not against someone who is a more practiced wielder than myself." Sloane's fingers tap from thumb to pinky against her knees with her face still pressed against them.
 
-"I think that's just an aspect of your signet, typically with more complex signets there are aspects *stipulations* that are applicable when wielding. I've always thought Bodhi's signet was unimaginable, and wondered about those things in respect to it."
+"I think that's just an aspect of your signet, typically with more complex signets there are certain *stipulations* that are applicable when wielding. I've always thought Bodhi's signet was unimaginable, and wondered about those things in respect to it."
 
 Sloane let's out a little breathless laugh that makes her lashes grow closer, "You should've asked him, he probably would've told you."
 
@@ -665,11 +697,11 @@ He bites his bottom lip, "Why would I?"
 
 Sloane's brown brow lifts, and sardonically replies, "Maybe because you're our wingleader?"
 
-"There's a pattern." Dain explains, "Typically if something is going on pertaining certain marked ones, that means it's likely Riorson, doing Riorson duties, and it's the same with Violet and her squadmates."
+"There's a pattern." Dain explains, "Certain people I associate directly with Riorson. That means I assume it's likely Riorson, doing Riorson duties, and it's the same with Violet and her squadmates."
 
 When she doesn't respond, just looks at him, he adds:
 
-"See blind, listen deaf."
+"Listen deaf, see blind."
 
 "Navarre's best boy turning a blind eye to Tyrrs? Since when?"
 
@@ -677,7 +709,7 @@ Since he'd discovered his father was willing to make increasingly stupid decisio
 
 Since he'd slid that dagger across Varrish's throat and felt *giddy* about it. Since he'd split his quadrant. Since Cath further educated him about wyvern and venin while he was detained in Riorson House.
 
-"I wish I could convey to you how happy I am to never have to step foot in Basgaith again." Dain mumbles, "How happy I am for *you.*"
+"I'll never forgive myself for how deeply ingrained I'd been in Navarre's lies. I'm so relieved I might not have to go back to Bagiath too." Dain mumbles, "For *you,* and Imogen too."
 
 Sloane closes her eyes, and Dain watches the mountain breeze card through each of her wisping lashes, "You don't have to posture for me, Aetos.
 
