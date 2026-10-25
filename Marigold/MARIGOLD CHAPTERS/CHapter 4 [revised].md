@@ -292,9 +292,11 @@ Guess they're shelving Mulder family lore for later.
 
 "Good afternoon."
 
-She closes her hands together, once, twice then opens her mouth, and closes it right back.
+"Hey Rhi," Maren greets sweetly, "Been well?"
 
-"Let's head inside?" he suggests casually, hand sweeping towards the doorway that she blocks,
+Matthias's response is laced with exhaustion, "Been better." Then she laces her fingers together, once, twice; opens her mouth, and closes it right back.
+
+"Let's head inside?" Dain suggests casually, hand sweeping towards the doorway that she blocks.
 
 "Right," she twists, opening the door further and giving him her back—something she wouldn't normally do. Kai, Maren, and Catriona slide past him first and Dain leaves the door open behind him.
 
@@ -324,7 +326,7 @@ Dain inhales and scratches behind his ear, "I was in the wrong, so no."
 
 "For doing your *duties?*"
 
-"You know that's not what I mean."
+Forgiveness isn't something he deserves, nor is it something he seeks. Beyond the pain and grief he's created there is only redemption. Dain closes his eyes slowly then opens them again, "You know that's not what I mean."
 
 The discomfort is finally pulled from her heart and into her eyes, but Matthias doesn't flinch away from it, "I know."
 
@@ -374,9 +376,9 @@ Dain, in offense, bites out, "I understood him. I've also done it before."
 
 They make eye contact and Lynx very awkwardly shows his teeth.
 
-The rest of Iron Squad shows up on time, excluding Ridoc, and obviously Violet. Since the Isles, where Violet was, Dain could typically find Ridoc alongside her. Sloane sits between Avalynn and Baylor, who are both intently watching Kai.
+The rest of Iron Squad shows up on time, excluding Ridoc, and obviously Violet. Since the Isles, where Violet was, Dain could typically find Ridoc alongside her. Matthias, Sawyer, and Imogen are quietly discussing whatever within a sound shield of their own. Sloane sits between Avalynn and Baylor, who are both intently watching Kai.
 
-She seems unbothered, and much less interested in watching Dain and those around him as she had been the day prior... But, she also seems tired.
+She looks unbothered, and much less interested in watching Dain and those around him as she had been the day prior... But, she also seems tired.
 
 "And you rehashing the explanation is going to make it any different than when he explained it?" Dain whines, stiffly angling backwards and glaring at Maren over Catriona's head when she stifles a giggle. Dain can still hear the stuttering breaths that punch out of her while she laughs at them.
 
@@ -546,7 +548,7 @@ Halson flings her focus to his table, dragging a hot glare across Baylor and his
 
 Horatio coughs and scratches the back of his neck, "Can we lose the pointless animosity please, we've got a fighting chance at never having to go back to Basgiath so let's not turn Aretia into a second one during the process." He points at Halson, "You get all snippy when you're focused. Cool it."
 
-Dain winces; he can hear Halson's teeth grinding against themselves.
+Dain winces; he can hear Halson's teeth grinding against themselves. For a moment she reminds him of Kaia.
 
 "Anyway, I can't think of another alloy that has the effect this one does on venin and wyvern, and I feel like the Continent might be drained clean by the time you find another."
 
@@ -578,17 +580,17 @@ Dain pauses, "That's fine but... depending on what I'm told, don't think it's of
 
 "That's between myself and Violet." Dain admits.
 
-She doesn't let up, instead she lifts her head off the desk, "Well that's fucking stupid. I came to you because I think you're a righteous person, given your history. I don't need you to bail on me now."
+She doesn't let up, instead she lifts her head off the desk, "Well that's fucking stupid. I came to you because I think you're a person with a strong sense of justice, given your history. I don't need you to bail on me now."
 
 "I'm sure whatever reasoning there is, you'll come to understand, Cationa," Dain growls, grabbing her sound shield rune and activating it, "Unfortunately there are layers to everything happening around us, and one person's decisions doesn't make everything up till their actions invalid. You're going to have to accept that now."
 
-"Abandoning you province and people?" she nearly screeches, lifting out of her seat.
+"Accept the abandonment of your province and people?" she nearly screeches, lifting out of her seat.
 
-"Your province and people *need* Tyrrendor and vice versa, whether you want to accept that or not. All I'm saying is to wrap your head around the idea that you're not going to like whatever the fuck is happening, okay?"
+"I didn't say abandoning anyone was acceptable. I said we need to understand why she's making these decisions before we condemn her for them. You need to wrap your head around the idea that you're not going to like whatever the fuck is happening, okay?"
 
 "And how would you know?" her brown eyes are scalding his skin, "You have something you want to tell me?"
 
-Dain laughs, and deactivates the sound shield, "You're acting like this'll be any easier for me. If it's one thing about myself and the gods, it's that they'll be sure I always learn the hard way."
+Dain laughs, and deactivates the sound shield, "If it's one thing about myself and the Gods, it's that they'll be sure I always learn the hard way."
 
 "Then I hope," she sneers, "for our sake, you learn before Poromiel pays for it while you're begging me for their forgiveness."
 
@@ -598,7 +600,7 @@ Dain despises people with bad breath.
 
 Sometimes he finds himself wishing he could build a to-scale toothbrush for each and every dragon, and a potion he could instruct cadets to rinse with that would do away with odor of their last meal or the marination of sleep against their gums and teeth. Cleanliness is what Amari demands of her followers, and so Dain complies. Sloane leaning towards his face to ask if he'd brushed his teeth peeves him slightly, and he pulls away, worried his mouth might carry a stench from his nap.
 
-"I had been sleeping, so I did, before I came to see you." he admits carelessly while retrieving the Itinerarium and her research from his trouser pocket, "I appreciate your notes too, by the way."
+"I had been sleeping, so I did, before I came to see you." he admits carelessly while retrieving the Itinerarium and her research from his trouser pocket; he knows he's freshly minty, so hopefully that's why she's asking, "I appreciated your notes too, by the way."
 
 Her features smooth over, adopting a calm that makes her look like a porcelain art piece, "Not sure what they possibly could've helped you with, but you're welcome."
 
@@ -714,7 +716,7 @@ Violet was also actively meddling, much less as of late, so Dain had just... pic
 
 Her eyes are filled with weary disbelief, "I don't understand why you're helping me if you think I'm so pathetic."
 
-"I never once, and never will say you're pathetic because you're not." Reluctantly he tracks her blue eyes, waiting patiently until their worked on him again, "You can hate me, but don't hate the people I'm choosing for myself. They don't deserve that."
+"I never once, and never will say you're pathetic because you're not." Reluctantly he tracks her blue eyes, waiting patiently until their worked on him again, "You can hate me, even with me choosing to assist you."
 
 The sun has set on them now. Rising for another somewhere someplace else in the world and taking Dain's dirty guilt with it. He's put out all he can for her, and hopes she'll allow his words to penetrate. He'd noticed Sloane's walls don't just exist for him, and, as of late like himself, she'd been opening up slowly to people around her.
 
@@ -724,9 +726,7 @@ She just stares at him, still in that in-between space.
 
 "Want to keep going?" Dain offers as the exhaustion that his nap only quelled parts of seeks him out, and he runs his hands through his hair.
 
-"I do."
-
-The breath Sloane drinks down is so big her shoulders shift up to her ears, "I'm confused at what I'm supposed to do with you. It's... hard."
+"I do... But..." the breath Sloane drinks down is so big her shoulders shift up to her ears, "I'm confused at what I'm supposed to do with you. It's... hard."
 
 The corners of his mouth rise, and the same confession he'd made to Imogen spills out his lips to join Sloane's "Emotions are hard." then, rubs the back of his neck, "Just use me. It's what I'm here for."
 
@@ -768,7 +768,7 @@ Sloane let's out a little breathless laugh that makes her lashes grow closer, "Y
 
 She rubs her cheek into her thigh and Dain almost asks her to stop for his sake.
 
-"Bodhi is the sweetest boy I've ever met, and he used to give me grief about you al the fucking time. I think he probably liked you, for whatever reason." She looks at the wall behind Dain, "Maybe he would've told you."
+"Bodhi is the sweetest boy I've ever met. I think he probably liked you, for whatever reason." She looks at the wall behind Dain, "Maybe he would've told you."
 
 Dain brightens up, eyes going round and a small smile presenting itself against his will.
 
@@ -794,7 +794,7 @@ Sloane's brown brow lifts, and sardonically replies, "Maybe because you're our w
 
 When she doesn't respond, just looks at him, he adds:
 
-"Listen deaf, see blind."
+"Listen deaf, see blind. Anyway, I'm more than sure the chain of command is aware."
 
 "Navarre's best boy turning a blind eye to Tyrrs? Since when?"
 
@@ -802,25 +802,25 @@ Since he'd discovered his father was willing to make increasingly stupid decisio
 
 Since he'd slid that dagger across Varrish's throat and felt *giddy* about it. Since he'd split his quadrant. Since Cath further educated him about wyvern and venin while he was detained in Riorson House.
 
-"I'll never forgive myself for how deeply ingrained I'd been in Navarre's lies. I'm so relieved I might not have to go back to Bagiath too." Dain mumbles, "For *you,* and Imogen too."
+"I'll never forgive myself for how deeply ingrained I'd been in Navarre's lies." Dain mumbles.
 
-Sloane closes her eyes, and Dain watches the mountain breeze card through each of her wisping lashes, "You don't have to posture for me, Aetos.
+Sloane closes her eyes, and Dain watches the mountain breeze card through each of her golden hairs, and wispy lashes, "You don't have to posture for me, Aetos."
 
-Dain shakes his head, "I'm not. I'll serve you until you cast me aside. I'll die protecting and training you if I have to."
+Dain shakes his head, "I'm not. I'll die protecting and training you if I have to."
 
 "I didn't ask for that." She chastises him without even looking at him.
 
-"Well," he responds, "You won't ever have to."
+"Well," he suggests calmly, "You won't ever have to."
 
-When she pulls her head away from her knees, Sloane eyes find the ceiling above them. It's carved out of the cliff side the terrace opens up,
+When she pulls her head away from her knees, Sloane eyes find the ceiling above them. It's carved out of the cliff side the terrace opens up to,
 
 "There is no God of Forgiveness." Sloane informs him.
 
-Dain's shoulders drop, "But if there were I'd pray to them everyday. As often as I do to Loial. Probably more."
+Dain's shoulders drop, "If there were I'd pray to them everyday. As often as I do to Loial. Probably more."
 
 Her eyes are glassy again when they hold each other's concerned gazes. He feels his soul jerk away from his body as if begging to meet hers,
 
-"Anyway," he soldiers on, caught in the light that flickers off of her irises from the magelights. He swears he's looking at sapphires that are imbued with a live flame, trapped behind the glass of a jewelers display case; he'll never be able to afford Sloane. She'll always be something strong, and beautiful, and off-limits to him,
+"Right," he soldiers on, caught in the light that flickers off of her irises from the magelights. He swears he's looking at sapphires that are imbued with a live flame, trapped behind the glass of a jewelers display case; he'll never be able to afford Sloane. She'll always be something strong, and beautiful, and off-limits to him,
 
 "The natural state of your signet is a closed valve by default, if you want to refer to it as a faucet. You can touch people without taking anything, and that speaks to it being a closed valve in it's normal conditions. If you were to draw from a person, you'd need to touch their skin, and even then you still have to wield. When you transfer, it's the same difference. These are some of the foundational principles of your signet, and we'll be able to add more as you master it."
 
@@ -838,13 +838,13 @@ Dain's head jerks back and his indignant feelings leak into his facial expressio
 
 Sloane groans, "You're a horrible liar."
 
-"You're nosey." Dain snaps.
+"You're nosey." Dain sharply accuses, eyes cutting at her.
 
-"No one ever tells me anything, it's a naturally occurring result of being secluded." she claims with an eye roll.
+"No one ever tells me anything, it's a naturally occurring result of being secluded." she then claims with an eye roll.
 
 He understands that position, "I can sympathize."
 
-Sloane snorts and shakes her head, "Please don't."
+Sloane snorts and dips her chin, "Please don't."
 
 Dain rolls his eyes this time.
 
@@ -870,7 +870,7 @@ Her eyes narrow, "You told us you don't use your signet."
 
 Eleni's memory of her grey-haired aunt passing along the beat up canteen she'd then re-gifted to him reanimates in his mind, right alongside the one Kaia shared with him. The one of her and Darius's conversation about Dain in how Dain reminds them of Darius's sick uncle, of Kaia's dead father. He discovers the two healers were raised together in that same memory, that their relationship runs deeper than any of Dain's have ever. Probably could ever.
 
-"I *have* been using it."
+"I *have* been using it, as of late."
 
 *"Yes."* Cath hisses, lighting the bond up with pride, *"A job well done, Hatchling."*
 
@@ -896,7 +896,7 @@ Dain grins, stupidly.
 
 He wasn't a dog but if she asked him to bark he would, probably. And she was more than welcome to pet him.
 
-He slaps his hands over his face and Sloane grimaces at him.
+Sloane grimaces at him.
 
 *"How dignifying for me to be the first of my kind to bond a canine."* Cath snarls. His mood has violently swung left.
 
@@ -908,17 +908,11 @@ Dain shields.
 
 He drags his palms down his face and clears his throat, "I think she's just a touchy person."
 
-"Oh," Sloane deadpans, eyes rolling so hard she blinks a few times afterwards, "well I won't tell anyone about your second puberty, don't worry."
-
-"My what?"
-
-She mimics his voice cracking, "Your second puberty?" 
-
-"You think I need a second one?" He volleys, eyes narrowing.
-
-Her pinch-able face goes pink and she snaps at him, "You need——" Sloane whips around, standing up so quick from where she'd been lying across the bench that it shakes the table, "——shouldn't *you* be drooling over his dragon somewhere?"
+"Oh," Sloane deadpans, eyes rolling so hard this time she blinks a few times afterwards. Her pinch-able face goes pink and sSloane whips around, standing up so quickly from where she'd been lying across the bench that it shakes the table, "——shouldn't *you* be drooling over his dragon somewhere?"
 
 She points at her Daggertail, still perched on her stone seat in the cliff side behind them and when Sloane turns back to face him, she's so increasingly pink the tips of her ears look like they're glowing.
+
+Why would Thoirt be drooling over Cath? What an ugly thing to say to her dragon.
 
 "Anyway, you have a confidential signet that activates via touch," she gives her back to Thoirt and takes slow steps backwards until her waist hits the railing keeping them apart, "So I would suggest not letting people touch you so easily."
 
@@ -930,28 +924,171 @@ Her face is still bright pink when his eyes slide down her body and then to thei
 
 "——because Violet said so, I heard you." Dain murmurs, "I got that thanks."
 
-"No." She folds her hands over her nose and closes her eyes, "No I received my letter for week two days ago. And I..."
+"No." She folds her hands over her nose and closes her eyes, "No, I should care about the person who's choosing to help me regardless of additional stress I'm putting on him. The way your healer treated me in your room was warranted. I'm not some heartless fuck that abuses people and her position with them. I might fucking *hate* you, but I'm not a cruel bitch—I don't want to *hurt* you."
 
-"No." her arms fold over her chest and their eyes meet, forcefully joined by some liminal force that makes both of them weak, 
+"No," Dain echoes, mirroring her tone, "You do want me to hurt. You want me friendless, alone, and floundering. You want someone to hurt me the same way I hurt you, and you *should.* Those feelings are okay."
+
+Her arms fold over her chest and their eyes meet, forcefully joined by some liminal force that makes him weak.
 
 "Should I take that?" she mutters, turning back and pointing at the notebook she left with him.
+
+He chooses to take her avoidance as a way out himself.
 
 "I wrote everything we discussed today in here for you, and I have the same notes for my observation of you, so yes. And I'd like you to build off of what we've established on our off days." He begins putting away his Itinerarium while standing up, and Sloane runs her hands through her hair,
 
 "Great, homework. Thank you, this is *exactly* what I wanted." she groans with a voice laced in sarcasm.
 
-Dain holds the terrace door open until she stubbornly strides through it and watches her fuss down the the fifth floor hallway,
+"You know you need it."
+
+Sloane speaks without looking at him, "Doesn't mean I want it."
+
+Dain holds the terrace door open until she stubbornly strides through it, eyes ripping him apart as she passes him by and he watches her fuss down the the fifth floor hallway,
 
 "Good night, Mairi." he calls, hopefully.
 
 Sloane stops, swivels at the hips to look at him and flicks him off, "Sweet dreams, Professor Aetos."
 
-He's sure, more sure than he is confused, tired, and scared of all the things happening around him, that Sloane hadn't poked fun at him in a way that was meant to incite the perversion it pulls from the quietest parts of his thoughts. Yet, he imagines it. He imagines in another life that he's graduated, returned to Basgiath or Aretia, wherever she'd be taught and tight and willing against his desk. Asking for him, in that sweet and singing call that cuts through to the base of his spine and waves the cindering flames of his desires.
-
-He stands there after the terrace with them, clammy and swallowing watching that golden hair disappear to the floors below. Dain scratches at his palms with his fingers and gnaws at his bottom lip.
+He stands there after the terrace, clammy and swallowing watching strands of hair stolen from the sun disappear to the floors below. Dain scratches at his palms with his fingers and gnaws at his bottom lip.
 
 *"Professor Aetos."*
 
-He takes his time, walking to his room. It's the very last barrack at the end of his floor's hall on the western wing, chocked full of other cadets who's eyes he avoids earnestly. Once he's safe behind the wooden door of his room he's out of his uniform and back in his sleeping set he drops to his knees just before his bed and crushes his face against the matress. He allows his hands to glide over the planes of skin above his navel before dragging them *lower,* breaching the boundary his pants create from his lower body.
+He takes his time walking to his room. It's the very last barrack at the end of his floor's hall on the western wing, chocked full of other cadets who's eyes he avoids earnestly. Once he's safe behind the door of his room he's out of his uniform and back in his sleeping set. He drops to his knees just before his bed and presses his face against the mattress. His hands glide over the planes of skin above his navel before dragging *lower,* breaching the boundary his pants create from his lower body.
 
-This time, Dain isn't on his knees to beg Loial for love.
+He's sure, more sure than he is confused, tired, and scared of all the things happening around him, that Sloane hadn't poked fun at him in a way that was meant to incite the perversion it pulls from the quietest parts of his thoughts. 
+
+He imagines in another life that he's graduated, returned to Basgiath or Aretia, wherever she'd be taught and tight and willing against his desk. Asking for him, in that sweet and singing call that cuts through to the base of his spine and waves the cindering flames of his desires.
+
+This time, Dain isn't on his knees to pray to Loial for love.
+
+---
+
+A few hours later Dain slowly makes his way to Violet in his sparring gear.
+
+They're clean, and all he has until his uniforms are finished with the launderers later tonight. He takes no daggers, but he does tuck the Itinerarium and his ink pen into his hand before dropping his forehead against his door and praying. Loial, he hopes, will receive them and reinforce his heart what needs to support Violet, hopefully for one final time before he's stationed somewhere far, far away. 
+
+Luceras maybe, he can freeze his emotions solid, one day at a time until he's as unforgiving and spiteful as his Dad.
+
+*"I will be above."* Cath announces as soon as Dain pulls his barracks door open.
+
+"For what?" Dain mutters aloud, then ever sarcastically, *"You gonna fly through the mountain and take me away if you don't like what she says?"*
+
+Cath is entirely unperturbed, *"A quarter of this castle remains exposed, and it happens to be the entryway. I will simply let myself inside through it's front gates and trample the rest if I need to. Test me today, Hatchling."*
+
+Dain pulls in a harsh breath and pushes it out forcefully; Cath's aggression towards Violet was really something else. He's still glad Cath doesn't openly admonish her the way Tairn does to himself.
+
+*"That was a lot of threat for one very breakable human."* Dain gripes.
+
+*"Yes, one that frequently breaks you."*
+
+Well, Cath's got him there.
+
+*"Usually."*
+
+*"Ostentatious."* Dain pokes, cautiously.
+
+Cath pokes back, but it's still kind of aggressive, *"Fool."*
+
+Dain bounds down the double staircase in a dissociative state. He doesn't want to do this. He might even be making himself look like a fool. Who's to say Riorson isn't there as soon as he knocks on her door.
+
+"She's expecting you, Aetos." the guard at the left entrance informs him, then he steps to the side so Dain can pass. Dain's face goes stiff; why in Hedeon would she be expecting him?
+
+*"Because I told Andarna you were going to her."* Cath grates out so dryly Dain considers shielding out or pure irritation.
+
+*"...and where is Andarna?"*
+
+*"At my den."*
+
+Weird.
+
+Cath sounds absolutely deprived of sanity, *"Andarna seems to think she can do as she pleases."*
+
+Dain cocks a brow before wrapping the back of his knuckles against Violet's door, *"Seems like she can to me."* he instigates.
+
+Cath shields, after flooding the bond with calm and reassurance to stifle the irritation Dain's statement exploits.
+
+Violet opens the door seconds later.
+
+Her hair is out and mostly damp, and he's sure the sleeping set she's in belongs to Riorson what with the way she's got very edge of it rolled about twenty times and it's still too damned big. It makes her look vulnerable and pitiful. He can't tell if she woke up and threw something on to answer the door, or if she's just now bathing and getting into bed.
+
+"Hey Dain!" she smiles, "Cath just told us you were on the way."
+
+"He's overinvested." Dain comments when she sticks her hand out, "Do you——"
+
+"——Wards."
+
+He scrunches his face, "Oh, yeah."
+
+Of course her room is *warded*; people at every corner of the Continent are probably dying at a chance to kill her. He takes the hand Violet feebly offers him and walks inside the room holding it.
+
+Dain would kill for a one like this as he walks further into it once Violet's got him entirely across the wards. There's a bed that could fit five of him comfortably, an overstuffed armchair, huge windows, an actual desk—also unfairly oversized—and wall-to-wall bookshelves that make him giddy. Beyond what's in this room he spies a private bathing chamber with a tub and fancy piping.
+
+"Wow," Dain breathes out, stopping just short of the carpet that eats up most of the stone floor, "this is nice."
+
+Violet nods, climbing into the bed, literally, "Yeah. It's Xaden's room, so it's probably nice than it should be."
+
+"Mmm," Dain thinks, looking around and ultimately deciding to drop into another chair, which is also slightly cushioned, at Riorson's desk, "Can I sit there?"
+
+"Wherever is fine." she responds neutrally.
+
+He takes her in before speaking.
+
+Hollowed cheeks, pointed shoulders and a sinking clavicle, boney fingers, hollowed eyes, all things that point to obvious stress.
+
+"Have you eaten at all today?"
+
+Violet looks surprised at that, "I had dinner, just now."
+
+He shields more, feels for Cath's ramparts but only finds softer barricades that he could easily press through, but he doesn't. He shields again, and shields some more. Once he feels that his mental defenses are adequate enough, Dain breaks the silence.
+
+"Where is he?"
+
+The questions departs from his mouth exactly the way he wants it to, gentle and firm, but not rushed or demanding. It's just a simple question. Where is Xaden Riorson.
+
+Violet smiles, "I don't know." The words launch out of her mouth the complete opposite that Dain's left his. There's zero control or compliance with what she had intended if it wasn't this, "I don't know and I'm not supposed to go looking for him."
+
+The last bit of Violet's answer is dragged out of her forcefully, and she clutches the front of the sleeping shirt.
+
+"There's a lot you need to know before I just... tell you that he's missing, Dain."
+
+He flinches, he can't stop it, "So Riorson is missing?"
+
+"Yes."
+
+"Fuck." He rubs his eyes, *"Fuck."*
+
+Uncertainty threads along every notch of his spine, twisting painfully against his scapula and his nervous system alike. The fact that there is prerequisite information to be paired alongside his disappearance is unsettling enough that Cath presses nosily against his shields. His Red's growing presence solidifies his resolve and intentions in being here with Violet, sitting in Riorson's chair, watching his woman, lying frail and just as uneasy in his bed.
+
+This isn't Dain's Violet.
+
+This is a childhood friend turned stray associate due to his inability to trust and grow alongside her during the toughest and strangest moments of their lives. Dain blinks harshly and reminds himself that he's faced with that same opportunity again, to support Violet, to trust her and who she is and has always been. Unwavering and strong, courageous Violet who was every bit of an enigma that her father had been to Dain and all that he admired in her mother.
+
+Moreover, this is one of the greatest riders of his generation. She deserves a chance to explain herself for all those times he never let her.
+
+"You're about to hurt me, aren't you?" he predicts, though the tone his voice takes on his that of a plea, one that's breaking and brittle and scared.
+
+Violet only presses her lips together and sniffs, "I am."
+
+"Lay it on thick then."
+
+"I'm sorry, in advance." she sniffles, rubbing her eyes, but not because she's about to cry, "And I know how you're going to react——"
+
+"——You don't, I'll be fine."
+
+"No, I don't think so." She scoffs, "Trsut me. There's a reason Andarna went to Cath."
+
+Dain draws back as though she'd struck him but Violet doesn't give him time to puzzle together what she's implying.
+
+"Xaden had been slowly turning venin since after the battle at Basgiath."
+
+?????????????
+
+He turns his face up to the ceiling, wincing when Cath begins to *beat* at Dain's ramparts,
+
+"I'm sorry, come again?"'
+
+"Xaden Riorson." Violet shudders, "He's venin."
+
+Dain leans over the chair and vomits.
+
+---
+
