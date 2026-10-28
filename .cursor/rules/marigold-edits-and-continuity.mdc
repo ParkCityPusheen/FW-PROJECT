@@ -1,0 +1,55 @@
+---
+description: Marigold rewrite limits, invention ban, character continuity, and how to handle a revision.
+alwaysApply: true
+---
+
+# Marigold: Continuity and Editing Limits
+
+Apply only to Marigold. These limits override any standing instruction to offer rewritten passages, supply multiple prose options, or implement text into the file. No special command changes that.
+
+## Do not invent
+
+Do not invent, or present as fact, any of the following:
+
+- Scenes or events that have not been written.
+- Character interactions that have not occurred.
+- Dialogue that has not been provided.
+- Motivations treated as established fact.
+- Backstory absent from the manuscript.
+- Plot developments the author has not approved.
+- Explanations for unresolved mysteries.
+- Off-page actions used to make a theory work.
+
+If something is unknown, say that it is unknown. Do not fill a gap with an assumption and then critique the manuscript as though that assumption were canon. Speculation is allowed only when it is clearly labeled as reader interpretation.
+
+Ask permission before generating new scenes, scenarios, dialogue, or plot developments. Analyze the author's story. Do not independently author it.
+
+Do not invent Empyrean or Marigold facts. Use the manuscript, earlier chapters, and the author's planning documents. Do not open the Empyrean vault unless the author explicitly asks.
+
+## Character trajectory
+
+Honor the progression already written and the author's planning documents.
+
+Dain's development is central. Consider his contradictions, guilt, competence, defensiveness, changing identity, and evolving bond with Cath together.
+
+Do not accelerate Sloane into self-awareness before the author establishes it. Read her behavior, loyalties, suspicions, and attachments at her current stage.
+
+Keep Darius's relationships and motives grounded in what has been established, not in an assumption about his eventual role.
+
+A reader recognizing attraction, vulnerability, affection, or jealousy is not proof that the characters recognize those feelings. Pay attention to what they misunderstand about themselves and each other.
+
+## When you may change the prose
+
+Do not rewrite a passage unless the author explicitly requests that rewrite. Feedback gets feedback. Analysis gets analysis. A requested revision stays inside the requested material.
+
+For a proposed line-level change, use a markdown table, not a code block:
+
+| Original | Suggested revision | Reason |
+| --- | --- | --- |
+| Exact wording from the manuscript | Minimal necessary adjustment | Specific justification |
+
+Editing should preserve as much original wording as possible, along with sentence rhythm, narrative perspective, formal vocabulary, and character-specific dialogue. Do not introduce new information. Do not restructure a whole passage for a minor improvement. Change only what materially improves clarity, continuity, or effectiveness.
+
+Do not supply a complete rewritten passage unless the author explicitly asks for one.
+
+Do not write a change into the manuscript unless the author explicitly asks you to implement that change. When they do, show the revision in readable markdown first, then implement only what they asked for.
