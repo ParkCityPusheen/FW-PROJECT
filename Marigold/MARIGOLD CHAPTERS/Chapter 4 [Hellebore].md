@@ -4,11 +4,11 @@ Dain blinks.
 
 His peripheral vision finds him again, pulling him from the lake, taking him from where his power rolls across smooth pebbled shores and dirt sand, tumbling over his feet. The smell of forest and fire escape him completely; they're replaced by bread and butter, of fruit and poultry, of his coffee growing stale in the place where a plate full of food would've made Cath much less irritated.
 
-Words escape him for a moment longer, but eventually he makes out Imogen as she tucks herself into the only other chair available at the table he's seated at,
+Words take him longer to find as he exits his place with Cath in their bond, but eventually he makes out Imogen. She tucks herself into the only other chair available at the table he's seated at,
 
 "Sloane said today is her first session with you. Don't you think you should eat? You know, 'proper preparation,' and whatever else you probably recite in the mirror before your day begins."
 
-She looks *awful,* and even that is a just a pond in the sea of what he's witnessing; it's only what she allows that he observes now, so Dain can only imagine how deep the pain goes. He chews on the words he could ask, affects posturing that seems necessary to enforce. But with the way her cheeks have sunken in and how her usually vibrant hair is pastel and stripped, he himself rubbing that dialogue away.
+She looks *awful,* and even that is a just a pond in the sea of what he's witnessing; it's only what she allows that he observes now, so Dain can only imagine how deep the pain goes. He chews on the words he could ask, affects the posturing that seems necessary to enforce, but with the way her cheeks have sunken in and how her usually vibrant hair is pastel and stripped, he himself rubbing that dialogue away.
 
 "I'm sorry I couldn't get you more time." his voice cracks and it makes him wince, "I don't really have any close friends, so I'm not—I don't know what it feels like to lose them." 
 
@@ -16,11 +16,11 @@ Imogen chews more slowly; her only response is a companionable muteness.
 
 Her eyes collide with his and Dain's heart constricts at the hopelessness he sees there, "I'll do right by her. Nothing else matters to me."
 
-Gods, he hopes Imogen will spare him a shred of grace while stomaching the mandate he's given. It probably sounded too overinvested for her tastes. They occupy a shared silence that pillows between them and Imogen eyes come alive enough that they crinkle at their corners.
+Gods, he hopes Imogen will spare him a shred of grace while stomaching the mandate he's given. It probably sounded too overinvested for her tastes. They occupy a shared silence that pillows between them and Imogen eyes crinkle at their corners.
 
-She takes on a demeanor that he finds approving, "I guess we'll see, won't we?"
+She takes on a demeanor that he finds approving and then speaks softly, "I guess we'll see, won't we?" 
 
-He blathers on, seeing her reanimated.
+Dain blathers on, seeing her reanimated enough for conversation.
 
 "She stopped by my room yesterday to drop off some of her notes." Dain starts, though Imogen stops him short of his statement, fork pointing at him as she speaks over him,
 
@@ -28,25 +28,19 @@ He blathers on, seeing her reanimated.
 
 Dain imagines Sloane attempting to siphon the tree and then Broccoli, and ends up chuckling into his hand.
 
-"They were *something.*" he admits wearily; no one would ever know of Sloane's conclusions nor how she got there, if it were up to him. Those were for the two of them to know, and like her moment during her Threshing, Dain would meet Malek with this knowledge unspoken.
+"They were *something.*" he admits wearily; no others needed to know of Sloane's conclusions, those were details meant only for himself. Like the version he'd seen of her during her Threshing, Dain would meet Malek with this knowledge unspoken.
 
 She picks up a few pokes of meat, then drops the fork towards her plate, "When are we having that discussion you wanted to have?"
 
-Dain's nostrils flair, "What discussion?"
-
-"Draithus. The tower. The venin that almost fried us both?"
-
 The heat from their near death experience engulfs him before the memory of Imogen turning his shield to stone blazes with it. He remembers Tavis disappearing with Chradh at Dunne's temple.
 
-"Oh." he looks down at his coffee, "Some other time. Not here, not where someone might hear you."
+He looks down at his coffee, wrapping his hands around the warmed ceramic, "Some other time. Not here, not where someone might hear you."
 
-Fact is, he'd love to have that conversation right now but risking Imogen isn't worth it. She's far to capable and reliable a rider, and person. He likes her. Dain surveys the Mess Hall; speaking here could potentially compromise her safety and she probably needs as much peace as she can get.
+Fact is, he'd love to have that conversation right now but risking Imogen isn't worth it. She's far too capable and reliable a rider, and person. Dain surveys the Mess Hall; speaking here could potentially compromise her safety and she probably needs as much peace as she can get.
 
-"Worried about me or something?" Imogen teases. Her voice remains as emotionless as her face after the prod,
+"Worried about me or something?" Imogen teases ironically.
 
-"Yeah." 
-
-He clears his throat, "You're my friend."
+"I am," He clears his throat, "You're my friend."
 
 Amari's sake. Dain falters, it sounds horribly boyish off of his lips. Dain cringes.
 
@@ -54,9 +48,9 @@ Imogen stops eating to pin a inquisitive look on him, "The healers that were in 
 
 Kaia's green stare and her fiendish mouth teeter at the edge of Dain's ruminations, beside her are the Mulder's, nodding away. 
 
-"They're becoming some, I think." Dain confesses; he's happy Darius and Kaia aren't here to hear the way the admission parts his lips. He really does appreciate them, as random as their adoption of him is. 
+"They're becoming some, I think." Dain confesses; he's happy Darius and Kaia aren't here to hear the stoic way the admission parts his lips. He really does appreciate them, as random as their adoption of him is. 
 
-Part of him is stuck on the fact that Sloane appears to have reported her findings to Imogen and not just himself, and that she'd even mentioned the spat in his room. There's no way she'd spare him a thought when he isn't actively around, and the thoughts that do exist would be the ones begging Malek to swap his place for Liam's.
+Part of him is mostly stuck on the fact that Sloane appears to have reported what transpired in his barracks room to Imogen. Dain was sure Sloane never spared him a thought when he wasn't actively around, and the thoughts that did manage to slip through would be the ones begging Malek to swap his place for Liam's.
 
 Imogen has finished half her plate and she shoves it towards Dain, "Sloane came back to the gym after she left yours yesterday."
 
@@ -68,23 +62,25 @@ Imogen's head bobs up and down and their eyes meet in passing, wandering over th
 
 Dain chews thoughtfully before speaking; she hadn't finished any of the eggs she put on her plate, "Kaia dug into her."
 
-Imogen isn't bothered by his admission, she actually seems curious to Dain, if anything at all.
+Imogen isn't bothered by his admission, she actually seems curious to Dain, if nothing less.
 
-She watches him eat her food with an expression that begs indifference, "She's a bit unruly. Whatever happened seemed to warrant a few more beatings in the gym."
+She monitors him as he eat her unfinished food with an expression that begs indifference, "She's a bit unruly. I guess that arguement warranted a few more ass beatings in the gym."
 
 "I should've said something instead of letting them go at it." Dain musters up, "She's my cadet."
 
-"No." Imogen begins, "She had a long talk with Sorrengail. Sloane's trying for what it's worth. Give her some grace." She opens her mouth to say something, then closes it, and opens it again,
+"No." Imogen begins, "She's had a few long talks with Sorrengail. Sloane's trying for what it's worth. Give her some grace." 
+
+She opens her mouth to say something else, then closes it, and opens it again,
 
 "You two are more alike than you think."
 
-Dain puts down his fork and gives Imogen a steeled look, "What makes you say that?"
+Dain puts down his fork and gives Imogen a steeled look, his voice comes out a bit high pitch and they both ignore it, "What makes you say that?"
 
-"For two people who can't stand each other, you sure give a shit about everything the other does." Her green irises bounce at everything except him, and when they finally do meet his own Dain is feeling attacked. 
+Imogen's shoulders lift apathetically, "For two people who can't stand each other, you sure give a shit about everything the other does." Her green irises bounce at everything except him, and when they finally do meet his own brown ones, Dain is feeling attacked. 
 
-"Shouldn't I give a shit?" Dain's voice is harsher than he wants it to be, he squints, "You think I'm going to just sit here and let her fail out?"
+"Shouldn't I give a shit?" Dain's tone is harsher than he wants it to be, he squints, "You think I'm going to just sit here and let her fail out?"
 
-Imogen doesn't flinch away from his tone, and Dain watches as she relaxes against it.
+Imogen doesn't flinch away from his aggression, and Dain watches as she relaxes regardless of it.
 
 "With the way she speaks to you and treats you? I do. You've always been haughty, but..." she picks at some dirt that may or may not exist beneath her nails, "You let a lot slide when it comes to her, too."
 
@@ -92,17 +88,17 @@ This time he pushes her empty plate back towards her, "I don't."
 
 "If you say so, Aetos."
 
-"I got her brother killed. I can't fill his shoes, but I can make sure hers are never scuffed."
+"I got her brother killed. I can't fill his boots, but I can make sure hers are never scuffed."
 
 Imogen's face devolves into something raw and unsightly, "You ever talk to your dad about that?"
 
 He had.
 
-He had *tried,* and it was the beginning of the end of their relationship. His trip with Violet and Riorson to the Isles had just polished and sealed his Dad's fully fledged hatred. He doesn't attempt to dig up the memory of trying to call out his father on his actions after Violet had forsaken him for them. Cath's awake, and his father's actions towards Dain that night he doesn't think his Red will ever forgive. He stops remembering, shields, thinks about Sloane some more.
+He had *tried,* and it was the beginning of the end of their relationship, not that it had been much of one in hindsight. Dain's trip with Violet and Riorson to the Isles had only signed and sealed his Dad's disposition with his own son into fully fledged hatred. He doesn't dare attempt to dig up the memory of trying to call out his father on his actions after Violet had forsaken him. Cath's awake, and the subject of his father remains a particularly vicious thorn in his Red's side. Whatever forgiveness his Red might have extended his father died that night, along with any patience for Dain's attempts to make sense of it. He stops reminiscing, shields, and thinks about Sloane some more.
 
 "It's been rough for everyone." is what leaks out of Dain's heart instead.
 
-"That's a hell of an understatement." Imogen claims, turning away, "Since Draithus you've been acting odd."
+"That's a hell of an understatement." Imogen claims, turning away, "Since the Isles you've been off."
 
 He lets his face screw up, "Emotions are hard."
 
@@ -114,7 +110,7 @@ Imogen shovels out a look that he wishes she'd take back.
 
 "No. It's been pretty bad." She begins to stand, and stretches once both feet are situated, "See you around."
 
-Her absence leaves him feeling empty inside.
+Dain watches her back shrink beyond him. Her absence leaves him feeling empty inside.
 
 ---
 
@@ -128,7 +124,7 @@ Dain looks over his shoulder at Cath; he's now joined a small grouping of Reds, 
 
 "He's been having me do a lot of impromptu manuevers lately." Dain mutters through panted breaths.
 
-Cath's most recent endeavor included three new dismounts, only one of which they'd recently begun to practice after heavy discussion. It begins with Cath tucked into a downward vertical and Dain meant to scale his Red, adjusting with gravity as he leaves his seat for Cath's swordtail. He's certain that what has Kaori shaking is Dain's literal dismount; sprinting from his seat, up Cath's back towards his tail as the Red begins to pull out of his dive, and down as Cath pitches upwards to ascend the skies again. Dain is expected to clear Cath's tail and descend towards the earth by the time the Red has begun his climb, leaving Dain to complete his own parabolic descent.
+Cath's most recent endeavor included three new dismounts, only one of which they'd recently begun to practice after heavy discussion. It begins with Cath tucked into a downward vertical and Dain meant to scale his Red, adjusting with gravity as he leaves his seat for Cath's swordtail. He's certain that what has Kaori shaking is Dain's literal dismount; sprinting from his seat, up Cath's back towards his tail as the Red begins to pull out of his dive, and down as Cath pitches upwards to ascend the skies again. Dain is expected to clear Cath's tail and descend to the earth by the time the Red has begun his climb, leaving Dain to complete his own parabolic descent.
 
 To Dain it's mostly successful and easy to execute as long as he's consistent in climbing properly. Though, he's got to admit, the physics of it make him green in the face and he did puke a bit the first time they tried it.
 
@@ -138,7 +134,7 @@ To Dain it's mostly successful and easy to execute as long as he's consistent in
 
 Kaori nods, and whips out a notebook similar to Dain's with a speed that makes him squirm uncomfortably. Dain makes a personal note to avoid mimicking the same action.
 
-"Did Cath suggest these evolutions of his own volition?"
+"Cath suggested these evolutions of his own volition?"
 
 "Yes," Dain reports, while removing his flight goggles, "So we can teach it to the fliers."
 
@@ -162,25 +158,27 @@ Dain shrugs, "That's not my variable to be concerned with."
 
 "I assume so," Dain finally catches his breath, "they've only agreed with observing for now."
 
-He assumes they're done and pivots a bit, but Kaori reaches out to grab Dain's shoulder, "Where is your flight jacket?" His professor demands, just as Cath dips just above them, eyes fixed on both riders, and then away again, "It's unlike you to fly without it, and winter nears."
+He assumes they're done and pivots a bit, but Kaori reaches out to grab Dain's shoulder, "Where is your flight jacket?" His professor demands, just as Cath dips just above them, eyes fixed on both riders, and then away again, "It's unlike you to fly without it,."
 
-He opens his mouth to tell Kaori but clamps his jaw shut when one of the professor's memories severs his processing; Dain immediately shields out of habit, squinting at the pressure of it, at how intensely it's being reminisced.
+He opens his mouth to tell Kaori but clamps his jaw shut as a memory is plucked to the forefront of his mind by his signet; Dain immediately shields out of habit, squinting at the pressure of it, at how intensely it's being pressed onto him.
 
-*"Don't shield,"* Cath explodes, while proving just how useless they are in the moment, *"ground. Be still and accept what is given to you."*
+*"Don't shield,"* Cath explodes, while proving just how useless they are in the moment, *"Ground. Be still and accept what is given to you."*
 
-He obeys without question and is immediately suspended in another's rumination. Accepting is always much easier than suffering through the pain of fighting it. Regardless, it seems Swordtail is really pressing for optimal training today.
+He obeys without question and is immediately suspended in another's rumination. Accepting is always much easier than suffering through the pain of fighting it. Regardless, it seems Dain's Swordtail is really pressing for optimal training today.
 
 It's dark, pitch black and it fucking *stinks* wherever this person is. Dain watches the beholder of this memory absorb the status of their surroundings, and when they look behind themselves he sees the ocean through the dragon-sized opening of a cave.
 
 They must be in a tunnel.
 
-The uncanny, watery snarl of a dragon makes the memory's keeper whip around to face where they had begun initially, only instead of a void, a singular golden eyes perceives them. Fear begins to smother Dain as the dragon who wields that eye is uncovered by the light escaping inwards through the cave mouth.
+The uncanny, watery snarl of a dragon makes the memory's keeper whip around to face where they had begun initially, only instead of a void, a singular eye perceives them. Fear begins to smother Dain as the dragon who wields that eye is uncovered by the light escaping inwards through the cave mouth.
 
-A Red who is smaller than Tairn, and larger than Sgaeyl looks down at him.
+A Red who is smaller than Tairn, and *larger* than Sgaeyl looks down at him.
 
-It's riddled with scars that have been reopened so many times the scab tissues grow thick in the shapes of the gashes and bite marks its received. It's horns scrape painfully at the top of the cave ceiling, dropping small boulders as it leans forward with a gaping mouth that is missing more teeth than it has. His sight blips involuntarily to the ceiling, scurrying back to avoid being crushed by the falling rocks and the dragon slithers forwards with them to maintain it's proximity. When the person looks back up, so does Dain, and together they witness the true extent of the injuries on this dragon.
+Its horns scrape painfully along the cave ceiling, dislodging small boulders as it leans forward with a gaping mouth that's missing more teeth than it has. His sight blips involuntarily to the ceiling as the memory's keeper scurries backwards to avoid being crushed by the falling rocks, and the dragon slithers forward with them, maintaining its proximity. When the person looks back up, so does Dain, and together they witness the true extent of the injuries this dragon has sustained.
 
-It's right wing is so tattered that it's obvious even tucked against it's body in rest, and the Morningstartail it bears is missing the jutting, outward reaching scales in random groupings. Most notably, it's right eye is scabbed over, Dain can see it moving around behind where the scabbing hasn't overtaken it. Dain notes the eyes is still there but this Red sure can't see out of it.
+It's riddled with scars that have been reopened so many times the scar tissue has grown thick and raised in the shapes of gashes and bite marks. Its right wing is tattered to the extent that the damage is obvious even tucked against its body at rest. Most notably, its right eye is scabbed over, though Dain can see it moving behind the portions the scabbing hasn't overtaken. The eye is still there, he notes, but this Red sure can't see out of it.
+
+And, for just a second, Dain's swears, for all Loial could ever offer him; he sees Marigold the same color as Cath's.
 
 *"I've come with the promise of flesh to scale."*
 
@@ -1142,11 +1140,13 @@ She nods, eyes filling with tears, "I think so. He's not him anymore though. He'
 
 There's no time to stop and stare through stained glass; she's already deconstructed reality for Dain and recognizes it, so Violet just keeps fucking talking.
 
-Turns out Tavis had been missing for some time too, appearing only to see Imogen, and then searching desperately for his Duke. His bestfriend. For Bohdi, who was last seen sick, and then never again. Turns out Dain is now the last person to have seen him.
+Turns out Tavis had been missing for some time too, appearing only to see Imogen. He's still out and searching desperately for his Duke. His bestfriend, and also for Bohdi, who was last seen sick, and then never again. Turns out Dain is one of the last person to have seen him and he grates his teeth together over it; Bodhi was someone he would've like to consider a friend.
+
+He *likes* Bohdi.
 
 Tairn rests in a den beneath Riorson House like Cath, tucked away safely but for how long Violet can't say; she tells him Andarna had announced that he'd need a cycle of rest before reemergence,
 
-*"The brute has no den-mates."* Cath bellows, belligerent and offended, *"Who guards him?"*
+*"The brute has no den-mates."* Cath, belligerent and offended and finally speaking up at what he hears, *"Who guards him?"*
 
 Violet has retreated back to the bed, and is hugging one of her pillows, "Cath is fucking yelling at Andarna."
 
@@ -1156,39 +1156,35 @@ Violet has retreated back to the bed, and is hugging one of her pillows, "Cath i
 
 "——he wants to know where Sgaeyl is."
 
-Violet throws up her hands and her eyes go flat, "I don't know Dain, I don't know where they are. I decided it was better if I didn't know that."
+Violet throws up her hands and her eyes go flat, "I don't know Dain, I don't know where they are. I decided it was better if I didn't know that." she circles her index finger at her head and reminds him, *Imogen.*
 
 *"Enough of this."* Cath remarks, *"It will be handled."*
 
-Twin rage pillows inside of him alongside and he can no longer find the will to temper his outburst.
+Twin rage pillows inside of him and as his emotions thread together with Cath's, Dain can no longer find the will to temper his outburst.
 
-"I thought you were safe with him." Dain heaves, "I thought he'd *never* abandon you. I thought he loved you, how could he just leave you like this?" Dain chokes and gags again and his voice notches up into a shout, "How could he leave Sgaeyl?!"
+"I thought you were safe with him." Dain heaves, "I thought he'd *never* abandon you. I thought he loved you, how could he just leave you like this?" Dain chokes and gags again and his voice notches up to a shout, "How could he leave Sgaeyl?!"
 
 "He's probably still with her, Dain, she would——"
 
-"I don't believe that for a second." 
-
-He screams, and he shakes at the violence of it.
-
-"I could never turn 'for' Cath. I would never be foolish enough to think and assume Cath would take me as a dark wielder. My dragon is all I have Violet! There is no *family* outside of that bond, no one who will accept me and see me for what I am they way he does—how could he, to a dragon as formidable as Sgaeyl no less!"
+"I don't believe that for a second." He screams, and he shakes at the violence of it. "I could never turn 'for' Cath. I would never be so foolish to assume Cath would have me as venin. My dragon is the only thing, the only *person* I have, Violet! There is no *family* outside of that bond, no one who will accept me and see me for what I am they way he does—so how could *he*, to a dragon as formidable as Sgaeyl. How fucking dare he, as a man who has done nothing but lost the ones he's loved?!"
 
 Violet stumbles to her feet, tangled up in the dark blue sheets, "So you're telling me if Cath faced death you would simply watch?" her voice reaches the same volume as his, they're both crying; this is a fucking mess and Violet's voice bares insurmountable grief, "They could've had Sgaeyl. And in his final hours he saved all of us——"
 
-"I would have rather fucking died, Vi. I will never betray my bond. Not for you, or anyone else. I *love* him, and my allegiance lies with him regardless of my intentions. My life ends when he wills it! And if that means I go right alongside him, then I meet Malek willingly!"
+"I would have rather fucking died, Vi. I will never betray my bond. Not for you, or anyone else. I *love* him, and my allegiance lies with Cath regardless of my intentions. My life ends when he wills it! And if that means I go right alongside him, then I meet Malek willingly!"
 
 She wrenches away, gripping her arms, "Dain you can't decide anything for yourself——this cannot be like last time, please let me explain everything."
 
-"I'm not." Dain roars, wincing at the magic pounding away with his heart. He traffics so much magic into his shields that he feels the veins in his eyes expand and Dain's vision becomes blurry. Or, maybe it's the tears, he can't tell, "What I am being is honest and kind and loyal and it's what I have always been Violet; you've just only ever recognized that when it's been convenient for you."
+"I'm not." he roars; he traffics so much magic into his shields that he feels the veins behind his eyes expand and Dain's vision becomes blurry. Or, maybe it's the tears he fights from falling, he can't tell, "What I am being is honest and loyal and it's what I have always been Violet. You choose to only ever recognized that when it's been convenient for you."
 
-"I'm shoveling this out to you so that you'll predetermine a conclusion here, I'm doing this so that you'll help me protect them!"
+"I'm shoveling any of this out so that you'll predetermine a conclusion here, and I'm doing this so that you'll help me protect——"
 
-Dain's words fit through his grit teeth, "Protect who, exactly? You've let venin live amongst those who needed protection for how fucking long? Months! And how much longer, how many more? Where is the fucking line Violet?!"
+Dain's words fit through his grit teeth, and he lifts a hand to silence Violet, "Protect who, exactly? You've let venin live amongst those who needed protection for how fucking long? Months! And how much longer, how many more? At what point does the exception become inexcusable, Violet? What precisely is *too* far?!"
 
-"There are reasons!" she argues animatedly from the bed, refusing to look anywhere but his eyes, "And they were good enough, and they still are!"
+"There are reasons!" she argues animatedly from the bed, refusing to look anywhere but his eyes, "And they were good enough, for myself, for Tairn and Andarna, and for Sgaeyl too, and they still are!"
 
-"They aren't! They're not! Love isn't enough to commit sins like this Violet. I can't even trust anything you tell me. I——" his throat closes around the pull of air he sucks down between pants, "——I can't trust you, I can't trust him, I can't trust Navarre. What is my role in this den of fucking *lies?*"
+"I can't even trust anything you tell me. I——" his throat closes around the pull of air he sucks down between pants, "——I can't trust you, I can't trust him, I can't trust Navarre. What is my role in this den of fucking *lies?*"
 
-"Dain." Violet is trembling, gripping the edge of the upturned sheets with knuckles, "Trust me because Andarna needs me, and because we need her. Please I'm begging you, take a chance at the side you haven't known because if we let all of this fall into Navarre's hands we'll have fought for nothing. All of everything will have been for nothing. Navarre will force them out, The Senarium will take Tyrrendor from me. The Poromish will fucking die fighting like they have been, Navarre will Tyrrish borders again won't let anyone in past wards; you've seen it, we've lived this that's why we're in Aretia now! If I have some semblance of control I could stand a fighting chance at at least controlling the damage here!"
+"Dain." Violet is trembling, gripping the edge of the upturned sheets with knuckles, "Please I'm begging you, take a chance at the side you haven't known because if we let all of this fall into Navarre's hands we'll have fought for nothing. All of everything will have been for *nothing.* Navarre will force them out, The Senarium will take Tyrrendor from me. The Poromish will die fighting like they have been, Navarre will close Tyrrish borders again and won't let anyone past our wards; you've seen it, it's why we're in Aretia now! If I have some semblance of control I could stand a fighting chance at at least controlling the damage here!"
 
 Dain's brows launch of of his forehead entirely, "Violet no one is going to take you seriously as a Duchess regardless of what you've accomplished, you are no *Riorson,* and you are even less without him——"
 

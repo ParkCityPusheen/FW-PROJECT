@@ -50,7 +50,7 @@ Dain pauses; the first-year's words take seconds to piece against each other, bu
 
 "I'm fine." Dain insists, unwilling to entertain the conversation and slipping back into his sheets. He pulls the flat sheet over his shoulders; there, done. Nothing to see.
 
-"You got burned because of me?" Sloane cries out, "You had just walked away—I hadn't noticed you got hurt."
+"You got burned because of me?" Sloane whispers out, "You had just walked away—I hadn't noticed you got hurt."
 
 "Mairi, *stop.*"
 
