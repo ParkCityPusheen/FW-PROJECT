@@ -22,21 +22,25 @@ Sloane fidgets with the tray, and looks away, but then her eyes are on him again
 
 "I have orders to bring you your meals."
 
-Dain wants to roll his eyes, "Whose orders?"
+Dain wants to roll his eyes, "On whose orders?"
 
 "Lieutenant Colonel Sorrengail's."
 
 "Did he happen to mention why?"
 
-Sloane shifts her weight along her hips, "I failed to get you the food you were meant to have after your mending."
+Sloane shifts her weight along her hips, "You didn't take the food from me."
 
 He presses the flat of his fingers against his beard and rubs, then steps aside; it's too early to argue. He doesn't have the energy to match her.
 
-"How long are the orders in effect for?" He mutters carefully as she unloads the food onto his table. She avoids answering until all of his meal and, *Loial's mercy,* a carafe of coffee, is neatly organized and off the tray.
+"I get that I was being combative." she huffs, passing by him when he pulls the door open completely and steps aside to let her in.
 
-"Until Cath stops requesting it." she says when she finally answers
+He catches her eyes as she goes, but there only emotions he doesn't understand her well enough to translate for himself. He's also fully and appropriately clothed, clad in the soft, dark colored fabrics he's always preferred to sleep in. Still, he looks towards his bare feet to make sure his pants are hugging his hips properly.
 
-This. Fucking. Dragon.
+"How long are the orders in effect for?" He mutters as she unloads the food onto his table. She avoids answering until all of his meal and, *Loial's mercy,* a carafe of coffee, is neatly organized and off the tray.
+
+"Until Cath stops requesting it." Sloane says when she finally answers
+
+This. *Fucking.* Dragon.
 
 Of course he can't answer to his name in their bond, but can still force a meal to appear. Impeccably parent-like and invasive, as usual.
 
@@ -58,7 +62,7 @@ Dain twists to face her, "It's not a big deal, it healed. It's fine."
 
 "But it's not; I don't understand how I never noticed——"
 
-"——you don't notice a lot of things." Dain reassures her, "Waste that concern on your assessment and not my skin."
+"——you don't notice a lot of things." Dain reassures her, "Waste that concern on your assessments and not my skin."
 
 She hadn't noticed he allowed Violet to tamper with her opponents during the days that were her designated matches, turning a blind eye because it had been necessary. He'd gone as far as to arrange benefits for cadets to purposefully lose to her in the most believable ways possible when he and Violet were gone away in the Isles. Sloane would always get Archives Duty on days Jessinia was also on duty. She was never assigned to patrol with cadets Dain considered reckless or loyalists, inexperienced, or particularly hostile toward her. Even now, and he hadn't done so in the last fortnight, her weapons and protective equipment received more frequent inspections than she'd noticed; Sloane chalked that up to him being an annoying bastard more than anything probably.
 
@@ -78,7 +82,15 @@ He doesn't answer, so Sloane speaks into the silence.
 
 She stands there, fidgeting and glancing around as he turns his back to her.
 
-He doesn't dare roll over to watch her go, but he counts the seconds it takes her to shut the door, and then the minutes it takes him to lull back into sleep.
+He doesn't dare roll over to watch her go, but he counts the seconds it takes her to shut the door, and then the minutes it takes him to lull back into sleep. His muscles feel heavy as stones and his eyelids somehow heavier as he sinks into black. Dain wonders if Cath will let him roam the realms of his mind and quickly finds out that, *no,* he will not be dreaming on his own tonight. They're all but snuffed out, barely allowed to conceptualize when Cath presses him into a realm of subconsciousness that coincides with his Red's own.
+
+They mix together in the bond. Eyes, ears, and mind; even the privacy of sleep is surrendered to unfamiliar voices and borrowed sights. Dain catches bits and pieces of Cath's conversations, glimpses of peaks and herds of furry cows, smells their char as his Swordtail enjoys a meal upon an undisclosed peak. He spies the scales of other Reds nearby his own, and attempts to get a better look at them but he can't control what he's seeing.
+
+Though, it doesn't take long for his perspective to flicker from mauled bovine to strawberry scales as Cath obliges his tugging quietly. He's out with Thoirt again, Thoirt and Sawyer's bond and... Aotrom and Andarna? His view cuts out as quickly as it'd phased in, and Dain is staring at the bloodied spot where Cath had caught and consumed three cows at once. He squirms in the bond, tucking himself deep into the reserves of their magic.
+
+Andarna and Aotrom are new, two dragons he'd maybe seen three or four times total each in these shared dreams. There's chatter, but none of it is in Cath's sharp voice. Dain stills.
+
+The others sound... distressed?
 
 ---
 

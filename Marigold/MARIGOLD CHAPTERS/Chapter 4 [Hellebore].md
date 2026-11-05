@@ -268,7 +268,7 @@ Dain puzzles and searches Catriona's face for an idea, then he glances to his le
 
 He hadn't the time to read the first or the second Aretia Accord, Dain flexes his hands at that; he should get around to it. But, he also isn't sure if anything that explicitly specific would be included there. He can't just ask higher ranked fliers why they do anything either. 
 
-"It's heavily implied that we won't ever even sit in on classes regarding history and literature for the simple fact that Navarre tells lies. Physics, maybe, because math is absolute." He clears his throat, puttering on factually, "But, I've heard some talk of pulling fliers from Basgiath, too. And it's only been in the whispers the last few days."
+"It's heavily implied that we won't ever even sit in on classes regarding history and literature for the simple fact that Navarre tells lies. Physics, maybe, because math is absolute." He putters on factually, "But, I've heard some talk of pulling fliers from Basgiath, too. And it's only been in the whispers the last few days."
 
 The Great Hall tapers off to the doors of rooms that Dain hadn't been in. They've trudged past where you can hear the muttering of personnel and into a tunnel like area. It's mostly quiet and the only light here is what is provided by magelights.
 
@@ -892,33 +892,27 @@ His voice cracks so badly even Sloane winces.
 
 "Is that why Second Wing's wingleader is always touching you like you're a big-ass dog?"
 
-Dain grins, stupidly. He wasn't a dog but if she asked him to bark he would, probably. And she was more than welcome to pet him.
+He glares; dogs are loyal, kind, and committed.
 
-Sloane grimaces at him.
-
-*"How dignifying for me to be the first of my kind to bond a canine."* Cath snarls. His mood has violently swung left.
+*"How dignifying for me to be the first of my kind to bond a canine."* Cath snarls.
 
 *"Can you——"*
 
 *"——Can **you** not speak to me with your tail wagging so aggressively?"*
 
-Dain shields.
+Dain shields and then decides, "I think she's just a touchy person."
 
-He drags his palms down his face and clears his throat, "I think she's just a touchy person."
+"Oh," Sloane deadpans, eyes rolling so hard this time she blinks a few times afterwards. "Anyway, you have a confidential signet that activates via touch," she gives her back to Thoirt and takes slow steps backwards until her waist hits the railing keeping them apart, "So I would suggest not letting people touch you so easily."
 
-"Oh," Sloane deadpans, eyes rolling so hard this time she blinks a few times afterwards. Her pinch-able face goes rose colored and Sloane whips around, standing up so quickly from where she'd been lying across the bench that it shakes the table, "——shouldn't *you* be with his dragon somewhere?"
+Her face is bright pink when his eyes slide down her body and then to their table.
 
-She points at her Daggertail, still perched on her stone seat in the cliff side behind them and when Sloane turns back to face him the tips of her ears look like they're glowing. Dain only gives her annoyance with Thoirt a moment; just because the riders are engaging doesn't mean their dragons need to be.
+"I don't think anyone cares that much, it's fine." He thinks about the amount of times he finds the other cadets' eyes tracing over his confidential designation sown into his uniform blouse, "Most riders aren't sure or are confused about my signet anyway."
 
-"Anyway, you have a confidential signet that activates via touch," she gives her back to Thoirt and takes slow steps backwards until her waist hits the railing keeping them apart, "So I would suggest not letting people touch you so easily."
+Or so he thinks.
 
-Her face is still bright pink when his eyes slide down her body and then to their table.
+Sloane only adamantly insists, "Well, I care. I'm supposed to care about you——" 
 
-"I don't think anyone cares that much, it's fine."
-
-"Well, I care. I'm supposed to care about you——"
-
-"——because Violet said so, I heard you." Dain murmurs, "I got that thanks."
+"——because Violet said so, I heard you." Dain murmurs, "I got that, thanks."
 
 "No." She folds her hands over her nose and closes her eyes, "No, I should care about the person who's choosing to help me regardless of additional stress I'm putting on him. The way your healer treated me in your room was warranted. Still, I'm not some heartless fuck that abuses people and my position with them. I might fucking *hate* you, but I'm not a cruel bitch—I don't want to *hurt* you."
 
