@@ -360,7 +360,7 @@ Matthias cocks her head, "Did you know that?" she asks Sloane, then to Dain: "Ho
 
 "...I can't say," Dain divulges weakly, that hadn't been disclosed to him, "I can only tell you Draithus has almost all of Navarre on edge and preoccupied, even more than when Venin infiltrated Basgiath, and you should be using this time to get it together."
 
-Matthias pulls Sloane ahead of her by the shoulders, "Do you mind if we're excused from the skeleton schedule filler courses to train her?"
+Matthias pulls Sloane ahead of her by the shoulders, "Do you mind if we're excused from the instructional days to train her?"
 
 "That's fine. I'll pass on a writ to the Aretian professors, I'm confident they'll agree."
 

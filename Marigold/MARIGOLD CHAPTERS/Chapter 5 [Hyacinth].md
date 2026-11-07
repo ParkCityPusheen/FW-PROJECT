@@ -1,6 +1,6 @@
 Dain is absent from most of his duties the day following his conversation, for lack of a better word, with Violet.
 
-Cath doesn't encourage this behavior per se, but it's evident his Swordtail is satisfied with his rider being roombound while emotionally viotale.
+Cath doesn't encourage this behavior per se, but it's evident his Swordtail is satisfied with his rider being room-bound while emotionally volatile.
 
 He sleeps in the morning after, if you can call the two hours he manages to actually disassociate enough not to think, sleep, and ignores the soft knocking at his door when Eleni swings by to check on him. Part of him regrets not opening up and pulling her inside, he could've easily propositioned her, and successfully if her demeanor towards him was being perceived accurately. He might've only been with two or three other people his entire life, but he was a good flirt. If there was alcohol especially, but he didn't necessarily need it to initiate anything.
 
@@ -88,9 +88,10 @@ They mix together in the bond. Eyes, ears, and mind; even the privacy of sleep i
 
 Though, it doesn't take long for his perspective to flicker from mauled bovine to strawberry scales as Cath obliges his tugging quietly. He's out with Thoirt again, Thoirt and Sawyer's bond and... Aotrom and Andarna? His view cuts out as quickly as it'd phased in, and Dain is staring at the bloodied spot where Cath had caught and consumed three cows at once. He squirms in the bond, tucking himself deep into the reserves of their magic.
 
-Andarna and Aotrom are new, two dragons he'd maybe seen three or four times total each in these shared dreams. There's chatter, but none of it is in Cath's sharp voice. Dain stills.
+Andarna and Aotrom are new, two dragons he'd maybe seen three or four times total each in these shared dreams. There's chatter, but none of it is in Cath's sharp voice. There's words to be deciphered between Cath's chewing and chomping but Dain figures he's being sent on his way as the chattering fades and is replaced by nothing.
 
-The others sound... distressed?
+He sleeps.
 
 ---
 
+At fifteen hundred his newly appointed executive officer passes off the reports he'd missed from their two classes prior, and the muster statuses for evacuee reception, medical transport, and 

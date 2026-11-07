@@ -68,7 +68,7 @@ Fucking Basgiath. Navarre. His father.
 
 One inevitably equates to the other since he'd split the quadrant, and never in good regard when it came to his personal life. When his father disowned him after his return from the Isles it had become alarmingly clear that he'd done all that he'd needed to make sure Dain understood exactly how dead he was to the man.
 
-Dain Aetos had been removed and disinherited from the Aetos family registry entirely, as if he'd ceased to exist at all. His access to the household treasury had been revoked, along with all the money accumulated during his active service at Basgiath up until Violet's expedition. Two hundred gold is what Dain maintained in currency and it was only because he'd planned on buying some extra uniforms with it after graduating.
+Dain Aetos had been removed and disinherited from the Aetos family registry entirely, as if he'd ceased to exist at all. His access to the household treasury had been revoked, along with all the money accumulated during his active service at Basgiath up until Violet's expedition since he'd agreed to open his own account branched off his father's instead of his own once he'd turned sixteen. Two hundred gold is what Dain maintained in currency and it was only because he'd planned on buying some extra uniforms with it after graduating.
 
 He's not sure what the result of continuing to eat without a treasury assigned in his name will be, either. Maybe he'll receive a bill alongside his officer rank during graduation, totaling the expense of every combined meal since his disownment. He'll feel every drop of coffee he'd ingested in the form of an indebted punch to the teeth.
 
@@ -86,23 +86,23 @@ He hopes he looks fine, because everything is far from it.
 
 Dain arrives with impeccable timing at the base of the valley.
 
-He wordlessly receives muster reports from each of his Section Leaders (excluding Bodhi, who's probably off with Riorson and Tavis doing whatever Riorson, Tavis, and Bodhi do). Each contain their squad leader's reports, a cohesive attendance of the whole Wing to be delivered by himself to the superior awaiting them.
+He wordlessly receives muster reports from each of his Section Leaders (excluding Bodhi, who's probably off with Riorson and Tavis doing whatever Riorson, Tavis, and Bodhi do). He hadn't been expecting the sudden reinforcement of cadets that he rakes his eyes across from Basgaith, but he also isn't surprised considering what had just taken place. He glances over the paper-slip reports which contain their squad leader's reports after collecting all of Flame Section's, a cohesive attendance of the whole Wing to be delivered by himself to the superior awaiting them.
 
-Said superior, who holds a seat within the Assembly, is now their rune professor, accompanied by Professor Devera.
+Said superior, who holds a seat within the Assembly, is now their rune professor, accompanied by Professor Devera who counts the influx of displaced flier cadets sent in from Poromiel, where they'd allegedly struggled to find proper boarding.
 
-"Aetos. You're looking better." she glances over her shoulder at Cath up the hill, "Your dragon's been... watching over the Wings."
+"Aetos. You're looking better." she glances over her shoulder at Cath up the hill, "Your dragon's been... *watching* over the Wings."
 
 "He's curious in nature." is all Dain says, still too perturbed by his ruminating earlier for posturing.
 
 He does look with her though, at Cath, he's sitting on his haunches, wings tucked neatly, and his injured one not as flush against his body as the other. He makes eye contact with his swordtail, and Cath stands up, capricious as ever, stalking closer to Dain and shaking everyone in the Wing while doing so. He's the only dragon not flying overhead, or just absent.
 
-*"The healer is there."* he announces, tail flipping out from behind him and pointing at Darius awkwardly across all three other Wings. He's got a basket again.
+*"The healer is there."* he announces, tail flipping out from behind him and pointing at Darius awkwardly across newly arrived Second Wing and the rest of Fourth. He's got a basket again.
 
 Trissa and Devera's heads also follow where Cath's tail stabs towards, eyes landing on the healer just as Dain's do; the movement is too sudden and Cath is too fucking red and large to not acknowledge.
 
 "He's been looking for you." Trissa mentions, when her eyes fall upon light-blue robes across the valley, "There's only a few announcements this morning, go to him; healers mean you're hurt, and we need leadership in their best shape especially now what with normalcy being abandoned."
 
-Dain nods, but he goes to Cath first, and together (ridiculously) they make their way to Darius. He meets them halfway, so Cath only deafens the whole student body for a total of about ten of his own steps. Darius stands his ground when he's close enough to yell at Dain, who's situated beneath Cath's chest.
+Dain nearly pauses at her comment, but then goes to Cath first, and together (ridiculously) they make their way to Darius. He meets them halfway, so Cath only deafens the whole student body for a total of about ten of his monstrous steps. Darius stands his ground when he's close enough to yell at Dain, who's situated beneath Cath's chest.
 
 "Can you come out from there?" he barks, lifting the hand carrying the woven basket, "Got a delivery for you!"
 
@@ -214,33 +214,27 @@ Dain snaps his mouth shut and walks past his dragon, falling back into his posit
 
 Once he's situated, posture rigid, and Cath ascending the valley to a much further point where he can observe the humans with unending ennui, Dain empties his mind and absorbs the information Trissa begins to broadcast across the Wings.
 
-"In light of recent events, the academic calendar will pause until more stable grounds have been established. During this time there will be a skeleton of classes and assignments to maintain order, and as of today those classes include: weapons training, flight maneuvers and tactics, and rune weaving."
+"In light of recent events, the academic calendar will pause until more stable grounds have been established regarding matters outside of Basgiath. Second and the rest of Fourth Wing will be joining us here at Aretia, with all Wings rotating between Basgiath and Aretia every fortnight. During this time, a reduced curriculum will remain in effect, consisting primarily of weapons training and sparring, flight maneuvers and tactics, and rune weaving."
 
 Trissa allows a passing minute of silence, waiting for the whispering to die down, then carries on.
 
-"In the next four weeks specifically, sections from each Wing will rotate between Basgiath and Aretia, at the beginning of each week tasks and schedules will be given out and you are all expected to adhere to them as per General Aetos." 
+"Supplementary academic instruction will continue in military strategy, combat theory, and runic theory. Cadets are required to attend a minimum of three instructional days each week. Battle Brief, when it is held, is mandatory for anyone at station, but it does not by itself satisfy an instructional day. The remaining days may be used for deployment and recovery operations in Draithus, subject to medical clearance and operational necessity. No cadet will be tasked to Draithus more than four days in a week."
 
-*"Fuck that guy."* Dain bites out into the bond, with perfunctory bitterness.
+Dain almost groans aloud and just barely manages to keep from dramatically rolling his head along his shoulders, *"Great. Who's idea was it to send the rest of the Wings here?"*
 
-*"Yes."* Cath adds, his derision entirely honest.
+Cath raises his wings, a simple mark in the fields beyond Trissa and Devera, *"Someone with a higher pay-grade."* Cath snipes.
 
-"Wingleaders will assign the aforementioned tasks thereafter."
-
-Dain almost groans aloud and just barely manages to keep from dramatically rolling his head along his shoulders, *"Great."*
-
-Cath raises his wings, a simple mark in the fields beyond Trissa and Devera, *"It could be."*
-
-This week First and Third Wing are expected to fly back to Basgiath if they are in good enough health, while Second and Fourth will remain in Aretia to help Riorson House staff and nearby farmers. There are handfuls that will be pulled away, squads at a time, to participate in collecting medicinal herbs and aid medical units. Between it all, Dain is still expected to assign patrols, watches, and collect and review reports (turned in by squad and section leaders regarding their finished tasks), and then to produce his own.
+Dain eyes meet Cath's, and from afar the Red flashes his teeth.
 
 "Wingleaders should observe their Wings at the best of their ability throughout this time, we expect you all to preserve a regular order by whatever means you deem necessary." Devera finishes, "Your professors will all be either in the theatre, teaching one of the supplementary courses, or in the office directly across the Mess Hall. Maintain use of your chain of command, as per usual."
 
-When Devera and Trissa leave, they do so after handing out cloned scrolls with the skeleton schedule for the classes, and the other mentioned tasking, to each wingleader. Cath creeps closer, just a few dozen meters behind Dain, while his Wing inches towards him, watching with expectant eyes.
+When Devera and Trissa leave, they do so after handing out cloned scrolls with the reduced schedule for the classes, and the deployment tasking, to each wingleader. Cath creeps closer, just a few dozen meters behind Dain, while his Wing inches towards him, watching with expectant eyes.
 
 Dain's mind clicks, puttering into gear before he speaks.
 
 Second Wing files in closer as well, Eleni Jareth and her Executive Officer, Tyvon Varen, huddle nearby him while the cadets mix into his Wing.
 
-"Sup, Aetos." Jareth perks up, clapping him against his shoulder, "Wanna rub our heads together for this?"
+"Sup, Aetos." Jareth perks up, clapping him against his shoulder, "I'm shot from the flight in, so you wanna rub our heads together for this?"
 
 Dain's eyes swing from Jareth to Varen, both seem to bear no malicious intent, but Dain glances up and over to Cath where four other dragons have joined him.
 
@@ -260,11 +254,9 @@ He shakes hers and her EO's, then turns to face the Wings,
 
 Jareth waves to her Wing, they wave back.
 
-Dain's eyes find Violet, and hers find him through the crowd of bodies. There's over one hundred and eighty riders present, and eighty fliers in the combined Wings. One being Catriona, who peers at him through squished eyes and long lashes.
+Dain's eyes find Violet, and hers find him through the sparse crowd of bodies. There's over ninety riders present now, compared to the fifty broken and beaten in the theatre yesterday, and forty fliers in the combined Wings. One being Catriona, who peers at him through squished eyes and long lashes.
 
-There's a neutral murmuring happening around them, Dain simply speaks over it, looking past Violet, and projecting his voice over the student body with lesser magic,
-
-"We don't have a time squeeze currently, so I'll make rounds to each squad with a watchbill for patrols and watch stations by tonight." He dips his head to Jareth.
+There's a neutral murmuring happening around them, Dain simply speaks over it, looking past Violet, and projecting his voice over the student body with lesser magic, "We don't have a time squeeze currently, so I'll make rounds to each squad with a watchbill for patrols and watch stations by tonight." He dips his head to Jareth.
 
 "We'll be working in tandem with Fourth Wing, no point in making this any harder than it needs to be."
 
@@ -272,13 +264,13 @@ There's a neutral murmuring happening around them, Dain simply speaks over it, l
 
 He waits for the collective groan, and there it is. Dain smiles empathetically.
 
-"Today Claw Section, Squad One will be assisting Riorson House staff until dismissed, Tail Section, Squad Two with the agricultural focuses; you can go ahead and muster up with the veteran riders at the courtyard, apparently more directives will be put out by them, there."
+"Today Claw Section, Squad One is on evacuee reception in Medaro's pass and the Outer Quarter withing Aretia until dismissed. Tail Section, Squad Two, evacuation transport and supply distribution. Muster with the veteran riders at the courtyard. They'll have the rest of your directives."
 
-Dain watches that squad file out, then drones on, "Flame Section, Squad Three for medicinal herbs..." he drops his head down to the scroll, "...mustering at the peak northbound past the valley, Professor Kaori and some healers are there to intercept you at the rendezvous point." 
+Dain watches that squad file out, then drones on, "Flame Section, Squad Three, medical supply transport and casualty evacuation..." he drops his head down to the scroll, "...mustering at the peak northbound past the valley, Professor Kaori and some healers are there to intercept you at the rendezvous point." 
 
 Likewise, Jareth mimics his assignments but in the opposite order, starting with Flame Section, Squad Three and down the line.
 
-"In the meantime we've been assigned those three classes, starting with flight maneuvers, right here in the valley—standby for whoever comes in—"
+"The rest of you are on the instructional schedule. Those three classes start with flight maneuvers, right here in the valley. Standby for whoever comes in."
 
 Varen peeks over Jareth's shoulder, "There's no professor assigned?"
 
@@ -292,7 +284,7 @@ Dain nods, "Got that?"
 
 He hears the collective "Yes Sir," from his Wing and rolls the scroll back up, tucking it away into his pocket.
 
-"We'll rotate the Aretian tasks clockwise by one section and squad. Meaning: tomorrow Riorson House staff will be assisted by Tail Section, Squad Three."
+"We'll rotate deployment and instruction clockwise by one section and squad, so you won't all be in class on the same days. Tomorrow, evacuee reception is Tail Section, Squad Three. Posts and watches stay on the watchbill. The day before we rotate back is closed to Draithus."
 
 Another murmur of understanding leaves Dain satisfied and ready to step away, but a voice cracks through the air like a crossbolt,
 
@@ -412,17 +404,17 @@ Dain grins, he can't fight it when it comes to his Red, "He's the greatest."
 
 Something in Catriona's eyes softens at his expression, but she fixes the look nearly instantly when Richter weaves through the cadets and to Dain's side. He speaks merrily, clapping Dain on his back whilst hollering.
 
-"I expect reports from each cadet regarding what they've trained and observed for every evolution we do this week. I'll collect them the day of your departure from Aretia, and Wingleaders, I expect you to revise each one before turning them in to me."
+"I expect each squad to develop a tactical formation based on what we've covered this fortnight. Wingleaders, you'll review their proposals, and for our final evaluation prior to returning to Basgiath, we'll pit those paradigms against each other."
 
 Dain's shoulders slump. More shit.
 
-"Don't worry, Aetos, I'm sure your Wing will be exceptional." He jerks his chin at the third year and lopes forwards, arms crossed, "I'll have your best in class explain what he thinks the purpose of those exercises was."
+"Don't worry, Aetos, I'm sure your Wing will be exceptional." Richter jerks his chin at the third year and lopes forwards, arms crossed, "I'll have your best in class explain what he thinks the purpose of those exercises was."
 
 Dain only glances at Richter, then away, holding his hand out to Catriona for his journal and folding the trifold cover shut once receiving it, "Right. The evolution was essentially a rapid counter-reaction and disengagement. Imagine there's a mortally wounded rider who has a dragon that can still fly them away from the battlefield."
 
 Richter brandishes Dain with his hands, stepping to the side when the wingleader begins to speak, pushing him into the center mass of students.
 
-"Gryphons provide flanking of vitals, and can drop thereafter into an immediate deployment with other formations once the dragon and rider clear the frontlines." Dain makes a face, wrinkling his nose up in thought before adding more to his explanation.
+"Gryphons provide flanking of vitals, and can drop thereafter into an immediate deployment with other formations once the dragon and rider clear the front lines." Dain makes a face, wrinkling his nose up in thought before adding more to his explanation.
 
 "It's imperative that we don't get full of ourselves as riders, because I can feel it happening." he points out to the mass of his peers huddled neatly amongst their respective groups, eyes sharp with intent, "The idea of using gryphons to flank dragon vitals doesn't mean that they're living shields, primarily because they wouldn't agree to that, and secondly, gryphons are not any less capable than dragons in any given situation."
 
@@ -438,7 +430,7 @@ Richter faux claps, "Fantastic, Aetos. Not a wingleader for nothing. Wise words,
 
 She answers, her explanation rolling off the tongue without a single bit of filler, "Quick landings! Getting off our mounts as swiftly as humanly possible, and for our mounts to nope out of there just as quickly."
 
-Richter nods expressively, "I would like for all of you to understand that leaving the fight is just as important as joining it. We'll be compounding every evolution together for a Wing versus Wing drill the day *before* your departure and you will be graded accordingly. Make sure you're paying as much attention as you are having fun and chattering. I don't mind sidebar as long as it isn't during maneuvers. Fair?"
+Richter nods expressively, "I would like for all of you to understand that leaving the fight is just as important as joining it. Your final evaluation will take place the day before your departure, and that day will count toward your instructional requirement. Make sure you're paying as much attention as you are having fun and chattering. I don't mind sidebar as long as it isn't during maneuvers. Fair?"
 
 All the cadets provide stern nods or grunts of agreement, and Richter looks to Jareth and Dain, "Dismissed."
 
@@ -1142,7 +1134,7 @@ It's so unpleasantly silent Dain can hear his own rough breathing when he squats
 
 Catriona stands up, not willing to let it go, "What could possibly be more important—"
 
-"Nothing." Dain clears his throat, "But your manipulation, or anyone else's, isn't needed to get me involved, Catriona. I'll decide what I'm doing. "
+"Nothing." Dain clears his throat, "I'll decide what I'm doing. "
 
 "You're wasting time." she sneers, hands on her hips, "We don't have *time.*"
 
