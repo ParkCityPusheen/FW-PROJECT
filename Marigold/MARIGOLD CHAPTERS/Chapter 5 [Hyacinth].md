@@ -173,7 +173,7 @@ Andarna's Scorpiontail twists and wraps around herself until the barbed tip sits
 
 Dain bows, and glances at Cath from the corner of his eyes.
 
-*"Can I ask her questions? I have a question. I should probably shut up though, right?"* Curiosity and wonder make him feel soggy with greed, and he shakes his head, launching his flight goggles into the grass, *"How are we even speaking? Is this allowed? Cath she's not going to bond me too is she?"*
+*"Can I ask her questions? I have a question. I should probably shut up though, right?"* Curiosity and wonder make him feel soggy with greed, and he shakes his head, launching his flight goggles into the grass, *"How are we even speaking? Is this allowed? What happens when Tairn finds out?"*
 
 Andarna's head moves to face Cath, *"What's wrong with him?"*
 
@@ -235,7 +235,7 @@ Dain gives her a comment a moment to marinate, but he doesn't take his eyes off 
 
 "You didn't think it was dangerous? Having Riorson around your dragons? Did Sgaeyl feel safe, around him I mean, could she tell?"
 
-She stops and digs up the grass beneath her feet with her boots, "Dain Sgaeyl knew."
+She stops and digs up the grass beneath her feet with her boots, "Dain, Sgaeyl knew."
 
 He can't find the words to respond to that.
 
@@ -243,8 +243,14 @@ He can't find the words to respond to that.
 
 "Cath won't believe that." Dain interjects pointlessly, "He..."
 
-"He'll come around, but wether for good or bad, I'm not sure." Violet takes hold of the mares reins, "But as far as I'm concerned, without anyone to vouch for me I'm as much of a criminal as Xaden is."
+"He'll come around, whether for good or bad, I'm not sure. I can only hope." Violet takes hold of the mares reins, "But as far as I'm concerned, without anyone to vouch for me I'm as much of a criminal as Xaden is."
 
 Dain puts out his hand, and the mare turns from Violet to him, shoving her muzzle into his palm, "Is that how you plan to overcome this? Allies?"
 
 "That's how I've gotten this far. Alive, and with the little bit that happened in Poromiel's interest. And," she pushes the reins into Dain's hand, he pulls away enough that their skin doesn't touch, "to Navarre I'll be public enemy number one, once they figure out that he's not coming back."
+
+"...is there even a *plan?*" Dain chokes out while staring at the top of Violet's head. He build's his shields up more each time he looks at her, unfortunately no matter how perfect and stable they are they won't protect him from his own memories. He regretfully relives every time he'd ever made a decision for her without considering her potential and awaits her answer.
+
+She looks up at him suddenly, and as much he wants to look away he stays there, "No," Violet taps her knee against his and instinctively he bends one fully, "Right now we're focused on damage control."
+
+"We?" Dain gapes, confused and gesturing for Violet to step off his bent leg and onto the mare, "Also, Vi, I have more questions."
