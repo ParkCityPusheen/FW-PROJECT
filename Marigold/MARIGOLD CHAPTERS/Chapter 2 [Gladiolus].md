@@ -2,7 +2,7 @@ Riorson House is truly an architectural feature of its time.
 
 Dain, easily impressed by man-made structures of all types, stands in obvious awe of the double staircase that yawns ahead of him. Each leveled landing is staggered further into the stone edifice, sinking backwards as if falling away from him as he stands before it. The entire composition of the staircase is carved directly into and out of the stone mountain to reveal the fortress in all its grandeur. He can't help but compare it to Basgiath; both locations contain arrangements worth dropping a jaw at.
 
-He runs his hand along the thick, stone bannister top, fingers stuttering over Tyrrish masonry, admiring subtle details visible only to the discerning eye. He wonders what other parts of the fortress he might not be allowed in, considering it houses this monument of a staircase, and what those areas might look like. If they also exist at such a scale.
+He runs his hand along the thick, stone bannister top, fingers stuttering over Tyrrish masonry, admiring subtle details visible only to the discerning eye. He wonders what other partƒƒs of the fortress he might not be allowed in, considering it houses this monument of a staircase, and what those areas might look like. If they also exist at such a scale.
 
 He hasn't flown over Riorson House to see it from above the way he'd like, slow and circling, because he fears being casually skyborne with Cath might be cause for concern. Dain knows there are reasonable suspicions of them from anyone here in ill-standing with Navarre.
 
@@ -264,11 +264,11 @@ There's a neutral murmuring happening around them, Dain simply speaks over it, l
 
 He waits for the collective groan, and there it is. Dain smiles empathetically.
 
-"Today Claw Section, Squad One is on evacuee reception in Medaro's pass and the Outer Quarter withing Aretia until dismissed. Tail Section, Squad Two, evacuation transport and supply distribution. Muster with the veteran riders at the courtyard. They'll have the rest of your directives."
+"Today's deployment group is Claw and Tail. Claw Section, Squad One is on evacuee reception in Medaro's Pass and the Outer Quarter within Aretia until dismissed. Tail Section, Squad Two, evacuation transport and supply distribution. Muster with the veteran riders at the courtyard. They'll have the rest of your directives."
 
-Dain watches that squad file out, then drones on, "Flame Section, Squad Three, medical supply transport and casualty evacuation..." he drops his head down to the scroll, "...mustering at the peak northbound past the valley, Professor Kaori and some healers are there to intercept you at the rendezvous point." 
+Dain watches those squads file out.
 
-Likewise, Jareth mimics his assignments but in the opposite order, starting with Flame Section, Squad Three and down the line.
+Likewise, Jareth mimics his assignments for Second Wing, but starting with Flame Section and Tail Section.
 
 "The rest of you are on the instructional schedule. Those three classes start with flight maneuvers, right here in the valley. Standby for whoever comes in."
 
@@ -284,7 +284,7 @@ Dain nods, "Got that?"
 
 He hears the collective "Yes Sir," from his Wing and rolls the scroll back up, tucking it away into his pocket.
 
-"We'll rotate deployment and instruction clockwise by one section and squad, so you won't all be in class on the same days. Tomorrow, evacuee reception is Tail Section, Squad Three. Posts and watches stay on the watchbill. The day before we rotate back is closed to Draithus."
+"They intend for deployed squads to be part of whatever current objective is happening with the active riders out in Draithus. I believe it's being treated as an expeditionary excersice. You'll be setting up a camp and operating outside of it to whoever is in command upon arrival."
 
 Another murmur of understanding leaves Dain satisfied and ready to step away, but a voice cracks through the air like a crossbolt,
 
@@ -436,7 +436,7 @@ All the cadets provide stern nods or grunts of agreement, and Richter looks to J
 
 He walks up the valley to Dèideag, not taking to the clouds but clearly sharing a conversation amongst themselves; Jareth gives Dain a sideways glance, then speaks.
 
-"We've got a half-hour between the next class," she says to him, then turns to the Wings with a raised hand, her voice blasting across the valley, "Muster by the lower fields flanking the Aretian Fortress for weapons training in thirty; there will be a head count, do *not* be late!"
+"We've got a half-hour between the next class," she says to him, then turns to the Wings with a raised hand, her voice blasting across the valley, "Muster by the lower fields flanking the Aretian Fortress for weapons training in thirty; those on the instructional schedule will be counted, do *not* be late!"
 
 Dain nods curtly, then staggers off himself, hip tight from holding its position against Cath. He stalks back to his barracks room and drops the journal, the basket Darius gifted him, and his flight goggles on his table before speaking to Cath.
 
