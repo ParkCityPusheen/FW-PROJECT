@@ -12,9 +12,9 @@ She looks *awful,* and even that is just a pond in the sea of what he's witnessi
 
 Imogen chews more slowly; her only response is a companionable muteness.
 
-Her eyes collide with his and Dain's heart constricts at the hopelessness he sees there, "I'll do right by her. Nothing else matters to me."
+Her eyes collide with his and Dain's heart constricts at the hopelessness he sees there; his mouth continues to move as wildly as his heart does, "I'll do right by her, I swear. Nothing else matters to me."
 
-Gods, he hopes Imogen will spare him a shred of grace while stomaching the mandate he's given. It probably sounded too overinvested for her tastes. They occupy a shared silence that pillows between them and Imogen's eyes crinkle at their corners.
+Gods, he hopes Imogen will spare him a shred of grace while stomaching the mandate he's given. It probably sounded too overinvested for her tastes. They occupy a shared silence that pillows between them and eventually Imogen's eyes crinkle at their corners.
 
 She takes on a demeanor that he finds approving and then speaks softly, "I guess we'll see, won't we?" 
 
@@ -26,7 +26,7 @@ Dain blathers on, seeing her reanimated enough for conversation.
 
 Dain imagines Sloane attempting to siphon the tree and then Broccoli, and ends up chuckling into his hand.
 
-"They were *something.*" he admits wearily; no others needed to know of Sloane's conclusions, those were details meant only for himself. Like the version he'd seen of her during her Threshing, Dain would meet Malek with this knowledge unspoken.
+"They were *something.*" he admits wearily; no others needed to know of Sloane's conclusions, those were details meant only for himself. Like the version he'd seen of her during her Threshing, even the oddly reserved one that visited his room, Dain would meet Malek with this knowledge unspoken.
 
 She picks up a few pokes of meat, then drops the fork towards her plate, "When are we having that discussion you wanted to have?"
 
@@ -40,9 +40,7 @@ Fact is, he'd love to have that conversation right now but risking Imogen isn't 
 
 "I am," He clears his throat, "You're my friend."
 
-Amari's sake. Dain falters, it sounds horribly boyish off of his lips. Dain cringes.
-
-Imogen stops eating to pin an inquisitive look on him, "The healers that were in your barracks room? Are those your friends too?"
+For all Amari's creations, his claim sounds so horribly boyish off of his lips that Dain cringes and Imogen stops eating to pin an inquisitive look at him, "The healers that were in your barracks room? Are those your friends too?"
 
 Kaia's green stare and her fiendish mouth teeter at the edge of Dain's ruminations, beside her are the Mulders, nodding away. 
 
