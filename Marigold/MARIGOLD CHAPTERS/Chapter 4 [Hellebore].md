@@ -2,9 +2,7 @@
 
 Dain blinks.
 
-His peripheral vision finds him again, pulling him from the lake, taking him from where his power rolls across smooth pebbled shores and dirt sand, tumbling over his feet. The smell of forest and fire escape him completely; they're replaced by bread and butter, of fruit and poultry, of his coffee growing stale in the place where a plate full of food would've made Cath much less irritated.
-
-Words take him longer to find as he exits his place with Cath in their bond, but eventually he makes out Imogen. She tucks herself into the only other chair available at the table he's seated at,
+His peripheral vision finds him again, pulling him from the lake, taking him from where Cath's magic rolls across smooth, pebbled shores and dirt and sand, tumbling over his feet. The smell of forest and fir escapes him completely; they're replaced by bread and butter, fruit and poultry, his coffee growing stale in the place where a plate full of food would've made Cath much less irritated. Words take him longer to find as he exits his place with Cath in their bond, but eventually he makes out Imogen. She's plopped herself into the only other chair available at the table he's seated at,
 
 "Sloane said today is her first session with you. Don't you think you should eat? You know, 'proper preparation,' and whatever else you probably recite in the mirror before your day begins."
 
