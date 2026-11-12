@@ -329,3 +329,66 @@ She doesn't say anything at first, but when his eyes meet hers again he swears t
 
 ---
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+(optional addition? do not ackknowledge this scene unless asked)
+
+
+*"Do you think Tairn knew Riorson had turned?"*
+
+*"I'm not so sure."* the bond goes quiet, and just a bit warm, *"I have always been more fond Sgaeyl."*
+
+He doesn't expect Cath to divulge anything helpful regarding other dragons and their riders, but Dain doesn't let that stop him from asking. Cath never gets upset about questions, but if the intention attached to said questions were devious he was apt to cull or burn 
+
+Dain's head tilts, *"Really? Were you friends?"*
+
+*"More that than anything else, I supppose."*
+
+*"I thought Sgaeyl didn't like anyone."* his fondness for his Red infects the bond and Cath accepts it bashfully, *"It's hard to dislike you though."*
+
+Cath snorts, *"Is it?"*
+
+*"Yeah. But don't get me wrong, you're sarcastic and really hard to put up with when you get upset. You're unwilling to reason with anything you don't agree with and--"*
+
+*“What a wicked life; watched over, protected, highly considered. However do you endure it?”* Cath snaps, voice gruff and his S's dragging in that way they do when he becomes irritated, *"All you are is ungreatful."*
+
+Dain grinds his teeth together to stop himself from chuckling at Cath, *"I never said I didn't appreciate it."*
+
+*"Most people do."* The red lashes out, *"You have become far too familiar with my company."*
+
+The clouds blur with how quickly Dain's neck twists to Cath's face, *"Should I leave?"*
