@@ -8,33 +8,33 @@ His peripheral vision finds him again, pulling him from the lake, taking him fro
 
 She looks *awful,* and even that is just a pond in the sea of what he's witnessing; it's only what she allows that he observes now, so Dain can only imagine how deep the pain goes. He chews on the words he could ask, affects the posturing that seems necessary to enforce, but with the way her cheeks have sunken in and how her usually vibrant hair is pastel and stripped, he himself rubbing that dialogue away.
 
-"I'm sorry I couldn't get you more time." his voice cracks and it makes him wince, "I don't really have any close friends, so I'm not—I don't know what it feels like to lose them." 
+He swallows down nothing besides his nerves and lets his mind wander the pathways of discussions yet to be had. He decides, finally, after letting her dig go cold and she expectantly lifts both of her eyebrows, that his truths pertaining to Imogen weren't harmful and worth being spoken.
+
+"I'm sorry I couldn't get you more time." his voice cracks and it makes him wince, "I don't really have any close friends, so I'm not—I don't know what it feels like to lose them."
 
 Imogen chews more slowly; her only response is a companionable muteness.
 
-Her eyes collide with his and Dain's heart constricts at the hopelessness he sees there; his mouth continues to move as wildly as his heart does, "I'll do right by her, I swear. Nothing else matters to me."
+Her eyes collide with his and Dain's heart constricts at the hopelessness he sees there; his mouth continues to move as wildly as his heart does, "I'll do right by her, I swear. "
 
-Gods, he hopes Imogen will spare him a shred of grace while stomaching the mandate he's given. It probably sounded too overinvested for her tastes. They occupy a shared silence that pillows between them and eventually Imogen's eyes crinkle at their corners.
+*Gods,* he hopes Imogen will spare him a shred of grace while stomaching the mandate he's given. It probably sounded too overinvested for her tastes. They occupy a shared silence that pillows between them and eventually Imogen's eyes crinkle at their corners.
 
-She takes on a demeanor that he finds approving and then speaks softly, "I guess we'll see, won't we?" 
+She takes on a demeanor that he finds approving and then speaks softly, "I guess we'll see, won't we?"
 
-Dain blathers on, seeing her reanimated enough for conversation.
+Dain blathers on, seeing her reanimated enough for conversation, "She stopped by my room yesterday to drop off some of her notes." he starts, though Imogen stops him short of his statement, fork pointing at him as she speaks over him,
 
-"She stopped by my room yesterday to drop off some of her notes." Dain starts, though Imogen stops him short of his statement, fork pointing at him as she speaks over him,
-
-"Were they any help?"
+"Were they any help?" the other third year exacts, "She wouldn't let me read her little hypotheses."
 
 Dain imagines Sloane attempting to siphon the tree and then Broccoli, and ends up chuckling into his hand.
 
-"They were *something.*" he admits wearily; no others needed to know of Sloane's conclusions, those were details meant only for himself. Like the version he'd seen of her during her Threshing, even the oddly reserved one that visited his room, Dain would meet Malek with this knowledge unspoken.
+"They were *something.*" he discloses, somewhat wearily; no others needed to know of Sloane's conclusions, those were details meant only for himself. Like the version he'd seen of her during her Threshing, even the oddly reserved one that visited his room, Dain would meet Malek with this knowledge unspoken.
 
-She picks up a few pokes of meat, then drops the fork towards her plate, "When are we having that discussion you wanted to have?"
+She picks up a few pokes of meat, then drops the fork towards her plate, "You want to have that discussion you mentioned?"
 
-The heat from their near death experience engulfs him before the memory of Imogen turning his shield to stone blazes with it. He remembers Tavis disappearing with Chradh at Dunne's temple.
+The heat from their near death experience engulfs him before the memory of Imogen turning his shield to stone blazes with it. He remembers Tavis disappearing from where he'd been nearby Mira, and yesterday morning when he unecessarily moved Dain from the falling trees path, before then too; when he and Chradh happened to simply appear without the wingleader feeling a single breeze from the Brown's arrival.
 
-He looks down at his coffee, wrapping his hands around the warmed ceramic, "Some other time. Not here, not where someone might hear you."
+He looks down at his coffee and wraps his hands around the cooled ceramic cup, "Some other time. Not here, not when someone might hear you."
 
-Fact is, he'd love to have that conversation right now but risking Imogen isn't worth it. She's far too capable and reliable a rider, and person. Dain surveys the Mess Hall; speaking here could potentially compromise her safety and she probably needs as much peace as she can get.
+Fact is, he'd really love to have that conversation right now, but risking Imogen isn't worth it. She's far too capable and reliable a rider, and person. Dain surveys the Mess Hall; speaking here could potentially compromise her safety and she probably needs as much peace as she can get.
 
 "Worried about me or something?" Imogen teases ironically.
 
@@ -42,49 +42,43 @@ Fact is, he'd love to have that conversation right now but risking Imogen isn't 
 
 For all Amari's creations, his claim sounds so horribly boyish off of his lips that Dain cringes and Imogen stops eating to pin an inquisitive look at him, "The healers that were in your barracks room? Are those your friends too?"
 
-Kaia's green stare and her fiendish mouth teeter at the edge of Dain's ruminations, beside her are the Mulders, nodding away. 
+Kaia's green stare and her fiendish mouth teeter at the edge of Dain's ruminations, beside her are the Mulders, nodding away.
 
-"They're becoming some, I think." Dain confesses; he's happy Darius and Kaia aren't here to hear the stoic way the admission parts his lips. He really does appreciate them, as random as their adoption of him is. 
+"They're becoming some, I think." Dain confesses; he's happy Darius and Kaia aren't here to hear the stoic way the admission parts his lips. He really does appreciate them, as random as their adoption of him is.
 
 Part of him is mostly stuck on the fact that Sloane appears to have reported what transpired in his barracks room to Imogen. Dain was sure Sloane never spared him a thought when he wasn't actively around, and the thoughts that did manage to slip through would be the ones begging Malek to swap his place for Liam's.
 
-Imogen has finished half her plate and she shoves it towards Dain, "Sloane came back to the gym after she left yours yesterday."
+Imogen has finished half her plate and she shoves it towards Dain with her fork, "Sloane came back to the gym after she left yours yesterday."
 
-"Did she?" He picks at her plate with his fork, "It was already late."
+"Did she?" He picks at her plate with the fork, "It was already late."
 
 Imogen's head bobs up and down and their eyes meet in passing, wandering over the other's face.
 
 "She seemed a bit riled up."
 
-Dain chews thoughtfully before speaking; she hadn't finished any of the eggs she put on her plate, "Kaia dug into her."
+Dain chews thoughtfully before speaking; she hadn't finished any of the eggs she put on her plate, "Kaia dug into her, but I should've said something instead of letting them go at it." Dain musters up, "She's my cadet."
 
-Imogen isn't bothered by his admission, she actually seems curious to Dain, if nothing less.
-
-She monitors him as he eats her unfinished food with an expression that begs indifference, "She's a bit unruly. I guess that argument warranted a few more ass beatings in the gym."
-
-"I should've said something instead of letting them go at it." Dain musters up, "She's my cadet."
-
-"No." Imogen begins, "She's had a few long talks with Sorrengail. Sloane's trying for what it's worth. Give her some grace." 
+Imogen isn't bothered by his admission, she actually seems curious to Dain, if nothing less. She monitors him as he eats her unfinished food with an expression that begs indifference, "Sloane needs the correction, Aetos, not unecessary protection. Besides, that little argument warranted a few more ass beatings in the gym."
 
 She opens her mouth to say something else, then closes it, and opens it again,
 
 "You two are more alike than you think."
 
-Dain puts down his fork and gives Imogen a steeled look, his voice comes out a bit high pitch and they both ignore it, "What makes you say that?"
+Dain puts down her fork and gives Imogen a steeled look, his voice comes out a bit high pitch and they both ignore it, "And what exactly makes you say that?"
 
-Imogen's shoulders lift apathetically, "For two people who can't stand each other, you sure give a shit about everything the other does." Her green irises bounce at everything except him, and when they finally do meet his own brown ones, Dain is feeling attacked. 
+Imogen's shoulders lift apathetically, "For two people who can't stand each other, you both sure give a shit about everything the other does." Her green irises bounce at everything except him, and when they finally do meet his own brown ones, Dain is feeling attacked.
 
 "Shouldn't I give a shit?" Dain's tone is harsher than he wants it to be, he squints, "You think I'm going to just sit here and let her fail out?"
 
 Imogen doesn't flinch away from his aggression, and Dain watches as she relaxes regardless of it.
 
-"With the way she speaks to you and treats you? I do. You've always been haughty, but..." she picks at some dirt that may or may not exist beneath her nails, "You let a lot slide when it comes to her, too."
+"Your just as fucking mouthy as she is." she picks at some dirt that may or may not exist beneath her nails, "You let a lot slide when it comes to her, too."
 
 This time he pushes her empty plate back towards her, "I don't."
 
 "If you say so, Aetos."
 
-"I got her brother killed. I can't fill his boots, but I can make sure hers are never scuffed."
+"I got her brother killed. I will not lose the last Mairi due to my own negligence."
 
 Imogen's face devolves into something raw and unsightly, "You ever talk to your dad about that?"
 
@@ -106,9 +100,13 @@ Imogen shovels out a look that he wishes she'd take back.
 
 "No. It's been pretty bad." She begins to stand, and stretches once both feet are situated, "See you around."
 
-Dain watches her back shrink beyond him. Her absence leaves him feeling empty inside.
+Dain looks down at his unfinished coffee and drains the last of the bitter liquid. He finds himself wishing she'd stayed a little longer, though he hasn't the faintest idea what else they might've discussed.
+
+
 
 ---
+
+
 
 During flight maneuvers Dain is summoned from the skies, and away from Catriona, Maren, and Kai.
 
@@ -640,7 +638,7 @@ He doesn't wait for her response before dropping his head to look at his ruined 
 
 She blinks at him, and begins pulling her hair out of its restraint. She might not want to be, but she's listening.
 
-"A siphon can only siphon. A venin channels to drain, and then proceeds draining." Dain's eyes flick up from the Itinerarium, "Draining that you have not done, because you are not channeling."
+"A siphon can only siphon. A venin channels to drain, and then proceeds draining." Dain's eyes flick up from the Itinerarium, "Draining that you have not done, because you are not channeling from the earth."
 
 "Sure." Sloane clips while portraying faux indifference horribly.
 
@@ -672,7 +670,7 @@ He doesn't say anything while the gears turn in her head, "So I guess, in conclu
 
 Sloane's nose wrinkles when she frowns and Dain looks behind her at Thoirt, "You just said——"
 
-"Again, you aren't *draining* anything or anyone, Mairi; when you draw magic, you siphon it; and when you give and move magic, you transfer it."
+"Again, you are not *draining* anything or anyone, Mairi; when you draw magic, you siphon it; and when you give and move magic, you transfer it."
 
 "Semantics." she spits, looking past him, "Whatever."
 
@@ -872,7 +870,7 @@ Eleni's memory of her grey-haired aunt passing along the beat up canteen she'd t
 
 *"Yes."* Cath hisses, lighting the bond up with pride, *"A job well done, Hatchling."*
 
-Dain's cheeks heat and he waves around the top of his head as if his red were buzzing about his face.
+Dain's cheeks heat and he waves around the top of his head as if his Red were buzzing about his face.
 
 "For what?" Sloane presses, eyes the most curious they've been since they started talking. Dain supposes he should placate her, since vocalizing how much he'd alienated himself with his own signet contradicts everything reason he's explained to her.
 
@@ -888,7 +886,7 @@ His voice cracks so badly even Sloane winces.
 
 "Is that why Second Wing's wingleader is always touching you like you're a big-ass dog?"
 
-He glares; dogs are loyal, kind, and committed.
+He glares; dogs are loyal, kind, and committed. If he *were* a dog he'd be a damn good one.
 
 *"How dignifying for me to be the first of my kind to bond a canine."* Cath snarls.
 
