@@ -1110,27 +1110,29 @@ Another wave of nausea inflicts his person and Dain retreats back to the desk ch
 
 "Breathing?" Violet presses, eyes wild,
 
-He would like to stop breathing, actually, "Yes."
+He is, but he could stop, in fact right now would be optimally times.
+
+"Yes."
 
 "I married him."
 
-"Of course you did!" Dain bursts out, eyes the size of dinner plates and his arms outstretched to Amari's skies because what the *fuck* are we doing? He punches his discontent and reflex to simply yell into a neat little note as Violet continues to speak.
+"Of course you did!!" Dain bursts out, half a guffaw and half a sneer, his eyes are the size of dinner plates and his arms are outstretched to Amari's skies because what the *fuck* are they doing? He punches his discontent and reflex to simply yell down into a neat, little bruise as Violet continues to speak.
 
 Allegedly there's a plan between the two of them, irrecoverable thanks to Imogen, but presumably forged. She reveals the parchment that sits just behind him on the desk. Irrevocable and undeniable proof of marriage that makes Violet the de facto Duchess of Tyrrendor and grants her that seat in the Senarium as per right of inheritance. 
 
-In a moment of fleeting vulnerability, she shows him her wedding ring, hands shaking while holding the ring in one hand and the Blade of Aretia in the other. Her smile is timid and *hopeless.* Dain watches as she stumbles ahead of him, returning the blade to its spot on the nightstand by the bed and then climbing back into it.
+In a moment of fleeting vulnerability, she shows him her wedding ring, hands shaking while holding the ring in one hand and the Blade of Aretia in the other. Her smile is timid and hopeless. Dain watches as she stumbles ahead of him, returning the blade to its spot on the nightstand by the bed and then climbing back into it.
 
 "It's pretty." he tells her while she slides it back onto her ring finger, "It's sentimental too, you mean so much to him Vi."
 
 It's pretty fucked and horrid, is the honesty that stays chained up to his tonsils.
 
-Not only had Riorson managed to fucking betray the Continent and his lover, wife now, but he'd fucking taken the sanctity out of it. A contractual marriage in Riorson's dying attempt to maintain control amidst losing *all* of his own. Dain has not a single idea how he'd gotten a high-priestess to agree to a marriage when neither of them are even dedicated to Dunne's Temples themselves.
+Not only had Riorson managed to fucking betray the Continent and his lover, wife now, but he'd fucking taken the sanctity out of it. A contractual marriage in Riorson's dying attempt to maintain control amidst losing all of his own. Dain has not a single idea how he'd gotten a high-priestess to agree to a marriage when neither of them are even dedicated to Dunne's Temples themselves.
 
 Dain's stomach turns itself inside out imagining the provinces discovering Riorson's turned and also married a fucking Sorrengail. He sweats through his sleeping set realizing just how much is going awry and the velocity of it all. He can't think of the preventative measures he needs to take to protect Violet and *her* province now; he can't picture the look on Catriona's face knowing the betrayal that will surely envelope it.
 
-She nods, eyes filling with tears, "I think so. He's not him anymore though. He's not there or here."
+She nods, eyes filling with tears, "I know."
 
-There's no time to stop and stare through stained glass; she's already deconstructed reality for Dain and recognizes it, so Violet just keeps fucking talking.
+There's no time to stop and stare through stained glass flight goggles; she's already deconstructed reality for Dain and recognizes it, so Violet just keeps fucking talking.
 
 Turns out Tavis had been missing for some time too, appearing only to see Imogen. He's still out and searching desperately for his Duke. His bestfriend, and also for Bodhi, who was last seen sick, and then never again. Turns out Dain is one of the last people to have seen him and he grates his teeth together over it; Bodhi was someone he would've liked to consider a friend.
 
@@ -1142,13 +1144,13 @@ Tairn rests in a den beneath Riorson House like Cath, tucked away safely but for
 
 Violet has retreated back to the bed, and is hugging one of her pillows, "Cath is fucking yelling at Andarna."
 
-"He's yelling at *me.*" Dain gags again, "He——"
+"Of course he's fucking yelling," Dain gags again, "He——"
 
 *"And Sgaeyl?"*
 
 "——he wants to know where Sgaeyl is."
 
-Violet throws up her hands and her eyes go flat, "I don't know Dain, I don't know where they are. I decided it was better if I didn't know that." she circles her index finger at her head and reminds him, *Imogen.*
+Violet turns up her palms and her eyes go flat, "I don't know Dain, I don't know where they are. I decided it was better if I didn't know that." she circles her index finger at her head and reminds him: right, *Imogen.*
 
 *"Enough of this."* Cath remarks, *"It will be handled."*
 
@@ -1156,25 +1158,25 @@ Twin rage pillows inside of him and as his emotions thread together with Cath's,
 
 "I thought you were safe with him." Dain heaves, "I thought he'd *never* abandon you. I thought he loved you, how could he just leave you like this?" Dain chokes and gags again and his voice notches up to a shout, "How could he leave Sgaeyl?!"
 
-"He's probably still with her, Dain, she would——"
+"He's still with her, Dain, she would——"
 
-"I don't believe that for a second." He screams, and he shakes at the violence of it. "I could never turn 'for' Cath. I would never be so foolish to assume Cath would have me as venin. My dragon is the only thing, the only *person* I have, Violet! There is no *family* outside of that bond, no one who will accept me and see me for what I am the way he does—so how could *he*, to a dragon as formidable as Sgaeyl. How fucking dare he, as a man who has done nothing but lost the ones he's loved?!"
+"I don't believe that for a second." He hollers, and he shakes at the violence of it. "I could never turn 'for' Cath. I would never be so foolish to assume Cath would have me as venin. My dragon is the only thing, the only person I have, Violet! There is no family outside of that bond, no one who will accept me and see me for what I am the way he does—so how could he, and to a dragon as formidable as Sgaeyl. How fucking dare he, as a man who has done nothing but lost the ones he's loved?!"
 
-Violet stumbles to her feet, tangled up in the dark blue sheets, "So you're telling me if Cath faced death you would simply watch?" her voice reaches the same volume as his, they're both crying; this is a fucking mess and Violet's voice bears insurmountable grief, "They could've had Sgaeyl. And in his final hours he saved all of us——"
+Violet stumbles to her feet, tangled up in the dark blue sheets, "So you're telling me if Cath faced death you would simply watch?" her voice reaches the same volume as his, they're both crying; this is a fucking mess and Violet's voice bears insurmountable grief, "I'm *certain* he did it to protect her, there's literally no other——"
 
 "I would have rather fucking died, Vi. I will never betray my bond. Not for you, or anyone else. I *love* him, and my allegiance lies with Cath regardless of my intentions. My life ends when he wills it! And if that means I go right alongside him, then I meet Malek willingly!"
 
-She wrenches away, gripping her arms, "Dain you can't decide anything for yourself——this cannot be like last time, please let me explain everything."
+She wrenches away, gripping her arms, "Dain you can't decide anything for yourself——you've always confused loyalty with obedience. This cannot be like last time, please let me explain everything because it only gets more uncomfortable."
 
-"I'm not." he roars; he traffics so much magic into his shields that he feels the veins behind his eyes expand and Dain's vision becomes blurry. Or, maybe it's the tears he fights from falling, he can't tell, "What I am being is honest and loyal and it's what I have always been Violet. You choose to only ever recognize that when it's been convenient for you."
+"I'm not." he roars; he traffics so much magic into his shields that he feels the veins behind his eyes expand and Dain's vision becomes blurry. Or, maybe it's the tears he fights from falling, he can't tell, "What I'm being *is* honest and loyal and it's what I have always been Violet. You choose to only ever recognize that when it's been convenient for you."
 
-"I'm not shoveling any of this out so that you'll predetermine a conclusion here, and I'm doing this so that you'll help me protect——"
+"I'm not shoveling any of this out so that you'll predetermine a conclusion I'll agree with here, and I'm doing this so that you'll help me protect——"
 
-Dain's words fit through his grit teeth, and he lifts a hand to silence Violet, "Protect who, exactly? You've let venin live amongst those who needed protection for how fucking long? Months! And how much longer, how many more? At what point does the exception become inexcusable, Violet? What precisely is *too* far?!"
+Dain's words fit through his grit teeth, and he lifts a hand to silence Violet, "Protect who, exactly? You've let venin live amongst those who needed protection for how fucking long? Months?! And how much longer, how many more? At what point does the exception become inexcusable, Violet? What precisely is *too* far?!"
 
 "There are reasons!" she argues animatedly from the bed, refusing to look anywhere but his eyes, "And they were good enough, for myself, for Tairn and Andarna, and for Sgaeyl too, and they still are!"
 
-"I can't even trust anything you tell me. I——" his throat closes around the pull of air he sucks down between pants, "——I can't trust you, I can't trust him, I can't trust Navarre. What is my role in this den of fucking *lies?*"
+"I can't even trust anything you tell me. I——" his throat closes around the pull of air he sucks down between pants, "——I can't trust you, I can't trust him, I can't trust Navarre. How could I possibly have a role in this den of fucking lies?"
 
 "Dain." Violet is trembling, gripping the edge of the upturned sheets with knuckles, "Please I'm begging you, take a chance at the side you haven't known because if we let all of this fall into Navarre's hands we'll have fought for nothing. All of everything will have been for *nothing.* Navarre will force them out, The Senarium will take Tyrrendor from me. The Poromish will die fighting like they have been, Navarre will close Tyrrish borders again and won't let anyone past our wards; you've seen it, it's why we're in Aretia now! If I have some semblance of control I could stand a fighting chance at at least controlling the damage here!"
 
@@ -1198,10 +1200,49 @@ His Red's one rule is emblazoned across his heart and mind; Cath wants Dain to c
 
 ---
 
-He promises Violet they'll finish talking tomorrow as he exits her bedroom.
+He placates Violet by assuring her that they'll finish talking tomorrow as he exits her bedroom. He's decided after learning more about Jack *fucking* Barlow and venin that he's simply done for the night. 
 
 His legs are made of lead and his body multiplies the effects of gravity as their conversation replays infinitely in his mind. She hadn't asked him anything, which is odd. He speculates that perhaps she simply hasn't gotten to asking for whatever it is she needs. Violet had only mentioned his unconditional support and hopeful understanding wich would probably be necessary for her eventual request.
 
-*"Do you mind telling Fierge that I'll be unvailable in the morning?"*
+*"Do you mind telling Fierge that I'll be unavailable in the morning?"*
 
-Cath lets a spiraling heat braid into the bond and Dain pulls the last of his wits together enough to move his feet.
+Cath lets a spiraling heat braid into the bond and Dain pulls the last of his wits together enough to move his feet. He makes it to the end of the familial quarter and stands just ahead of the posted watch before deciding against a shower and his bed, He ends up in the Mess Hall, where the overnight house staff are eating their first meal of the day; mid-rats for cadets, but a warm, private breakfast for civilians starting their day, Dain helps himself to coffee of course. He sits at a random table, the first after about a dozen past directly ahead of wear he's handed his cup.
+
+Had Violet trusted him, would her decisions have seen different conclusions?
+
+If she could've trusted him in the way he'd wanted her to, could he have prevented some of the contingencies that were now occurring more like incurable plague rather than recoverable wounds? There's only so much relief to be found in agonizing over the bed he's made, so he allows himself to induce the fantasy where he makes all the right moves and curbs Violet from her wrong ones for maybe a few seconds before his emotions begin to cannibalize themselves again.
+
+He closes his eyes and grounds; Dain's breaths come in deep and slow, threatening to permanently stretch his diaphragm at the amount that is greedily kept there. Cath's magic finds him easily, touching gently at his bare feet before pulling back, folding against itself and flooding forwards again, washing up to his ankles, receding, and crashing against his calves on the third wave. He feels his lower lip tremble and then gnaws at it.
+
+In the bond, his lake is still, and no breeze rustles the leaves of thick pine and fir. All is still. Dain feels utterly *defeated.*
+
+"You're not going to drink a cup of coffee, straight, and at twelve-thirty in the morning, are you?"
+
+Wonderful, a distraction.
+
+"That was the plan." He mumbles, quietly, not quite willing to leave Cath's embrace yet.
+
+He doesn't need to open his eyes and volunteer to look beauty dead in her face to recognize who speaks to him. Dain can tell immediately at the condescending, ringing staccato of disapproval that Sloane Mairi has infiltrated his personal space. He continues grounding until a few minutes later, when he hears the soft *clink* of his cup of coffee ahead of him.
+
+"Have this instead."
+
+She's brought him tea, brown with amber-bright hues.
+
+Dain blinks from the cup of tea up to Sloane, "What is it exactly?"
+
+"Aretian Greige."
+
+"Isn't this a breakfast tea?" he advocates stubbornly.
+
+Sloane tips her chin up at him, "And? You were just about to have a cup of coffee after midnight."
+
+"Yeah, true." Dain musters up a chuckle, "But why are you still up, and how are you down here?"
+
+"Lied to the post," she takes two fingers and makes a simple walking gesture, "Then I used my legs to get down the stairs and into the Mess Hall."
+
+She's wearing a pair of her uniform trousers tucked messily into her boots with a simple black tunic that definitely isn't a uniform item. Sloane looks comfortable, but somehow as tired as he feels. Must be a shit night for both of them.
+
+"I expect you on time tomo——"
+
+Sloane scoffs, "Don't worry wingleader, I'll be seeing you first thing in the morning."
+
