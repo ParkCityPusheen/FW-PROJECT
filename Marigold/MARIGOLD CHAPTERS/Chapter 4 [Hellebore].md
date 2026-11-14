@@ -126,7 +126,7 @@ To Dain it's mostly successful and easy to execute as long as he's consistent in
 
 "Cath would never suggest I do something that he doesn't believe is within my potential." Dain blusters.
 
-Kaori nods, and whips out a notebook similar to Dain's with a speed that makes him squirm uncomfortably. Dain makes a personal note to avoid mimicking the same action.
+Kaori nods, and whips out a notebook similar to Dain's with a speed that makes him squirm uncomfortably. Dain makes a personal note to abstain mimicking the same action.
 
 "Cath suggested these evolutions of his own volition?"
 
@@ -246,7 +246,7 @@ Kai's voice slips between the third-years, "I'd say him choosing to be around yo
 
 Dain's interest in the staff entrance around the back of the Fortress wavers. 
 
-"How do you all know them?" He mutters, peeking over at Catriona.
+"How do you all know them?" He hums, peeking over at Catriona.
 
 "Ruehn Mulder is a field medic. Navarre's very best. He's recognized for performing lifesaving surgeries in the middle of combat zones regardless of the climate and danger." she digs her teeth into her lower lip, "His first duty station was in one of Navarre's Esben posts right at the edge of Montserrat. He was injured in one of only rider flier altercations involving a summit wing over the last decade."
 
@@ -342,7 +342,7 @@ Catriona sucks her teeth behind them.
 
 That's all the confirmation Dain needs to know Riorson actually fucking *gone.* 
 
-He can't avoid this for much longer, and honestly doesn't want to. He soaks in the crushing acknowledgement and lets his resolve morph again.
+He can't evade this for much longer, and honestly doesn't want to. He soaks in the crushing acknowledgement and lets his resolve morph again.
 
 "I'm not." Dain gently works his wrist out of her grip and leans against the wall to the right of the classroom threshold, "I have the feeling if I don't help her there won't *be* life after Basgiath."
 
@@ -538,31 +538,31 @@ The flier shrugs, "Very, considering only pockets of it exist, that we currently
 
 Halson's voice rings out beside him, "Very complicated."
 
-"How do you know?" Baylor asks, across the room at a table that includes Avalynn, Lynx and Sloane. He'd forgotten they were there trying to avoid anymore conversation with Matthias earlier.
+"How do you know?" Baylor asks, across the room at a table that includes Avalynn, Lynx and Sloane.
 
 Halson flings her focus to his table, dragging a hot glare across Baylor and his year-mates, "Because Cliffsbane is where the runes to defeat venin originated. We've been fighting these gangly fucks much longer than you all have."
 
-Horatio coughs and scratches the back of his neck, "Can we lose the pointless animosity please, we've got a fighting chance at never having to go back to Basgiath so let's not turn Aretia into a second one during the process." He points at Halson, "You get all snippy when you're focused. Cool it."
+Baylor bristles the same, "Yet there's never been a gift useful in contribution to killing them, has there?"
+
+Horatio coughs and scratches the back of his neck, "Can we lose the pointless animosity please? Killing the same enemy and fighting about it is embarrassing." He points at Halson, "You get all snippy when you're focused. Cool it."
 
 Dain winces; he can hear Halson's teeth grinding against themselves. For a moment she reminds him of Kaia.
 
-"Anyway, I can't think of another alloy that has the effect this one does on venin and wyvern, and I feel like the Continent might be drained clean by the time you find another."
+"Baylor, one more time and you're doing laps up the valley." Matthias fires across the classroom.
 
-"Why?" Dain mutters, "How'd they even find this one?"
+"Anyway, that General Melgren ordered the manufacturing of alloy last year just before Resson was drained. I can't think of another alloy that has the effect this one does on venin and wyvern. And, that being said, there's no starting point or base line in what does and doesn't harm them. Dragon fire won't even kill them, and dragon fire kills everything."
 
-Horatio flips his palms outwards, "Beats me, General Melgren ordered the manufacturing of alloy last year just before Resson was drained. And, that being said, there's no starting point or base line in what does and doesn't harm them. Dragon fire won't even kill them, and dragon fire kills everything."
-
-"There's bound to be a signet that'll be able to kill them."
+"There's bound to be a signet or gift that'll be able to kill them." Halson argues.
 
 Violet's name is thrown into the discussion, along with Riorson's, and eventually the room explodes into a discussion regarding signets incapabilities. As much as Dain would love to join in on the conversation he can't help sneaking a look at Catriona. She's planted the side of her face onto the table and is already watching him; they stare at each other, until finally Dain asks,
 
 "Isn't weaving a rune technically imbuing? I took my magic and stored it in a medium, essentially that's imbuing."
 
-Catriona's eyes close, "Yes, but not entirely because you're giving a command and specific amount of magic to a medium not just transferring your power, and also this," she lifts a lazy arm and drops Dain's first sound shield between them, right next to the new one, "can't be used again."
+Catriona's eyes close, "Yes, but not entirely because you're giving a command and a specific amount of magic to a medium not just transferring your power into something that might have had it's own to begin with, and also this," she lifts a lazy arm and drops Dain's first sound shield between them, right next to the new one, "can't be used again."
 
 "Why?" Dain groans, "I did it right."
 
-"Somewhere along the line you meant for it to be used only once."
+Catriona analyzes the disc, "Somewhere along the line you meant for it to be used only once."
 
 They stare at each other, quiet, and then finally, Dain deflates, "I'm going to Violet tonight."
 
@@ -1200,7 +1200,7 @@ His Red's one rule is emblazoned across his heart and mind; Cath wants Dain to c
 
 ---
 
-He placates Violet by assuring her that they'll finish talking tomorrow as he exits her bedroom. He's decided after learning more about Jack *fucking* Barlow and venin that he's simply done for the night. 
+He placates Violet by assuring her that they'll finish talking tomorrow as he exits her bedroom. He's decided after learning more about Jack *fucking* Barlowe and venin that he's simply done for the night. 
 
 His legs are made of lead and his body multiplies the effects of gravity as their conversation replays infinitely in his mind. She hadn't asked him anything, which is odd. He speculates that perhaps she simply hasn't gotten to asking for whatever it is she needs. Violet had only mentioned his unconditional support and hopeful understanding wich would probably be necessary for her eventual request.
 
@@ -1224,19 +1224,17 @@ Wonderful, a distraction.
 
 He doesn't need to open his eyes and volunteer to look beauty dead in her face to recognize who speaks to him. Dain can tell immediately at the condescending, ringing staccato of disapproval that Sloane Mairi has infiltrated his personal space. He continues grounding until a few minutes later, when he hears the soft *clink* of his cup of coffee ahead of him.
 
-"Have this instead."
-
-She's brought him tea, brown with amber-bright hues.
+"Have this instead." She's brought him tea, brown with amber-bright hues, "
 
 Dain blinks from the cup of tea up to Sloane, "What is it exactly?"
 
 "Aretian Greige."
 
-"Isn't this a breakfast tea?" he advocates stubbornly.
+"Isn't this a breakfast tea?" he advocates stubbornly. It's a Tyrrish breakfast tea, he has no issue with it, but it comes off a bit contradictive which Sloane usually is. Dain bites the inside of his cheek; maybe he should've just accepted it.
 
 Sloane tips her chin up at him, "And? You were just about to have a cup of coffee after midnight."
 
-"Yeah, true." Dain musters up a chuckle, "But why are you still up, and how are you down here?"
+"Yeah, true." Dain musters up a chuckle, amazed that they've effortlessly skated past the possible confrontation regarding his Navarrian tastes, "But why are you still up, and how are you down here?"
 
 "Lied to the post," she takes two fingers and makes a simple walking gesture, "Then I used my legs to get down the stairs and into the Mess Hall."
 
@@ -1244,5 +1242,118 @@ She's wearing a pair of her uniform trousers tucked messily into her boots with 
 
 "I expect you on time tomo——"
 
-Sloane scoffs, "Don't worry wingleader, I'll be seeing you first thing in the morning."
+Sloane scoffs, "Don't worry wingleader, I'll be seeing you first thing in the morning." she works her jaw and clears her throat, then plays with her hair.
 
+Dain lets himself watch. He feels like he's blinking slowly; eyes opening to take in the color of groupings of drying blonde strands, and no matter where he looks every shade is gilded or golden. She collects it in two soft hands, fingering through the bunches of it to loosen the one or two knots midway through the length of it. He can smell the soap she'd used to wash it from here; it's grassy and floral but he needs to lean in to pin the notes and fights the urge to do so.
+
+"It won't be as nice cold, Aetos." Sloane declares after she finishes the kerfuffle with her hair, "Are you in there?"
+
+He bites his tongue attempting to stop the words from coming, but he hears them and so does Sloane.
+
+"Wish I wasn't."
+
+Her eyes go round. They're a muted blue underneath the massive mage light fixtures secured to the rafted ceiling above them, and when she doesn't say anything, or deliver a sardonic response in exchange, he takes the hot tea and sips a first taste.
+
+Sloane watches him this time, intently so, calculating what—who fucking knows, but it makes Dain want to fidget. He can't escape her labradorite stare so he drinks again. The burn of Aretian Greige makes him wince though it's a welcomed distraction that Dain chases. It's a good tea, nicer than anything offered here in the Mess Hall; it's even sweet on it's own, Dain swirls the amber brown liquid in his cup, the taste is even but *cheerful* if he had to give it a human descriptor. This is the exact type of tea his mother would've liked, possibly even one she might've brewed for himself and his father at some point.
+
+"Is this yours?" he begins, mostly to escape his earlier comment, but also to distract himself, "It's too nice to be offered here Mess Hall."
+
+A corner of Sloane's plush lips pull up, "It's mine, yes. Are you going to try and confiscate it?"
+
+"What grounds would I have to do that?" Dain hisses, setting the cup down with too much haste, it clacks against the table and Sloane winces, "I'm *not* an asshole for fun."
+
+"Never said you were," SLoane bites back.
+
+Dain feels his forehead strain, his brows pinch together. "No, you don't need to because you're always insinuating it. You chose to sit here, and you're choosing to be an asshole too."
+
+"I'm trying to be fucking nice to you, Aetos. And you pointing out how horrid a job I'm doing gets you nowhere. I have a fucking reason for all of this animosity towards you, forget that?"
+
+"I'm *trying,* I've been trying, it's not my fault that——"
+
+"——What is wrong with you?" Sloane groans, "Whatever is going on in that massive brain of yours right now has nothing to do with me, so why not talk to me about it instead of turning on me? The tea was a peace offering, nimrod."
+
+This time, Dain's whole face scrunches together.
+
+He is doing his best.
+
+He's taking hit after hit straight to his fucking teeth and in his life where the dissemination of the only world, province, and reality he's ever know is constantly in progress. There's never a chance to properly review the changes as they happen; it's a yes or no, and then a stay or go. There;s no one to talk to about it.
+
+It would be nice to confide in another human, in another rider, but it couldn't be Sloane, could it? A first year, who hates him? It's not as if there's no one; Darius and Kaia are right there... but maybe this is another chance at atonement with Sloane. Maybe she wants more than just ferocity with him, because he wants that, too.
+
+Of course he does, Dain laments. He's responsible for her, and it would make tutoring her considerably easier if they could manage a conversation without taking turns offending one another. This is exactly the type of opportunity to take advantage of, especially when Sloane's the one extending it. But Darius wouldn't have made him wonder whether the offer was genuine and neither would Kaia. He wouldn't have spent a second questioning whether either of them actually wanted to hear what he had to say; they've made impossible for him to misunderstand their intent to get to know him more.
+
+But, with Sloane, he finds himself *hoping* that she does.
+
+And it's a ridiculous thing to hope for, considering she's just told him as much. He should take her at her word and accept this kindness for what it is, and spare them both another argument. Instead, he's contemplating whether she'd regret offering it if he accepted. He rather likes the idea of her wanting to speak with him, especially when Sloane is nothing less than intelligent and far more than capable.
+
+Perhaps that's all he's wanted from her for a while now, but this is an unnecessarily sentimental conclusion to draw from a cup of tea.
+
+What does he even say?
+
+"Why can't you sleep?"
+
+Sloane's eyes shy away from his own, "I had a dream about Liam."
+
+Well, *fuck.*
+
+"What happened?" He presses while praying to every God he can until Sloane speaks again.
+
+"I was watching him through the windows of our home. He was just talking to Mom and Dad. Nothing unusual. Just laughing." Sloane folds her arms against the table and lays her head atop of them, her hair tumbles over her face and she flicks it back; it splays across the other side of the table like silken spiderwebs.
+
+Dain chews on his tongue, "I have dreams like that sometimes, with my mom."
+
+He's not sure this is the correct route to go, but something so sensitive deserves something it's worth. He drinks his tea, and Sloane lifts up to go for her own and then reassumes her position with her face again the top of her hands, watching him.
+
+"Your mom died?" she nearly whispers, eyes shining with grief for *him.*
+
+Dain drinks again and looks down at the glass to see it's nearly empty now.
+
+"No, she's alive, somewhere." he pulls his brown eyes back to Sloane's greyish-blue ones, "She left when my Dad was stationed in Luceras, when I was fifteen. She used to write me letters, not too often, though she wrote me more than we spoke the last five years of her being around."
+
+"Used to?" Sloane yawns and her eyes water, "Sorry, just tired."
+
+"Yeah, she stopped—" He looks to her right again, "—your hair is all over the table."
+
+Sloane rolls her eyes, "So?"
+
+Dain taps the wooden surface, "It's probably dirty, your hair is clean."
+
+"You don't want my hair to get dirty?" Sloane giggles, "I don't think it's that big a deal, Aetos."
+
+Dain feels his neck get hot, "Your hair is nice, I just don't want it to get dirty." he shrugs, the flounders away from his observation, "Anyway, yes used to. She stopped sending letters my first year."
+
+"Seems like a weird choice," Sloane sits up and pulls her hair over her left shoulder, Dain follows it's trail down past her breasts, "Did you and your mom not get along?"
+
+He doesn't bother giving the question too much to consideration; anymore emotional stress and he just might experience a mental burnout.
+
+"I thought we did," he focus bounces around before narrowing to Sloane again, "But, you know, I have a tendency to be horribly wrong."
+
+Sloane nods in agreement, "It's not your fault she stopped writing though."
+
+"Isn't it?"
+
+She gives him an indignant look through long lashes and presses her index finger into the table; her face carries obvious irritation that Dain hopes isn't due to saying the wrong thing again, "Why does everything have to be your fault?"
+
+"Just feels like it normally is." He finishes his tea, sets it on the table and gives Sloane a weak smile, "And she never wanted me to be a rider, so it's not entirely unreasonable."
+
+The first year takes her time answering, long enough that Dain starts to rub the handle of the teacup with his thumb; maybe they shouldn't be discussing these things that are clearly guarded.
+
+"But did she every *say* that to you? Did she tell you that?" Sloane's eyes follow the movement of his thumb.
+
+Dain shrugs, "No."
+
+"So there's no way to tell is there?"
+
+"No. There isn't." he leans back and gives Sloane a quizzical look, "What's your point?"
+
+"I've just been thinking," Sloane begins, retrieving his cup, "that maybe there's more to blame than just knowing where to put it." She drags it back to sit next to her own identical one; those must be hers too, "Funny how much that depends on who's asking, isn't it?"
+
+"I can't see past it belonging to anyone besides myself." Dain confesses stubbornly.
+
+Sloane takes the two cups in one hand and gives him stiff nod.
+
+"Separating logic from the grief and guilt is the shittiest part." She stands and kicks the leg of the table before stalking off,
+
+"Get some sleep wingleader." the blonde spins around and gives him a thumbs up, "Thanks for letting the post on my floor know I had permission to leave too."
+
+Dain's eye twitches; he most certainly had not agreed to that.
