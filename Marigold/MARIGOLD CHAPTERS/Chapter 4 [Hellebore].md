@@ -1195,3 +1195,13 @@ Disappointing Violet also isn't a factor in his decision here; he couldn't give 
 His Red's one rule is emblazoned across his heart and mind; Cath wants Dain to choose *him,* to choose his bond. Dain pulls his face out of his thighs where he'd bent it to.
 
 "The same as us," Dain bleats, croaking out their truths, "Life."
+
+---
+
+He promises Violet they'll finish talking tomorrow as he exits her bedroom.
+
+His legs are made of lead and his body multiplies the effects of gravity as their conversation replays infinitely in his mind. She hadn't asked him anything, which is odd. He speculates that perhaps she simply hasn't gotten to asking for whatever it is she needs. Violet had only mentioned his unconditional support and hopeful understanding wich would probably be necessary for her eventual request.
+
+*"Do you mind telling Fierge that I'll be unvailable in the morning?"*
+
+Cath lets a spiraling heat braid into the bond and Dain pulls the last of his wits together enough to move his feet.
