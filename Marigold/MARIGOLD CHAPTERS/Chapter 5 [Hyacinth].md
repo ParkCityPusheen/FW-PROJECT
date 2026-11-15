@@ -20,17 +20,17 @@ Sloane fidgets with the tray, and looks away, but then her eyes are on him again
 
 "I have orders to bring you your meals."
 
-Dain wants to roll his eyes, "On whose orders?"
+Dain wants to roll his eyes; guess this is what she'd meant when she said *first thing in the morning.* "On whose orders?"
 
-"Lieutenant Colonel Sorrengail's."
+"Lieutenant Colonel Sorrengail's." the cadet coos.
 
 "Did he happen to mention why?"
 
-Sloane shifts her weight along her hips, "You didn't take the food from me."
+Sloane shifts her weight along her hips, "You didn't take the food from me a few nights ago. This is the consequence of failing to follow a direct order."
 
 He presses the flat of his fingers against his beard and rubs, then steps aside; it's too early to argue. He doesn't have the energy to match her.
 
-"I get that I was being combative." she huffs, passing by him when he pulls the door open completely and steps aside to let her in.
+"I get that I was being combative." she huffs, passing by him when he pulls the door open completely and steps aside to let her in, "So now, we get to suffer together. Additionally."
 
 He catches her eyes as she goes, but there only emotions he doesn't understand her well enough to translate for himself. He's also fully and appropriately clothed, clad in the soft, dark colored fabrics he's always preferred to sleep in. Still, he looks towards his bare feet to make sure his pants are hugging his hips properly.
 
@@ -40,9 +40,9 @@ He catches her eyes as she goes, but there only emotions he doesn't understand h
 
 This. *Fucking.* Dragon.
 
-Of course he can't answer to his name in their bond, but can still force a meal to appear. Impeccably parent-like and invasive, as usual.
+Of course he can't answer to his name in their bond, still *won't* reveal anything about the memory he'd seen yesterday, but can still force a meal to appear. Impeccably parent-like and invasive, as usual.
 
-Dain rounds the table and Sloane to slink back into his bed, "Don't do this again." he orders, "I'm not invalid, but thank you anyway."
+Dain rounds the table and Sloane to slink back into his bed, "Don't do this again." he commands evenly, "I'm perfectly able of getting my own food, but thank you anyway."
 
 "What happened to your back?"
 
@@ -54,9 +54,7 @@ He pauses; the first-year's words take seconds to piece against each other, but 
 
 "You were burned?" Sloane whispers, "But you just walked away—I hadn't noticed you got hurt."
 
-"Mairi, stop."
-
-Dain twists to face her, "It's not a big deal, it healed. It's fine."
+"Mairi, stop." Dain twists to face her, "It's not a big deal, it healed. It's fine."
 
 "But it's not; I don't understand how I never noticed——"
 
@@ -68,13 +66,19 @@ She assumes a stance that is an uncanny cross between Violet and Imogen; bold an
 
 "Why didn't you get it mended?"
 
-Dain feels his mouth go dry, and turns to face the wall once more, "Thank you for breakfast. You're. Dismissed."
+Dain feels his mouth go dry, and turns to face the wall once more, "Thank you for breakfast."
 
-"When are you coming to class? It's only eight-hundred."
+"Will you stop treating me like *I'm* an issue and fucking answer me?"
 
-He doesn't answer, so Sloane speaks into the silence.
+"Put two and two together!" Dain growls, "You have the highest grades in you class year within your Wing. I don't need to explain anything to you."
 
-"You don't skip class."
+The way she looks at him makes him feel ill.
+
+
+
+
+
+
 
 "Mairi," Dain groans, "Get *out.*"
 

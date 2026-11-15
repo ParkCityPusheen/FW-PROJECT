@@ -102,11 +102,7 @@ Imogen shovels out a look that he wishes she'd take back.
 
 Dain looks down at his unfinished coffee and drains the last of the bitter liquid. He finds himself wishing she'd stayed a little longer, though he hasn't the faintest idea what else they might've discussed.
 
-
-
 ---
-
-
 
 During flight maneuvers Dain is summoned from the skies, and away from Catriona, Maren, and Kai.
 
@@ -196,7 +192,7 @@ Kaori kneads the quiet between them in observation, and passes his eyes slowly o
 
 "Yes Professor," he scratches at his throat, working it to find his voice, "I'll do that."
 
-Kaori releases Dain.
+Kaori releases Dain, "I'm here on short notice, only to guide the rest of your Wing and Second to the Fortress."
 
 *"Did you see that dragon?!"* Dain exclaims to Cath, shooting his bond a look as Kaori flips through his notebook to note something, *"Scarier than Tairn."*
 
@@ -218,19 +214,19 @@ Irritation more pure than Cath's sluices Dain's mood.
 
 Kaori gives Dain an empathetic look that only irritates the cadet further, "He's been quite busy upsetting Aretian personnel, it's not just you." and then imparts that information as if it might fucking soothe a nerve.
 
-"Orders are orders, and the Aretian Empyrean gave theirs." Dain bites out, "We serve *dragons* not his ego."
+"Orders are orders." Dain bites out, "We serve *dragons* not his ego."
 
-"Well said," Kaori praises, then pauses to look up at Cath again and back to Dain with a suspicious, newfound conviction, "Your dragon and yourself are becoming quite the topic. I hope you two will accept this path you seem to have chosen."
+"Well said," Kaori praises, then pauses to look up at Cath again and back to Dain with a suspicious, newfound conviction, "Your dragon and yourself are becoming quite the topic. It's so fascinating that such a seasoned dragon carries such nontraditional values. I hope you'll accept this path Cath chosen for you."
 
 Dain gives Kaori a perplexed glance, "Right."
 
 "Then, until next time, in Basgiath." Dain watches him trudge down the valley, back towards Riorson House.
 
-*"This is all going to be very painful isn't it."*
+*"Should I be concerned?"*
 
 Dain thinks of the battered Red for some reason, while pulling his flight goggles over his eyes.
 
-*"It always has been."* Cath sighs.
+*"With your assigned duties, yes."* Cath sighs.
 
 "Oh, Cadet Aetos?!" Kaori belts over Cath's beating wings, "I've approved your formal request for your Executive Officer!"
 
@@ -408,13 +404,13 @@ Maren enters a coughing fit and Catriona's laugh joins her with unnecessary gigg
 
 Sloane is being praised for finishing her *third* sound shield and casually finishing one of Lynx's. Pretty, and gifted, and off-limits.
 
-Fuck them. His forehead wrinkles as Dain suspends himself into the bond, he reaches for Cath and feels gravelly sand beneath his feet; he finds his Red there. Cath stares down at him,
+Fuck them. His forehead wrinkles as Dain suspends himself into the bond, he reaches for Cath and feels gravelly sand beneath his feet; he finds his Red there. A whisping, glittering projection of him stares at Dain from the center of their lake,
 
 *"I'm going to teach you how to weave a rune today, Cath."*
 
-Cath's chin jerks downwards as Dain imagines the process in his head, *"Very well."* His dragon remarks, then sarcastically adds, *"I will be the first of dragonkind to make one."*
+Cath's chin jerks downwards as Dain considers the process in his head, *"Oh, joy."* His dragon remarks, then sarcastically adds, *"I will be the first of dragonkind to create one."*
 
-*"It's been a while,"* he whispers stupidly, *"But I've done it before, right?"*
+*"It's been a while,"* Dain reminds himself stupidly, *"But I've done it before, right?"*
 
 Cath's Swordtail flicks out, but the water doesn't splash around it. *"Exactly twice."* 
 
@@ -422,15 +418,15 @@ Dain's fingers itch, he takes from Cath, borrows graciously to create from what 
 
 *"Firstly, once you've selected your medium, you must define the rune's intended purpose."*
 
-Dain peeks up at Cath and finds marigold eyes the size of church bells peering back at him.
+Dain peeks up at Cath and finds faux marigold eyes the size of church bells peering back at him.
 
 *"Ours is just a simple sound shield. It need only establish a small perimeter around the user, containing all sound produced within it,"* his hand moves on its own, hand caressing the Hemlock disk with all fingers excluding his thumb that drags close along the edge of its surface subconsciously searching for the shapes of *shield* and *sound,* *"and blocking all sound originating beyond it"*
 
-His fingers itch so badly Dain nearly stops grounding to scratch them and Cath's head dips downwards to where Dain stands in their lake,
+His fingers itch so badly Dain nearly stops grounding to scratch them and Cath's head dips further downwards to where Dain is planted against the shores in their lake of magic,
 
 *"The way they're written doesn't make any sense."* Dain complains.
 
-Cath's head twists exactly ninety degrees in thought.
+Cath's head twists exactly ninety degrees in thought. Freaky lizard.
 
 *"Languages are written across mediums to create words,"* Cath supplies, *"you said once before, runes seem logosyllabic to you."*
 
@@ -543,6 +539,8 @@ Halson's voice rings out beside him, "Very complicated."
 Halson flings her focus to his table, dragging a hot glare across Baylor and his year-mates, "Because Cliffsbane is where the runes to defeat venin originated. We've been fighting these gangly fucks much longer than you all have."
 
 Baylor bristles the same, "Yet there's never been a gift useful in contribution to killing them, has there?"
+
+"Oh, there's a signet that does? I had no idea!" Halson flings back.
 
 Horatio coughs and scratches the back of his neck, "Can we lose the pointless animosity please? Killing the same enemy and fighting about it is embarrassing." He points at Halson, "You get all snippy when you're focused. Cool it."
 
@@ -1304,7 +1302,7 @@ Dain chews on his tongue, "I have dreams like that sometimes, with my mom."
 
 He's not sure this is the correct route to go, but something so sensitive deserves something it's worth. He drinks his tea, and Sloane lifts up to go for her own and then reassumes her position with her face again the top of her hands, watching him.
 
-"Your mom died?" she nearly whispers, eyes shining with grief for *him.*
+"Your mom died?" she nearly whispers, eyes shining with grief for him.
 
 Dain drinks again and looks down at the glass to see it's nearly empty now.
 
