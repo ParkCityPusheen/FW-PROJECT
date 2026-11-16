@@ -956,7 +956,7 @@ Dain's words fit through his grit teeth, and he lifts a hand to silence Violet, 
 
 "Dain." Violet is trembling, gripping the edge of the upturned sheets with knuckles, "Please I'm begging you, take a chance at the side you haven't known because if we let all of this fall into Navarre's hands we'll have fought for nothing. All of everything will have been for *nothing.* Navarre will force them out, The Senarium will take Tyrrendor from me. The Poromish will die fighting like they have been, Navarre will close Tyrrish borders again and won't let anyone past our wards; you've seen it, it's why we're in Aretia now! If I have some semblance of control I could stand a fighting chance of at least controlling the damage here!"
 
-Dain's brows launch off of his forehead entirely, "Violet no one within Navarrian nobility is going to take you seriously as a Duchess regardless of what you've accomplished, you are no *Riorson.* You might be considered even less without him——"
+Dain's brows launch off of his forehead entirely, "Violet, no one within Navarrian nobility is going to take you seriously as a Duchess regardless of what you've accomplished, you are no *Riorson.* You might be considered even less without him——"
 
 "——Which is why I need you! I need as many people as close to me that I can trust as possible. We have to figure out——" her hands launch up to the sky, "——whatever we can if it means remaining independent. For Cath, for Poromiel, for humanity, whatever makes this an easier pill to swallow. Find a reason to pick me. Please."
 
