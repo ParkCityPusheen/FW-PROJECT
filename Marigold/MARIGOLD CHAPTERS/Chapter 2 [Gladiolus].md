@@ -214,11 +214,11 @@ Dain snaps his mouth shut and walks past his dragon, falling back into his posit
 
 Once he's situated, posture rigid, and Cath ascending the valley to a much further point where he can observe the humans with unending ennui, Dain empties his mind and absorbs the information Trissa begins to broadcast across the Wings.
 
-"In light of recent events, the academic calendar will pause until more stable grounds have been established regarding matters outside of Basgiath. Second and the rest of Fourth Wing will be joining us here at Aretia, with all Wings rotating between Basgiath and Aretia every fortnight. During this time, a reduced curriculum will remain in effect, consisting primarily of weapons training and sparring, flight maneuvers and tactics, and rune weaving."
+"In light of recent events, the regular academic calendar is suspended and replaced by this temporary reduced schedule until stability has been established regarding matters outside of Basgiath. Second and the rest of Fourth Wing will be joining us here at Aretia, with all Wings rotating in pairs between Basgiath and Aretia every fortnight. During this time, a reduced curriculum will remain in effect, consisting primarily of weapons training and sparring, flight maneuvers and tactics, and rune weaving."
 
 Trissa allows a passing minute of silence, waiting for the whispering to die down, then carries on.
 
-"Supplementary academic instruction will continue in military strategy, combat theory, and runic theory. Cadets are required to attend a minimum of three instructional days each week. Battle Brief, when it is held, is mandatory for anyone at station, but it does not by itself satisfy an instructional day. The remaining days may be used for deployment and recovery operations in Draithus, subject to medical clearance and operational necessity. No cadet will be tasked to Draithus more than four days in a week."
+"Supplementary academic instruction will continue in military strategy, combat theory, and runic theory. Cadets are required to attend a minimum of three instructional days each week. Battle Brief, when it is held, is mandatory for anyone at station on Sundays as the only required class that day. The remaining days may be allocated to deployment and recovery operations in Draithus, subject to medical clearance and operational necessity. No cadet will be tasked to Draithus for more than four days in a week, and deployment will not supersede academic requirements. Previously scheduled examinations will remain in effect unless otherwise directed by the presiding professor."
 
 Dain almost groans aloud and just barely manages to keep from dramatically rolling his head along his shoulders, *"Great. Who's idea was it to send the rest of the Wings here?"*
 
@@ -228,13 +228,11 @@ Dain eyes meet Cath's, and from afar the Red flashes his teeth.
 
 "Wingleaders should observe their Wings at the best of their ability throughout this time, we expect you all to preserve a regular order by whatever means you deem necessary." Devera finishes, "Your professors will all be either in the theatre, teaching one of the supplementary courses, or in the office directly across the Mess Hall. Maintain use of your chain of command, as per usual."
 
-When Devera and Trissa leave, they do so after handing out cloned scrolls with the reduced schedule for the classes, and the deployment tasking, to each wingleader. Cath creeps closer, just a few dozen meters behind Dain, while his Wing inches towards him, watching with expectant eyes.
+Trissa's eyes flick from Jareth to Dain, then shuffles away, "Leadership, please select the squads for Draithus."
 
-Dain's mind clicks, puttering into gear before he speaks.
+When Devera and Trissa leave, they do so after handing out cloned scrolls with the reduced schedule for classes and the available deployment assignments. Cath creeps closer, just a few dozen meters behind Dain, while his Wing inches towards him, watching with expectant eyes. Dain's mind clicks, puttering into gear before he speaks.
 
-Second Wing files in closer as well, Eleni Jareth and her Executive Officer, Tyvon Varen, huddle nearby him while the cadets mix into his Wing.
-
-"Sup, Aetos." Jareth perks up, clapping him against his shoulder, "I'm shot from the flight in, so you wanna rub our heads together for this?"
+Second Wing files in closer as well, Eleni Jareth and her Executive Officer, Tyvon Varen, huddle nearby him while the cadets mix into his Wing, "Sup, Aetos." Jareth perks up, clapping him against his shoulder, "I'm shot from the flight in, so you wanna rub our heads together for this?"
 
 Dain's eyes swing from Jareth to Varen, both seem to bear no malicious intent, but Dain glances up and over to Cath where four other dragons have joined him.
 
@@ -262,15 +260,15 @@ There's a neutral murmuring happening around them, Dain simply speaks over it, l
 
 "Power in numbers," Varen adds.
 
-He waits for the collective groan, and there it is. Dain smiles empathetically.
+He waits for the collective groan, and there it is. Dain smiles empathetically and unrolls the scroll, scrutinizing each word and then summarizing it for their Wings
 
-"Today's deployment group is Claw and Tail. Claw Section, Squad One is on evacuee reception in Medaro's Pass and the Outer Quarter within Aretia until dismissed. Tail Section, Squad Two, evacuation transport and supply distribution. Muster with the veteran riders at the courtyard. They'll have the rest of your directives."
+"Assignments will rotate throughout the week. You're still responsible for meeting your instructional requirements, so if there's a conflict, tell your Section Leader before it becomes my problem. I'd prefer not to spend the next two weeks correcting preventable mistakes." He takes a second to think, then decides, "Claw Section, Squad One, and Tail Section, Squad Two, you're assigned to Draithus. Report to the veteran riders in the courtyard for your directives."
 
 Dain watches those squads file out.
 
-Likewise, Jareth mimics his assignments for Second Wing, but starting with Flame Section and Tail Section.
+Likewise, Jareth duplicates his assignments.
 
-"The rest of you are on the instructional schedule. Those three classes start with flight maneuvers, right here in the valley. Standby for whoever comes in."
+"The rest of you are on the instructional schedule. Today's instruction begins with flight maneuvers, right here in the valley. Standby for whoever comes in."
 
 Varen peeks over Jareth's shoulder, "There's no professor assigned?"
 
@@ -284,7 +282,7 @@ Dain nods, "Got that?"
 
 He hears the collective "Yes Sir," from his Wing and rolls the scroll back up, tucking it away into his pocket.
 
-"They intend for deployed squads to be part of whatever current objective is happening with the active riders out in Draithus. I believe it's being treated as an expeditionary excersice. You'll be setting up a camp and operating outside of it to whoever is in command upon arrival."
+"For those of you assigned to Draithus in the coming days, you'll be joining the active riders in whatever objectives they're currently undertaking. From what I can gather, they're treating these deployments as expeditionary exercises as well."
 
 Another murmur of understanding leaves Dain satisfied and ready to step away, but a voice cracks through the air like a crossbolt,
 
@@ -372,7 +370,7 @@ He puts the pressure on the fliers and their gryphon immediately, bursting from 
 
 It's a great first step to gauge weaknesses with combined movements.
 
-Later, after he's landed, and Cath is a red dot phasing past towering stormclouds to catch himself some lunch, Dain begins scribbling those observations down.
+Later, after he's landed, and Cath is a red dot phasing past towering stormclouds Dain begins scribbling those observations down.
 
 *Dragon size and speed, gryphon amount, flight paradigm.*
 
@@ -404,7 +402,7 @@ Dain grins, he can't fight it when it comes to his Red, "He's the greatest."
 
 Something in Catriona's eyes softens at his expression, but she fixes the look nearly instantly when Richter weaves through the cadets and to Dain's side. He speaks merrily, clapping Dain on his back whilst hollering.
 
-"I expect each squad to develop a tactical formation based on what we've covered this fortnight. Wingleaders, you'll review their proposals, and for our final evaluation prior to returning to Basgiath, we'll pit those paradigms against each other."
+"I expect each squad to develop a tactical formation based on what we'll cover this fortnight. Wingleaders, you'll review their proposals, and for our final evaluation prior to returning to Basgiath, we'll pit those paradigms against each other."
 
 Dain's shoulders slump. More shit.
 
