@@ -78,3 +78,9 @@ Only where an order was stated.
 **Andarna:** Speaks to Dain with Violet present, and addresses him before Violet.
 
 **Frame:** Follows Chapter 4. Sets the condition above. Does not close these threads.
+
+
+
+when talking to sloane this is the assignment breakdown if she asks:
+
+"Claw Section, Squad One is on evacuee reception in Medaro's Pass and the Outer Quarter within Aretia until dismissed. Tail Section, Squad Two, evacuation transport and supply distribution. Muster with the veteran riders at the courtyard. They'll have the rest of your directives."
