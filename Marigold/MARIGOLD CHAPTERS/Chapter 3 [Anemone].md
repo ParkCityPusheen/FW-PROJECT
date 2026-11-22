@@ -846,13 +846,13 @@ Previously the uproar within the Quadrant had been plausible: many were unaware 
 
 "Aetos."
 
-The brunette lifts his head up to find Catriona peering down at him, she's opted to take the seat in the row directly ahead of him and the rest of Squad Two files to take up the seats following hers. Violet and Ridoc are missing, as well as Aaric. Sloane sits between Lynx and Avalynn at the beginning of their row, with Imogen and Matthais just before Kai and Maren; Sloane makes eye contact with Dain and holds it before glancing away,
+The brunette lifts his head up to find Catriona peering down at him, she's opted to take the seat in the row directly ahead of him and the rest of Iron Squad files to take up the seats following hers. Violet and Ridoc are missing, as well as Aaric. Sloane sits between Lynx and Avalynn at the beginning of their row, with Imogen and Matthais just before Kai and Maren; Sloane makes eye contact with Dain and holds it before glancing away,
 
 "Catriona."
 
 "Can we talk after Battle Brief?"  
   
-Dain nods and she turns to face the dais, seated in the same row as the rest of Squad Two, directly in front of him.
+Dain nods and she turns to face the dais, seated in the same row as the rest of Iron Squad, directly in front of him.
 
 "You piss her off?" Eleni noses, whispering against her palm held up ahead of her face, "She might beat your ass."
 

@@ -252,7 +252,7 @@ He shakes hers and her EO's, then turns to face the Wings,
 
 Jareth waves to her Wing, they wave back.
 
-Dain's eyes find Violet, and hers find him through the sparse crowd of bodies. There's over ninety riders present now, compared to the fifty broken and beaten in the theatre yesterday, and forty fliers in the combined Wings. One being Catriona, who peers at him through squished eyes and long lashes.
+Dain's eyes find Violet, and hers find him through the sparse crowd of bodies. There's over ninety riders present now and forty fliers in the combined Wings. One naturally being Catriona, who peers at him through squished eyes and long lashes.
 
 There's a neutral murmuring happening around them, Dain simply speaks over it, looking past Violet, and projecting his voice over the student body with lesser magic, "We don't have a time squeeze currently, so I'll make rounds to each squad with a watchbill for patrols and watch stations by tonight." He dips his head to Jareth.
 
