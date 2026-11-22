@@ -393,7 +393,7 @@ Sloane lifts onto her toes—why does she even do that, it's cute not intimidati
 Imogen holds her hands out, palms up, "Then the two of you could train your signets together."
 
 "Ah." Dain shakes his head vigorously, glares at Imogen, and gives Sloane a scathingly pointed glance. "No, last I checked you have *two* other seniors, right here, who could be training you."  
-  
+
 Tavis put her up to this and she recruited Matthias to help, no doubt. That's what this morning was about.
 
 "I don't think so. From the sounds of it you have a better hang on Sloane's signet than I do. And she listened to you, she won't listen to me."
@@ -851,7 +851,7 @@ The brunette lifts his head up to find Catriona peering down at him, she's opted
 "Catriona."
 
 "Can we talk after Battle Brief?"  
-  
+
 Dain nods and she turns to face the dais, seated in the same row as the rest of Iron Squad, directly in front of him.
 
 "You piss her off?" Eleni noses, whispering against her palm held up ahead of her face, "She might beat your ass."

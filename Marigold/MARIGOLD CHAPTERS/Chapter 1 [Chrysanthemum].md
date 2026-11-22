@@ -774,7 +774,7 @@ Brennan's lips pull into a tight, unsatisfied line, "She's been better, but as o
 
 Dain grits his teeth to drag himself forward.
 
-"—actually, just stay there. Did you just wake up?" Brennan gestures to Dain's attire, pulling at the heavy fabric of his sleeping shirt, prompting its removal, "I know Fourth Wing was one of the first Wings reported returned and accounted for, and patrolling, good job kid."
+"—actually, just stay there. Did you just wake up?" Brennan gestures to Dain's attire, pulling at the heavy fabric of his sleeping shirt, prompting its removal, "You and Cath did fantastic handling all that the two of you had, good job kid, I'm extremely impressed."
 
 "Thanks, Brennan."
 

@@ -86,7 +86,7 @@ He hopes he looks fine, because everything is far from it.
 
 Dain arrives with impeccable timing at the base of the valley.
 
-He wordlessly receives muster reports from each of his Section Leaders (excluding Bodhi, who's probably off with Riorson and Tavis doing whatever Riorson, Tavis, and Bodhi do). He hadn't been expecting the sudden reinforcement of cadets that he rakes his eyes across from Basgaith, but he also isn't surprised considering what had just taken place. He glances over the paper-slip reports which contain their squad leader's reports after collecting all of Flame Section's, a cohesive attendance of the whole Wing to be delivered by himself to the superior awaiting them.
+He wordlessly receives muster reports from each of his Section Leaders, excluding Bodhi. Bodhi is probably off with Riorson and Tavis doing whatever Riorson, Tavis, and Bodhi do. The reports are to be delivered by himself to the superior awaiting them. He hadn't been expecting the sudden reinforcement of cadets that he rakes his eyes across from Basgiath, but he also isn't surprised considering what had just taken place.
 
 Said superior, who holds a seat within the Assembly, is now their rune professor, accompanied by Professor Devera who counts the influx of displaced flier cadets sent in from Poromiel, where they'd allegedly struggled to find proper boarding.
 
