@@ -296,21 +296,25 @@ Matthias grimaces, "I wanted to tell you about the leadership restructuring that
 
 "Even General Aetos?"
 
-"Mhmm," She looks out on their cadets, suspicious as Dain is, "Sawyer as Iron Squad's squad leader, Bragen maintains his designation as Sawyer's EO, and Riftan Fenryr as Flame Section's new section leader."
+"Right. Weird isn't it," She looks out on their cadets, suspicious as Dain is, "Sawyer as Iron Squad's squad leader, Bragen maintains his designation as Sawyer's EO, and Riftan Fenryr as Flame Section's new section leader."
 
-"What's Bodhi's official status?" Dain then asks, catiously. If Fenryr has been named Flame Section, section leader that means...
+Dain gives Matthias an apologetic look, "He probably thinks having a handicapped rider will slow down the Wing. You can probably put two and two together for yourself, but he's spiteful."
+
+"I could tell. I'm..." She starts looking the same as him and Dain doesn't let her get the chance to apologize to him for his father's actions.
+
+"What's Bodhi's official status?" Dain then asks, catiously. If Fenryr has been named Flame Section, section leader that would mean Bohdi's absence has been confirmed up the chain of command. 
 
 "Missing in action, the same as Riorson. As of this morning."
 
-"Missing in action?" Dain flinches, "How?"
+Matthias doesn't look at him to say it.
 
-"Guessing you spoke with Violet?" she smiles, but is disintegrates into heavy thoughtfulness and her hands rest against her hips,
+"Missing in action?" Dain flinches, "Who determined that?"
 
-"Andarna and Cath."
+"Guessing you spoke with Violet?" she smiles, but is disintegrates into heavy thoughtfulness and her hands rest against her hips, "Andarna and Cath."
 
 Dain's rakes his hands through his hair, "But *how?*"
 
-"Ask Cath or Andarna that," Matthias's features contort the same as Dain's, "Feirge just made a comment about Cath acting extremely out of character for you."
+"Ask Cath or Andarna that," Matthias's features contort the same as Dain's, "Feirge just made a comment about Cath acting extremely out of character for you. Good thing he's got the pull to do it to then, huh?"
 
 The wingleader pauses, "I don't know about that. Cath gives his orders and I follow them."
 
@@ -546,4 +550,132 @@ She doesn't let up, instead she lifts her head off the desk, "Well that's fuckin
 
 ---
 
-Sloane sits across from him during dinner just as soon as Darius and Kaia leave halfway through him being done with his 
+"About runes? What questions do you have?"
+
+The Mess Hall is chock-full of cadets, both flier and rider, officers and staff. Most of the higher ranking riders are preparing to return to their respective posts whereas fliers have been ordered to hold fast within Draithus. Dain makes it his mission to seek runes etched into the fliers' weapons; he spots them consistently especially on the tips of arrows, hanging like charms at the hilts of swords, and even one tediously hidden along the inside of one of the thick, gold hoop earrings hugging the cartilage of Darius's midnight ears.
+
+Dain hums a bit through a mouthful of food before giving in and pulling out the Itinerarium, he sets down his fork and flips to a dog-eared page towards the back of the notebook,
+
+"About how much do higher quality mediums cost?" Dain finally asks while also retrieving his ink pen.
+
+Darius fixes him a peculiarly endearing stare while answering, "Been thinking about runes a lot, have you?"
+
+"Yes." Dain eats more of his fish. It's been caught and flown in by one of the drifts that arrived this morning to help with the displaced civilians, according to the kitchen staff.
+
+"Really, it depends. The most expensive rune we have is embedded into onyx. But there's a lot of things that wielders consider while runing. I've seen the strength of a wielder's magic break the medium and ruin the rune itself. Some of the temperature plates my dad buys for the apothecary have literally exploded before, or just cracked down the middle." Darius chews thoughtfully, "I always noticed that when the rune-weaver was replacing our destroyed runes, the plates would be made out of different stones based on our testimony."
+
+"Do the plates always have the same symbols?" Dain interrogates further.
+
+He's not sure if runes are a *literal* language themselves. Dain considers dialects and different languages themselves; are Krovlish runes woven with the same symbols as ones placed in Cygnisen? Previously, before Navarre banned them, would runes from Deaconshire look the same as runes from Tyrrendor? He gives Darius a long stare and the midnight-skinned man fidgets for a split-second while considering how to answer Dain's question; maybe he should go to Riorson House's library.
+
+Darius bites his lower lip in thought, "Mm... I couldn't say. You'd think I'd pay attention to that considering even I've put in requests for them; I don't have the ability to weave them myself though, so it's not a concern of mine to observe them so closely."
+
+Dain doesn't say anything. He catches the tops of several blonde heads bobbing about throughout the Mess Hall. None of them are Sloane Mairi, but he makes out Avalynn and Kai as they notice him across the venue themselves. Kai waves.
+
+"Why?" Darius asks Dain, eyes curious; he puts a piece of his fish atop Dain's disappearing filets, "You wanna make one for me?"
+
+"I was just thinking I'd try my hand at runes. Since my signet isn't something that kills." Dain admits as neutrally as possible.
+
+He glances up at Darius when the ebony man shakes his head roughly and smacks his fingers against the table in a playful gesture,
+
+"You're supposed to say, 'yeah Ri, I was thinking about making some for you'."
+
+Dain chews more slowly, "Do you *want* me to try making you more defective temperature plates?"
+
+"I mean," Darius smirks and presses their ankles together beneath the table, "I appreciate whatever attention you want to give me."
+
+"Then I'll try it for you." Dain puzzles inwardly and it shows on his face, "But I need to get the materials for possible mediums then..."
+
+"No, Dain." Darius captures Dain's left ankle with both of his own. He's wearing a flat-shoe and their shape is similar to ones Dain had worn plenty of times in the base housing he and his father lived in,
+
+"You can just tell me no. I know you're busy."
+
+"Darius it's fine. I get the feeling you might need one if you're asking." Dain insists; he wants to help his friend, this much is doable.
+
+Darius looks briefly unimpressed, "It would certainly be nice to have a few more in medical, but that's besides the point. You look tired, and drained. I was just teasing you is all. I don't actually expect anything from you, especially when I'm aware that the thing could blow up in my face."
+
+Dain blanches, "I would test it first, thoroughly."
+
+"I know," Darius smiles so kindly at him it makes Dain feel sticky, "But the last thing I want to do is create more responsibilities for you. If you want you can just come over, have dinner you know? You can poke around the stillrooms afterwards if you want to see the few runes we use."
+
+"That would be helpful," Dain tells him, "And really I haven't been that busy, I've gotten my second-in-command approved, I even slept in this morning because I used one of the Quietus you gave me."
+
+The confessions are awkward in Dain's mouth, and his eyes drop to his plate and then back up to Darius's chest before finally dragging the rest of their way to eyes identical to Dain's. Darius looks infinitely pleased to hear these taboos, he taps at Dain's ankles and drops his elbows against their table while leaning forwards,
+
+"How was it? Good right?" Darius looks up and the magelight highlights his mahogany irises, "Healers get tested regularly for things like churam and reach; Quietus is just isolated and heightened active ingredients in pain management medications." He threads his hands together and rests his chin and sleek jaw against them,
+
+"Granted those ingredients cause... mild hallucinations and euphoria." He grins and his ivory teeth look blinding against his ebony complexion, "How'd you like being where you weren't supposed to be?"
+
+Dain ducks Darius's intense stare, "It was different. I've never," Dain shakes a hand above his dinner plate with his fork pointed at Darius, "done any of *those* things. Cath doesn't like me even taking the suppressant that they administer to riders."
+
+"Strict parent." Darius comments quickly after his lip twitches, without interrupting Dain.
+
+"Yesterday night..."
+
+Dain stops to look at Darius.
+
+After learning about Violet protecting venin, Dain had been the most exposed since he'd learned about the existence of venin themselves. He'd showered, and paced his room until Cath made him lie down, and then finally, after the shaking started, Dain allowed himself the reprieve. He'd unpacked the wicker basket from his armoire and had the Quietus dissolving against his tongue in the same movement.
+
+He was able to lie there for hours in sweet silence, slipping into his pathway with Cath where the reins of his consciousness had been handed over to his Red. His dreams were comprised of bits and pieces of Cath's own night; Dain had been allowed to see Tairn tucked away in a den three times the size of the Morningstartail's. He'd watched Andarna guide Cath there, and then watched Cath hunker down outside of it with about six or seven other Reds, one of which had been Thoirt.
+
+"You don't have to tell me, Dain."
+
+The rider straightens up and pokes at his root mash, "I want to."
+
+Darius copies Dain's posture, "Good, I want to hear it."
+
+"I didn't hallucinate anything; honestly, most of what I was seeing just became impossibly real. I could feel and see everything I was thinking about. I was places I've never been with the person who wanted me there the most."
+
+Everything Cath was permitting him to witness, Dain leaves unsaid.
+
+"Perfect; I meant it to be something light, especially for you." Darius sets his upper arm across the back of his chair and leans against it, "Think you'll use it again? Maybe with that person?"
+
+Dain chuckles an answer before he can dress it up, "Cath wouldn't partake."
+
+Darius covers his face with his hand, "Oh," then he drops it enough to reveal his eyes, "Was thinking it would've been another human."
+
+"No," he feels his neck get hot, "Not right now."
+
+Darius's feet pull away enough that only parts of their shoes touch now, "I'm right here you know, an option if it helps you... consider me." he readjusts his thin, summer robes, pulling at silk lappets that have his family's crest embroided at the bottom, "When the time comes, naturally."
+
+Dain’s ears go hot enough that he almost reaches for them, then thinks better of giving Darius the satisfaction of watching him fidget through a show of his own mortification.
+
+"I've only known you like a week." Dain argues; his words are delivered in a thinner tone than he would've liked, "I like you, but isn't it a bit soon for that?"
+
+Darius slides the tip of his shoe up the ankle of Dain's boot.
+
+"That's fast; you like me? In a week's time?"
+
+"That's *not* what I said." Dain chokes, he looks anywhere that isn't Darius. He doesn't get how doesn't cringe at the things he willingly says.
+
+And, as if to prove that point, Darius responds, "I like when you get all snippy, but I also think that you'll give in."
+
+Dain lets himself laugh and it shakes his whole body, taking any tension with it. Darius watches with his teeth flashing against magelighting, wiggling his eyebrows obnoxiously while Dain composes himself.
+
+"Don't think I've ever seen you laugh like that, Aetos."
+
+Movement catches at the edge of Dain's vision as he looks up to see who's spoken instead of Darius. Three figures in rider black have decided to join them and Dain notices the healer's face does something ugly and honest. Annoyance, sharp enough that Dain almost looks away out of courtesy, but Darius turns it over like a coin, and his usual smiling side returns before anyone else realizes. Darius *does not* wait to be included in their company; he escapes before they can even be seated.
+
+"Alright, Dain. I'll catch you later." He knocks on the table with his knuckles and then grabs his tray of food after collapsing all of Dain's empty plateware with his own, before he steps away, he nods to Matthias, Violet, and Sloane. Then, to Dain, he grins,
+
+"I had a memory of Kaia I was supposed to show you, guess I'll have two for next time?"
+
+Dain's face flushes again, "She's greedy."
+
+"You're our only magical friend." the healer teases, "Stop by medical sometime, okay?"
+
+"Alright..." Dain smiles back, "Thanks, Ri."
+
+Sloane and Violet sit, seperated by Matthias who watches Darius saunter back towards the Great Hall,
+
+"Rhi?" She wonders, shocked, then turns to look at Dain with a finger pointed at herself, "Like me, Rhi?"
+
+"Ri." Dain agrees, "Like Darius."
+
+"They're super rich." Sloane, who pokes at a plate even fuller than Dain's, reports dissmissively.
+
+"Huh." Matthias takes her seat and brushes her braids and curls over her shoulders, "Now you and Vi have a Rhi."
+
+Dain sinks back into his seat. He hadn't expected anymore company, and might've left with Darius to go see Kaia, but it's also nice being able to talk to Violet again for whatever that's worth now, "Hey Vi."
+
+"Hey Dain." She peeks 
