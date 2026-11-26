@@ -418,7 +418,7 @@ Cath's words find him as his peripheral existence fades to nothing; he stutters 
 
 *"Look."*
 
-Dain leaves the bond, ready to weave; but his disk has already been neatly runed. He picks it up and examines it with the intention of making the same shapes he sees on it: a perfectly symmetrical square with an equally flawlessly round circle within it touching each side of the square. It's about the size of his fist on the disk that's more the size of a porridge bowl.
+Dain leaves the bond, ready to weave; but his disk has already been neatly runed. He picks it up and examines it with the intention of making the same shapes he sees on it: a perfectly symmetrical square with an equally flawlessly circular knot at the square's corners. It's about the size of his fist on the disk that's more the size of a porridge bowl.
 
 "I was going to do it." Dain sighs, waving the used disk at Halson and trying to hand it to her.
 
@@ -448,7 +448,7 @@ Catriona finishes her fourth rune and sets it on the table, "Dragons fly higher,
 
 She tosses a disk of livitae to Catriona, who passes it to Dain; it's nearly teal in color and doesn't bend as much as the hemlock did. For whatever reason it's cut into a square shape and not a round one.
 
-Dain makes quick work of setting his new rune into it this time, spurred by the eyes on him and the knowledge of the actual shape of the rune itself. It looks different this time, another perfect square with a circle nested inside of it, only this time the circle's edges don't touch the sides of the square. Once it's been carved into the livitae by his magic, he looks over at Catriona,
+Dain makes quick work of setting his new rune into it this time, spurred by the eyes on him and the knowledge of the actual shape of the rune itself. It looks different this time, another perfect square with a circular knot nested inside of it, only this time the knot's edges don't touch the sides of the square. Once it's been carved into the livitae by his magic, he looks over at Catriona,
 
 "Try it." she fiddles with the ends of her dark hair while waiting for him to make his attempt.
 
@@ -556,25 +556,29 @@ The Mess Hall is chock-full of cadets, both flier and rider, officers and staff.
 
 Dain hums a bit through a mouthful of food before giving in and pulling out the Itinerarium, he sets down his fork and flips to a dog-eared page towards the back of the notebook,
 
-"About how much do higher quality mediums cost?" Dain finally asks while also retrieving his ink pen.
+"About how much do higher quality mediums cost, if you don't go aquiring them yourself?" Dain finally asks while also retrieving his ink pen.
 
 Darius fixes him a peculiarly endearing stare while answering, "Been thinking about runes a lot, have you?"
 
-"Yes." Dain eats more of his fish. It's been caught and flown in by one of the drifts that arrived this morning to help with the displaced civilians, according to the kitchen staff.
+"Yes." Dain eats more of his fish. It's been caught and flown in by one of the drifts that arrived this morning to help with the displaced civilians, according to the kitchen staff, "It's the one thing I'm not good at."
+
+Outside of being easy to distrust.
 
 "Really, it depends. The most expensive rune we have is embedded into onyx. But there's a lot of things that wielders consider while runing. I've seen the strength of a wielder's magic break the medium and ruin the rune itself. Some of the temperature plates my dad buys for the apothecary have literally exploded before, or just cracked down the middle." Darius chews thoughtfully, "I always noticed that when the rune-weaver was replacing our destroyed runes, the plates would be made out of different stones based on our testimony."
 
 "Do the plates always have the same symbols?" Dain interrogates further.
 
-He's not sure if runes are a *literal* language themselves. Dain considers dialects and different languages themselves; are Krovlish runes woven with the same symbols as ones placed in Cygnisen? Previously, before Navarre banned them, would runes from Deaconshire look the same as runes from Tyrrendor? He gives Darius a long stare and the midnight-skinned man fidgets for a split-second while considering how to answer Dain's question; maybe he should go to Riorson House's library.
+He's not sure if runes are a literal language themselves. Dain considers dialects and different languages themselves; are Krovlish runes woven with the same symbols as ones placed in Cygnisen? Previously, before Navarre banned them, would runes from Deaconshire look the same as runes from Tyrrendor? He gives Darius a long stare and the midnight-skinned man fidgets for a split-second while considering how to answer Dain's question; maybe he should go to Riorson House's library.
 
-Darius bites his lower lip in thought, "Mm... I couldn't say. You'd think I'd pay attention to that considering even I've put in requests for them; I don't have the ability to weave them myself though, so it's not a concern of mine to observe them so closely."
+Darius bites his lower lip in thought, "Mm... I couldn't say. You'd think I'd pay attention to them more considering even *I've* put in requests for runes; I don't have the ability to weave them myself though, so it's not a pressing concern of mine to observe them so closely."
 
 Dain doesn't say anything. He catches the tops of several blonde heads bobbing about throughout the Mess Hall. None of them are Sloane Mairi, but he makes out Avalynn and Kai as they notice him across the venue themselves. Kai waves.
 
 "Why?" Darius asks Dain, eyes curious; he puts a piece of his fish atop Dain's disappearing filets, "You wanna make one for me?"
 
-"I was just thinking I'd try my hand at runes. Since my signet isn't something that kills." Dain admits as neutrally as possible.
+"I was just thinking I'd try my hand at runes. Since my signet isn't something that kills." Dain admits as neutrally as possible, "And for training."
+
+Sloane would be able to naturally surpass him no matter how good he got if her mother's reputation was anything to go by. Maybe, if he understood them to a point, he could ignite an interest in the lost are. Dain's brow furrows; should he say culture what she already knows? He's not sure how much Tyrr's have stuck to teaching rune weaving to those who might eventually wield one day. Dain doesn't even konw the nobles who raised Sloane and if they would have tolerated those interests, if she had them.
 
 He glances up at Darius when the ebony man shakes his head roughly and smacks his fingers against the table in a playful gesture,
 
@@ -672,10 +676,9 @@ Sloane and Violet sit, seperated by Matthias who watches Darius saunter back tow
 
 "Ri." Dain agrees, "Like Darius."
 
-"They're super rich." Sloane, who pokes at a plate even fuller than Dain's, reports dissmissively.
-
-"Huh." Matthias takes her seat and brushes her braids and curls over her shoulders, "Now you and Vi have a Rhi."
+"Huh." Matthias takes her seat and brushes her braids and curls over her shoulders.
 
 Dain sinks back into his seat. He hadn't expected anymore company, and might've left with Darius to go see Kaia, but it's also nice being able to talk to Violet again for whatever that's worth now, "Hey Vi."
 
-"Hey Dain." She peeks 
+"Hey Dain." Violet smiles at him, a genuine one that he hasn't seen in ages. It doesn't tug anything within him, though; it's just nice to see her do something besides scowl.
+
