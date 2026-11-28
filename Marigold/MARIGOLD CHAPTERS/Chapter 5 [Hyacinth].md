@@ -168,13 +168,13 @@ He absolutely wants to rekindle his friendship with her, he never stopped wantin
 
 While these things would be solid excuses to save face, he also knows a person can only blame being a product of their environment for so long and in Violet's regard the truth is, he never once stopped to consider her potential and it was because he didn't want to. He didn't want to see her to even begin down the path that could cause her a bruise, or a scar, a broken bone. Growing up it was his and her siblings job to keep her safe, as they got older Dain was her potential suitor, and when he'd seen her there standing in the fucking courtyard looking as bespectacled as he had been standing the same fucking place during his first year.
 
-But, she didn't need protecting, especially not from him. And it makes him feel like he's sitting in filth to acknowledge that he never stopped to consider that, even *if* his Dad had been speaking directly into his ear about how much of liability she was around the marked ones, and even if Riorson would naturally see her as a valuable source of leverage. He never stopped to fucking think for himself. He never considered what she wanted, just what he new based on his collective experiences and and then turned those projections into *her* reality.
+But, she didn't need protecting, especially not from him. And it makes him feel like he's sitting in filth to acknowledge that he never stopped to consider that, even *if* his Dad had been speaking directly into his ear about how much of a liability she was around the marked ones, and even if Riorson would naturally see her as a valuable source of leverage. He never stopped to fucking think for himself. He never considered what she wanted, just what he knew based on his collective experiences and then turned those projections into *her* reality.
 
 It had been nothing but selfish.
 
 "The plan and the point," Dain mutters, "I need to know what to expect and what you need from me if you really want my help, Vi. I would like you to be as transparent as you feel you can be, this way I can properly be the friend I want to be for you. You have to say what you want whether it's protection or for me to just stay the fuck out of your way you have got to tell me."
 
-Violet nods, "I can do that."
+Violet nods. "I can do that."
 
 "Dad isn't in my ear anymore. I can just... be Dain." He pauses, throws out his arms, "For everyone. Well, no, it's not even that he's not here anymore." He looks at his boots; there's still blood on them from Draithus, "I can't keep coming to the same conclusions and getting the same shit results from them without stopping to consider why everything I've been doing is always just fucking wrong when it wasn't *him* executing decisions, it's always been *me.*"
 
@@ -234,133 +234,202 @@ She doesn't say anything at first, but when his eyes meet hers again he swears t
 
 "About runes? What questions do you have?"
 
-The Mess Hall is chock-full of cadets, both flier and rider, officers and staff. Most of the higher ranking riders are preparing to return to their respective posts whereas fliers have been ordered to hold fast within Draithus. Dain makes it his mission to seek runes etched into the fliers' weapons; he spots them consistently especially on the tips of arrows, hanging like charms at the hilts of swords, and even one tediously hidden along the inside of one of the thick, gold hoop earrings hugging the cartilage of Darius's midnight ears.
+The Mess Hall is chock-full of cadets, both flier and rider, officers and staff. Most of the higher-ranking riders are preparing to return to their respective posts whereas fliers have been ordered to hold fast within Draithus. Dain makes it his mission to seek runes etched into the fliers' weapons; he spots them consistently, especially on the tips of arrows, hanging like charms at the hilts of swords, and even one meticulously concealed along the inside of one of the thick gold hoops hugging the cartilage of Darius's midnight ears.
 
-Dain hums a bit through a mouthful of food before giving in and pulling out the Itinerarium, he sets down his fork and flips to a dog-eared page towards the back of the notebook,
+Dain hums a bit through a mouthful of food before giving in and pulling out the Itinerarium. He sets down his fork and flips to a dog-eared page towards the back of the notebook.
 
-"About how much do higher quality mediums cost, if you don't go aquiring them yourself?" Dain finally asks while also retrieving his ink pen.
+"About how much do higher-quality mediums cost, if you don't go acquiring them yourself?" Dain finally asks while also retrieving his ink pen.
 
-Darius fixes him a peculiarly endearing stare while answering, "Been thinking about runes a lot, have you?"
+Darius fixes him with a look Dain is beginning to find peculiarly endearing. "Been thinking about runes a lot, have you?"
 
-"Yes." Dain eats more of his fish. It's been caught and flown in by one of the drifts that arrived this morning to help with the displaced civilians, according to the kitchen staff, "It's the one thing I'm not good at."
+"Yes." Dain eats more of his fish. It's been caught and flown in by one of the drifts that arrived this morning to help with the displaced civilians, according to the kitchen staff. "It's the one thing I'm not good at."
 
 Outside of being easy to distrust.
 
-"Really, it depends. The most expensive rune we have is embedded into onyx. But there's a lot of things that wielders consider while runing. I've seen the strength of a wielder's magic break the medium and ruin the rune itself. Some of the temperature plates my dad buys for the apothecary have literally exploded before, or just cracked down the middle." Darius chews thoughtfully, "I always noticed that when the rune-weaver was replacing our destroyed runes, the plates would be made out of different stones based on our testimony."
+"Really, it depends. The most expensive rune we have is embedded into onyx. But there's a lot of things that wielders consider while weaving runes. I've seen the strength of a wielder's magic break the medium and ruin the rune itself. Some of the temperature plates my dad buys for the apothecary have literally exploded before, or just cracked down the middle." Darius chews thoughtfully. "I always noticed that when the rune-weaver was replacing our destroyed runes, the plates would be made out of different stones based on our testimony."
 
 "Do the plates always have the same symbols?" Dain interrogates further.
 
-He's not sure if runes are a literal language themselves. Dain considers dialects and different languages themselves; are Krovlish runes woven with the same symbols as ones placed in Cygnisen? Previously, before Navarre banned them, would runes from Deaconshire look the same as runes from Tyrrendor? He gives Darius a long stare and the midnight-skinned man fidgets for a split-second while considering how to answer Dain's question; maybe he should go to Riorson House's library.
+He's not sure if runes are a literal language themselves. Dain considers dialects and languages; are Krovlish runes woven with the same symbols as ones placed in Cygnisen? Before Navarre banned them, would runes from Deaconshire look the same as runes from Tyrrendor? He gives Darius a long stare, and the midnight-skinned man fidgets for a split second while considering how to answer Dain's question; maybe he should go to Riorson House's library.
 
-Darius bites his lower lip in thought, "Mm... I couldn't say. You'd think I'd pay attention to them more considering even *I've* put in requests for runes; I don't have the ability to weave them myself though, so it's not a pressing concern of mine to observe them so closely."
+Darius bites his lower lip in thought. "Mm... I couldn't say. You'd think I'd pay attention to them more considering even *I've* put in requests for runes; I don't have the ability to weave them myself, though, so it's not a pressing concern of mine to observe them so closely."
 
-Dain doesn't say anything. He catches the tops of several blonde heads bobbing about throughout the Mess Hall. None of them are Sloane Mairi, but he makes out Avalynn and Kai as they notice him across the venue themselves. Kai waves.
+Dain doesn't say anything. He catches the tops of several blonde heads bobbing about throughout the Mess Hall. None of them are Sloane Mairi, but he makes out Avalynn and Kai as they notice him across the venue. Kai waves.
 
-"Why?" Darius asks Dain, eyes curious; he puts a piece of his fish atop Dain's disappearing filets, "You wanna make one for me?"
+"Why?" Darius deposits a piece of fish onto Dain’s plate, seemingly more concerned with its diminishing contents than his own. "You wanna make one for me?"
 
-"I was just thinking I'd try my hand at runes. Since my signet isn't something that kills." Dain admits as neutrally as possible, "And for training."
+"I was just thinking I'd try my hand at runes. Since my signet isn't something that kills," Dain admits as neutrally as possible, "and for training."
 
-Sloane would be able to naturally surpass him no matter how good he got if her mother's reputation was anything to go by. Maybe, if he understood them to a point, he could ignite an interest in the lost are. Dain's brow furrows; should he say culture what she already knows? He's not sure how much Tyrr's have stuck to teaching rune weaving to those who might eventually wield one day. Dain doesn't even konw the nobles who raised Sloane and if they would have tolerated those interests, if she had them.
+Sloane would be able to naturally surpass him no matter how good he got if her mother's reputation was anything to go by. Maybe, if he understood them to a point, he could ignite an interest in the lost art. Dain's brow furrows; should he say *culture?* What does she already know? He's not sure how much Tyrrs have stuck to teaching rune weaving to those who might eventually wield. Dain doesn't even know the nobles who raised Sloane or whether they would've tolerated those interests, if she had them.
 
-He glances up at Darius when the ebony man shakes his head roughly and smacks his fingers against the table in a playful gesture,
+He glances up at Darius when the ebony man shakes his head roughly and smacks his fingers against the table in a playful gesture.
 
-"You're supposed to say, 'yeah Ri, I was thinking about making some for you'."
+"You're supposed to say, 'Yeah, Ri, I was thinking about making some for you'."
 
-Dain chews more slowly, "Do you *want* me to try making you more defective temperature plates?"
+Dain chews more slowly. "Do you *want* me to try making you more defective temperature plates?"
 
-"I mean," Darius smirks and presses their ankles together beneath the table, "I appreciate whatever attention you want to give me."
+"I mean." Darius smirks and presses their ankles together beneath the table. "I appreciate whatever attention you want to give me."
 
-"Then I'll try it for you." Dain puzzles inwardly and it shows on his face, "But I need to get the materials for possible mediums then..."
+"Then I'll try it for you." Dain puzzles over that, apparently less inwardly than intended. "But I need to get the materials for possible mediums then..."
 
-"No, Dain." Darius captures Dain's left ankle with both of his own. He's wearing a flat-shoe and their shape is similar to ones Dain had worn plenty of times in the base housing he and his father lived in,
+"No, Dain." Darius captures Dain's left ankle between both of his own. He's wearing flat shoes, similar in shape to pairs Dain had worn plenty of times in the base housing he shared with his father. "You can just tell me no. I know you're busy."
 
-"You can just tell me no. I know you're busy."
+"Ri, it's fine. I get the feeling you might need one if you're asking," Dain insists; he wants to help his friend, and this much is doable.
 
-"Darius it's fine. I get the feeling you might need one if you're asking." Dain insists; he wants to help his friend, this much is doable.
+Darius’s ankles tighten around Dain's left ankle before his expression flattens. "It would certainly be nice to have a few more in medical, but that's beside the point. You look tired and drained. I was just teasing you is all. I don't actually expect anything from you, especially when I'm aware that the thing could blow up in my face."
 
-Darius looks briefly unimpressed, "It would certainly be nice to have a few more in medical, but that's besides the point. You look tired, and drained. I was just teasing you is all. I don't actually expect anything from you, especially when I'm aware that the thing could blow up in my face."
+Dain blanches. "I would test it first, thoroughly."
 
-Dain blanches, "I would test it first, thoroughly."
+"I know." Darius smiles so kindly at him that it makes Dain feel sticky. "But the last thing I want to do is create more responsibilities for you. If you want, you can just come over, have dinner, you know? You can poke around the stillrooms afterwards if you want to see the few runes we use."
 
-"I know," Darius smiles so kindly at him it makes Dain feel sticky, "But the last thing I want to do is create more responsibilities for you. If you want you can just come over, have dinner you know? You can poke around the stillrooms afterwards if you want to see the few runes we use."
+"That would be helpful," Dain tells him. "And really, I haven't been that busy. I've gotten my second-in-command approved. I even slept in this morning because I used one of the Quietus you gave me."
 
-"That would be helpful," Dain tells him, "And really I haven't been that busy, I've gotten my second-in-command approved, I even slept in this morning because I used one of the Quietus you gave me."
+The confessions sting awkwardly in Dain’s mouth. He studies his plate, then Darius’s chest, before dragging his attention the rest of the way to those disconcertingly familiar eyes. Darius looks infinitely pleased to hear these taboos, nudging the ankle still situated between his own as he drops his elbows against their table and leans forward.
 
-The confessions are awkward in Dain's mouth, and his eyes drop to his plate and then back up to Darius's chest before finally dragging the rest of their way to eyes identical to Dain's. Darius looks infinitely pleased to hear these taboos, he taps at Dain's ankles and drops his elbows against their table while leaning forwards,
+"How was it? Good, right?" Darius looks up and the magelight highlights his mahogany irises. "Healers get tested regularly for things like churam and reach; Quietus is just isolated and heightened active ingredients in pain management medications." He interlaces his fingers and rests his chin against them.
 
-"How was it? Good right?" Darius looks up and the magelight highlights his mahogany irises, "Healers get tested regularly for things like churam and reach; Quietus is just isolated and heightened active ingredients in pain management medications." He threads his hands together and rests his chin and sleek jaw against them,
+"Granted, those ingredients cause... mild hallucinations and euphoria." He grins and his ivory teeth look blinding against his ebony complexion. "How'd you like being where you weren't supposed to be?"
 
-"Granted those ingredients cause... mild hallucinations and euphoria." He grins and his ivory teeth look blinding against his ebony complexion, "How'd you like being where you weren't supposed to be?"
+Dain ducks Darius's intense stare. "It was different. I've never..." Dain shakes a hand above his dinner plate with his fork pointed at Darius. "Done any of *those* things. Cath doesn't like me even taking the suppressant that they administer to riders."
 
-Dain ducks Darius's intense stare, "It was different. I've never," Dain shakes a hand above his dinner plate with his fork pointed at Darius, "done any of *those* things. Cath doesn't like me even taking the suppressant that they administer to riders."
-
-"Strict parent." Darius comments quickly after his lip twitches, without interrupting Dain.
+"Strict parent," Darius comments quickly after his lip twitches, without interrupting Dain.
 
 "Yesterday night..."
 
 Dain stops to look at Darius.
 
-After learning about Violet protecting venin, Dain had been the most exposed since he'd learned about the existence of venin themselves. He'd showered, and paced his room until Cath made him lie down, and then finally, after the shaking started, Dain allowed himself the reprieve. He'd unpacked the wicker basket from his armoire and had the Quietus dissolving against his tongue in the same movement.
+After learning about Violet protecting venin, Dain had felt more exposed than he had since first discovering their existence. He'd showered and paced his room until Cath made him lie down, and then finally, after the shaking started, Dain allowed himself the reprieve. He'd unpacked the wicker basket from his armoire and had the Quietus dissolving against his tongue in the same movement.
 
-He was able to lie there for hours in sweet silence, slipping into his pathway with Cath where the reins of his consciousness had been handed over to his Red. His dreams were comprised of bits and pieces of Cath's own night; Dain had been allowed to see Tairn tucked away in a den three times the size of the Morningstartail's. He'd watched Andarna guide Cath there, and then watched Cath hunker down outside of it with about six or seven other Reds, one of which had been Thoirt.
+He'd been able to lie there for hours in sweet silence, slipping into his pathway with Cath where he'd handed the reins of his consciousness over to his Red. His dreams were comprised of bits and pieces of Cath's own night; Dain had been allowed to see Tairn tucked away in a den three times the size of the Morningstartail's. He'd watched Andarna guide Cath there, and then watched Cath hunker down outside of it with about six or seven other Reds, one of which had been Thoirt.
 
 "You don't have to tell me, Dain."
 
-The rider straightens up and pokes at his root mash, "I want to."
+The rider straightens up and pokes at his root mash. "I want to."
 
-Darius copies Dain's posture, "Good, I want to hear it."
+Darius straightens with him, lowering his hands from beneath his chin without allowing his attention to drift from Dain. "Good, I want to hear it."
 
-"I didn't hallucinate anything; honestly, most of what I was seeing just became impossibly real. I could feel and see everything I was thinking about. I was places I've never been with the person who wanted me there the most."
+"I didn't hallucinate anything; honestly, most of what I was seeing just became impossibly real. I could feel and see everything I was thinking about. I was in places I'd never been with the person who wanted me there the most."
 
 Everything Cath was permitting him to witness, Dain leaves unsaid.
 
-"Perfect; I meant it to be something light, especially for you." Darius sets his upper arm across the back of his chair and leans against it, "Think you'll use it again? Maybe with that person?"
+"Perfect; I meant it to be something light, especially for you." Darius sets his upper arm across the back of his chair and leans against it. "Think you'll use it again? Maybe with that person?"
 
 Dain chuckles an answer before he can dress it up, "Cath wouldn't partake."
 
-Darius covers his face with his hand, "Oh," then he drops it enough to reveal his eyes, "Was thinking it would've been another human."
+Darius covers his face with his hand. "Oh." He parts his fingers just enough to regard Dain through them. "Was thinking it would've been another human."
 
-"No," he feels his neck get hot, "Not right now."
+"No." He feels his neck get hot. "Not right now."
 
-Darius's feet pull away enough that only parts of their shoes touch now, "I'm right here you know, an option if it helps you... consider me." he readjusts his thin, summer robes, pulling at silk lappets that have his family's crest embroided at the bottom, "When the time comes, naturally."
+Darius relinquishes Dain's ankle, though the sides of their shoes remain touching. "I'm right here, you know, an option if it helps you... consider me." He readjusts his thin summer robes, pulling at silk lappets that have his family's crest embroidered at the bottom. "When the time comes, naturally."
 
 Dain’s ears go hot enough that he almost reaches for them, then thinks better of giving Darius the satisfaction of watching him fidget through a show of his own mortification.
 
-"I've only known you like a week." Dain argues; his words are delivered in a thinner tone than he would've liked, "I like you, but isn't it a bit soon for that?"
+"I've only known you like a week," Dain argues; his words are delivered in a thinner tone than he would've liked. "I like you, but isn't it a bit soon for that?"
 
-Darius slides the tip of his shoe up the ankle of Dain's boot.
+Darius slides the tip of his shoe up the ankle of Dain's boot and begins stacking their dishware, seemingly unbothered by how thoroughly he's flustered Dain.
 
 "That's fast; you like me? In a week's time?"
 
-"That's *not* what I said." Dain chokes, he looks anywhere that isn't Darius. He doesn't get how doesn't cringe at the things he willingly says.
+"That's *not* what I said." Dain chokes and abruptly finds the crowded Mess Hall worthy of his complete attention. He doesn't get how Darius never cringes at the things he willingly says.
 
 And, as if to prove that point, Darius responds, "I like when you get all snippy, but I also think that you'll give in."
 
-Dain lets himself laugh and it shakes his whole body, taking any tension with it. Darius watches with his teeth flashing against magelighting, wiggling his eyebrows obnoxiously while Dain composes himself.
+Dain lets himself laugh, and it shakes his whole body, taking any tension with it. Darius watches, wiggling his eyebrows obnoxiously while Dain composes himself.
 
 "Don't think I've ever seen you laugh like that, Aetos."
 
-Movement catches at the edge of Dain's vision as he looks up to see who's spoken instead of Darius. Three figures in rider black have decided to join them and Dain notices the healer's face does something ugly and honest. Annoyance, sharp enough that Dain almost looks away out of courtesy, but Darius turns it over like a coin, and his usual smiling side returns before anyone else realizes. Darius *does not* wait to be included in their company; he escapes before they can even be seated.
+Dain looks away from Darius at the interruption. Three figures in rider black have decided to join them, and in the brief moment it takes him to acknowledge their company, the healer's face does something ugly and honest. Annoyance, sharp enough that Dain almost averts his eyes out of courtesy, but Darius turns it over like a coin, and his usual smiling side returns before anyone else realizes. He's already preparing his escape before the three can even be seated.
 
-"Alright, Dain. I'll catch you later." He knocks on the table with his knuckles and then grabs his tray of food after collapsing all of Dain's empty plateware with his own, before he steps away, he nods to Matthias, Violet, and Sloane. Then, to Dain, he grins,
+"Alright, Dain. I'll catch you later." He knocks his knuckles against the table before standing with their stacked dishware. He nods to Matthias, Violet, and Sloane. Then he grins at Dain.
 
-"I had a memory of Kaia I was supposed to show you, guess I'll have two for next time?"
+"I had a memory of Kaia I was supposed to show you. Guess I'll have two for next time?"
 
-Dain's face flushes again, "She's greedy."
+Dain's face flushes again. "She's greedy."
 
-"You're our only magical friend." the healer teases, "Stop by medical sometime, okay?"
+"You're our only magical friend," the healer teases. "Stop by medical sometime, okay? I keep forgetting, but my dad left me with something for you as thanks for transport."
 
-"Alright..." Dain smiles back, "Thanks, Ri."
+"Alright..." Dain smiles back. "Thanks, Ri."
 
-Sloane and Violet sit, seperated by Matthias who watches Darius saunter back towards the Great Hall,
+Matthias and Violet seat themselves on either side of Sloane, who watches Darius saunter back towards the Great Hall.
 
-"Rhi?" She wonders, shocked, then turns to look at Dain with a finger pointed at herself, "Like me, Rhi?"
+"Rhi?" Matthias wonders, shocked, then turns to look at Dain, pointing a finger at herself. "Like me, Rhi?"
 
-"Ri." Dain agrees, "Like Darius."
+"Ri," Dain agrees. "Like Darius."
 
-"Huh." Matthias takes her seat and brushes her braids and curls over her shoulders.
+"Huh." Matthias brushes her braids and curls over her shoulders.
 
-Dain sinks back into his seat. He hadn't expected anymore company, and might've left with Darius to go see Kaia, but it's also nice being able to talk to Violet again for whatever that's worth now, "Hey Vi."
+Dain sinks back into his seat. He hadn't expected any more company and might've left with Darius to go see Kaia, but it's also nice being able to talk to Violet again, for whatever that's worth now. "Hey, Vi."
 
-"Hey Dain." Violet smiles at him, a genuine one that he hasn't seen in ages. It doesn't tug anything within him, though; it's just nice to see her do something besides scowl.
+"Feeling any better?" Violet gives him another genuine smile, one of the few he's seen from her in ages. It doesn't tug anything within him, though; it's just nice to see her do something besides scowl as of late.
 
+His eyes find the table before he looks back up to answer her. "...No."
+
+Matthias's eyes travel from Violet to Dain with one brow climbing. "Are you sick or something? Haven't seen you since yesterday."
+
+"No." Dain avoids looking at Violet by focusing on Sloane. "Just tired."
+
+"So, you *do* experience fatigue?" Matthias jokes. She begins to eat, but her attention remains mostly on Dain. "You've been absent more times this week than all of last year."
+
+Dain presses the heels of his hands into his eyes. "I get tired sometimes. Perpetually shielding and just..." He runs his hands through his hair, fingers pulling the curls loose and forcing them back; he needs a haircut. "Processing everything."
+
+Matthias stops eating. "Everything? Everything what?"
+
+"Me," Violet quietly adds. Her fork worries at the barely touched food on her plate before she leans back enough to catch Matthias's eye behind Sloane. "You know."
+
+Matthias blanches. "You told him?"
+
+"Told him what?" From between them, Sloane looks to Matthias first, and then Violet. Neither answers and Matthias only shakes her head.
+
+"Does Imogen know?" Matthias’s face stills as she turns fully toward Violet.
+
+"You didn't tell us you were telling him."
+
+Sloane glowers and turns to Violet as well. "Tell him what?"
+
+Violet shakes her head this time. "I haven't told her yet. I was just honest with him."
+
+Dain looks away; he doubts that, but he doesn't say it, not like it'd make a difference anyway.
+
+Matthias is quiet for a heated moment before she reanimates. "I'm not saying you're wrong, and I'm not saying he *can't* be trusted, but the timing, everything considered, makes this a really choice decision." Dain watches her fret, watches those walnut eyes search Violet's face when she finally returns the look. "Are you sure?"
+
+Violet takes a deep breath. "Yes." Then she turns back to Dain and stops playing with her food. "Andarna needs you."
+
+"Andarna needs *Cath.*" Dain swallows. "I'm guessing that's what you mean. But for what?"
+
+Violet nods. "From what she told me, just until Tairn is recovered enough."
+
+"He won't tell me anything, if you were wondering."
+
+"She said Cath tells you a good deal more than Tairn would ever tell me."
+
+"Cath is partial to me knowing his business. And you didn't tell me this earlier or last night. Why is it coming up now?"
+
+Her jaw twitches. "I can't just say things in front of Andarna lately. Remember how you got 'grounded' a few days ago by Cath? Tairn gave her explicit instructions pertaining to me, and she won't even tell me what they are. I'm trying to operate within confines that I can't even recognize right now, and most of it is trusting the people around me."
+
+"Bit late for that," Dain snipes, eyes ghosting over Sloane, then back to Violet. "Are you sure you want the association? With me, Cath is generally fine with the other dragons. He's a bit of an outsider in his own way, though."
+
+"Sgaeyl approved of Cath."
+
+Dain grunts, unimpressed. "Most are?"
+
+"Sgaeyl doesn't *approve* of anyone. She barely tolerated me," Violet elaborates. "Andarna has explicitly stated that Cath holds weight in both Empyreans and respects her sovereignty."
+
+"Both Empyreans have to acknowledge her. She's the only one of her kind on the Continent." Dain sets his fingertips along the edge of their table. "And what would disregarding her accomplish? Alienating the only other Black willing to bond and pissing off his mate? Brilliant. Gone or not, I doubt they know the extent of Sgaeyl's influence or whose favor she holds. There could be dragons of immeasurable strength behind the two of them. Contrary to popular belief, they don't need us on their backs to be formidable."
+
+"And all of that sounds nice, but all of that means nothing. Not with..." Her head dips to the side and then back. "Not with my failures coming to light."
+
+Dain twitches. "More wardstones and an additional hatching ground? Proof of a seventh breed? Rune revival and a luminary? Gryphon mutuality?"
+
+"All of that is being eclipsed by me thinking I could protect him, Dain. From what I'm gathering." Violet deflates at the admission, her shoulders losing what little rigidity they'd maintained. The cacophony of colors within her irises loses some of its brilliance. He can't imagine the turmoil resting within her heart and hopes he'll never have reason to understand it.
+
+"So then, this morning was meant to get us accustomed to one another and brief Cath directly, because that's what *who* wants, exactly?"
+
+Violet shrugs. "I don't *know.* It could've been Tairn. Whatever was decided, I have no recollection of it." She presses her fingers into her forehead. "The only thing Andarna's made abundantly clear is that I'm going to be seeing a lot more of you, and Cath. And knowing he fucking hates my guts isn't making this any easier."
+
+"Cath's considerably better at separating his personal grievances from his responsibilities than most people I know." Dain exhales slowly. "I'll make sure you're informed of anything he tells me and whether or not you'll be able to help with it."
+
+Violet stares at her cold meal. Across Sloane, Matthias’s attention passes uneasily between the senior riders.
+
+"Okay, thanks. I'll do the same." Violet gathers her barely touched plate and gets to her feet. "See you around?"
+
+"Yeah, see you around, Vi."
