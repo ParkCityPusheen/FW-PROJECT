@@ -1,3 +1,35 @@
+When Dain comes to, there's nothing.
+
+Not a watchbill to coordinate, not an assignment to turn in, not a cadet unaccounted for; there's just the sunlight that stretches across his barracks room from the tiny window above his bed that has made a warm, sprawling home of his stomach and thighs. And where's his shirt? He sits up sluggishly and looks around for it in the bed but there's only his pillow. His eyelids feel so heavy he stops feuding with them for control and lets himself flicker into the void behind them, and then back to his sunlit room. The rest of Dain's body slips back into the static undertow as he sinks shoulderblades first against his mattress. He settles in without opening his eyes, left arm falling clear of his narrow mattress until his knuckles drag across the rough, cold stone floor. He feels the thin lambskin that had contained Darius's gifted Quietus as his hand skims against it slightly; it's still damp from having it in his mouth.
+
+He'd never been so relieved to break a rule in his life after being carved out of his involuntary oblivion; still, it took until after his shower and then an hour or two of lamentation to commit to it. Dain now has two left of the three Darius has given him. He's tell excited to him how well it works, how light his body had been after taking it, and how incapable of a complete thought he'd remained for the hour he needed to fall asleep. Even now, probably hours later, how pliant and docile his mind remains, how comfortably he's sunk into an unresisting passivity; he'd follow any order just to continue mucking around in this amenable calmness.
+
+Dain's vision comes and goes with each languid blink, and he can tell those favored effects are wearing away when Matthias spawns in his mind unannounced. 
+
+He's sure she can handle what all is being asked of wingleaders currently; the hardest part is accounting for their cadets when they weren't expected to be anywhere after their required courseload was completed. Dain lifts his hanging hand to drape over his face, he had assigned additional duty for that matter in itself. He knows the cadets won't disregard his orders, not without knowing he'd incite repercussions much more inconvenient than additional duty itself, but coming from someone else on his behalf they're bound to challenge her. She'll handle it though, and probably better than Eleni was. Second Wing, she'd mentioned to him, had not only been unenthusiastic about having to join the reast of Fourth Wing in Aretia, but were also not fond of Dain's practices being implemented within their paradigms.
+
+He'd told Eleni he couldn't stand most of the cadets in her Wing, and even now it'd been nothing but honesty based on previous interactions. Beinhaven being dead did help lighten the blight, but not by much when most of them shared her sentiments. It's uncomfortably ironic that his Dad's Wing is the one that gives him the most grief.
+
+*Dad.*
+
+Dain groans and rolls over, shoving his face into his pillow; he doesn't want to think about his father but he's very much not in control of his thoughts. If only-
+
+Cath speaking into the bond under the influence of the Quietus makes Dain's mind, heart, and body go limp with imeasurable fondness, *"It is nearly noon, and since you've opted to be inadequate today I've had Marbh's send replenishment."*
+
+Dain works his jaw and it unlatches uselessly, he could probably eat properly?
+
+*"I'll start getting up then."*
+
+*"A wise decision. Enjoy this comfort while you can."*
+
+*"What makes you say that?"*
+
+Cath's voice is more charring heat than anything else, *"You and I have unfinished business. Unfortunately, they share an evening."*
+
+Dain swings he feet over the side of his bed, feeling the most lucid since he'd seen the sun. He scrubs at his face, yawning, and deciding against pressing Cath for anymore information that what he gives.
+
+---
+
 Andarna is here and Dain is *mesmerized.*
 
 It's twelve hundred, a sweltering afternoon and Andarna is here with Violet, but she stands awkwardly close to Cath. Her scales shift curiously, gleaming the same as her eyes as she goes from garnet to ruby, from apple to strawberry and nearly that perfect tomato red that Cath parades in. He knows Andarna is Irid, but he isn't sure what that means to himself. This display of shifting her scales in attempt to blend in with the environment around her is testimony to that. Dain's mouth slips open a bit, he can't help it. Andarna is exceptional.
@@ -123,113 +155,7 @@ Dain and Cath listen intently as Violet begins with Andarna's remarks.
 Only this time, Cath is the one who is openly distraught.
 
 ---
-
-Their dragons depart two hours later. Dain thinks it odd how closely Cath flies above Andarna, and more how she allows it despite Cath's behavior at certain times. And... maybe his own. He and Violet orbit each other as they trek to where her horse grazes completely unbothered at the dragons launched and still climbing vertically above it. Must be another rider's.
-
-Cath's ramparts work up beyond where he's left the two humans and Dain presses against them. They're impenetrable, 
-
-"I can't tell if Cath is like you, or you're more like Cath."
-
-Dain gives her a comment a moment to marinate, but he doesn't take his eyes off the silver mare a few steps away, "I like to think he's more like me, and that it's the reason he picked me."
-
-"I always imagined you more of a Green's type. But, honestly, when I had seen you with Cath for the first time I wasn't exactly surprised."
-
-"You didn't think it was dangerous? Having Riorson around your dragons? Did Sgaeyl feel safe, around him, I mean, could she tell?"
-
-She stops and digs up the grass beneath her feet with her boots, "Dain, Sgaeyl knew."
-
-He can't find the words to respond to that.
-
-"She was the first to know. Then Tairn, and then me."
-
-"Cath won't believe that." Dain interjects pointlessly, "He..."
-
-"He'll come around, whether for good or bad, I'm not sure. I can only hope." Violet takes hold of the mares reins, "But as far as I'm concerned, without anyone to vouch for me, I'm as much of a criminal as Xaden is."
-
-Dain puts out his hand, and the mare turns from Violet to him, shoving her muzzle into his palm, "Is that how you plan to overcome this? Allies?"
-
-"That's how I've gotten this far. Alive, and with the little bit that happened in Poromiel's interest. And," she pushes the reins into Dain's hand, he pulls away enough that their skin doesn't touch, "to Navarre I'll be public enemy number one, once they figure out that he's not coming back."
-
-"...is there even a *plan?*" Dain chokes out while staring at the top of Violet's head. He build's his shields up more each time he looks at her, unfortunately no matter how perfect and stable they are they won't protect him from his own memories. He regretfully relives every time he'd ever made a decision for her without considering her potential and awaits her answer.
-
-She looks up at him suddenly, and as much he wants to look away he stays there, "No," Violet taps her knee against his and instinctively he bends one fully, "Right now we're focused on damage control."
-
-"We?" Dain gapes, confused and gesturing for Violet to step off his bent leg and onto the mare, "Also, Vi, I have more questions. I can't keep assuming everything is fine because I don't know you. We were close, at one point, but the circumstances aren't the same anymore."
-
-Violet, now atop the mare and comfortable in the saddle narrows her eyes at him, "What do you mean by that?"
-
-"I've had a lot of time to think for myself, and by myself since my first time coming here."
-
-Dain takes a few steps back, he's feeling lightheaded with how much magic he circumvents his shields with, and takes in the sight of Violet. She's tiny on this horse, as she is with any other, and they both look remarkable against the backdrop of mountains and sunlight. He slides his gaze to the sky and counts the snow white clouds smeared across it.
-
-Dain has to be honest, with himself.
-
-He absolutely wants to rekindle his friendship with her, he never stopped wanting to, and he'll never stop hating himself for not putting it before his father's judgement and influence. All of the decisions Violet had just exploited had been made entirely of her own volition and she had the mind to make them. Never once, to him, had someone been in her ear, whispering away ideologies, mandating intent within twisted narrative, or manipulating information.
-
-While these things would be solid excuses to save face, he also knows a person can only blame being a product of their environment for so long and in Violet's regard the truth is, he never once stopped to consider her potential and it was because he didn't want to. He didn't want to see her to even begin down the path that could cause her a bruise, or a scar, a broken bone. Growing up it was his and her siblings job to keep her safe, as they got older Dain was her potential suitor, and when he'd seen her there standing in the fucking courtyard looking as bespectacled as he had been standing the same fucking place during his first year.
-
-But, she didn't need protecting, especially not from him. And it makes him feel like he's sitting in filth to acknowledge that he never stopped to consider that, even *if* his Dad had been speaking directly into his ear about how much of a liability she was around the marked ones, and even if Riorson would naturally see her as a valuable source of leverage. He never stopped to fucking think for himself. He never considered what she wanted, just what he knew based on his collective experiences and then turned those projections into *her* reality.
-
-It had been nothing but selfish.
-
-"The plan and the point," Dain mutters, "I need to know what to expect and what you need from me if you really want my help, Vi. I would like you to be as transparent as you feel you can be, this way I can properly be the friend I want to be for you. You have to say what you want whether it's protection or for me to just stay the fuck out of your way you have got to tell me."
-
-Violet nods. "I can do that."
-
-"Dad isn't in my ear anymore. I can just... be Dain." He pauses, throws out his arms, "For everyone. Well, no, it's not even that he's not here anymore." He looks at his boots; there's still blood on them from Draithus, "I can't keep coming to the same conclusions and getting the same shit results from them without stopping to consider why everything I've been doing is always just fucking wrong when it wasn't *him* executing decisions, it's always been *me.*"
-
-"I don't think you should beat yourself up so much about it; you were just doing what you thought was right Dain."
-
-His head jerks up to stare at her, "I've always just been there because I thought I should be, and then eventually it turned into me wanting to be. Me being there kept you safe. That's exactly why you keep saying things like that with how fucked everything is right now. I've always just been what you needed, that's all you've known but it's not who I am."
-
-"My life being in nothing les of shambles is not misdirecting your worth to me or as a person, Dain Aetos." Violet hisses, pulling the reigns when the mare begins to shift away. The horse whinnies and shifts, shaking Violet some but the woman doesn't budge, and hardly makes a move to keep her position,
-
-"I know who you are, and what you're capable of. I know you aren't your fucking dad and I realized right alongside you with my mother that he couldn't be trusted. You've never been a bad person, just headstrong like the rest of us."
-
-"But I—"
-
-"—I'm not finished." she growls, "You made the decisions you thought you needed to in order to protect me, and I had every right to be angry with you for them. But I was wrong to let those decisions become all there was to you. I see you, Dain. I do, really. Especially right now, after everything I told you last night and this morning." She rolls her neck, then forces a heavy breath through her nose.
-
-"I've done everything that goes against any sort of sane reasoning. Protecting fliers, looking for Andarna's kind, and sheltering... *venin*." her chin lifts, "Yet you intend to stand by me even through this? Even with Cath disagreeing with it all?"
-
-"He likes Sgaeyl enough to look past it and allow me to continue getting involved with you." Dain admits weakly, "He might not ever like you, but I promise he'll be cordial for his peer's sake, if not mine. We'll be there for you in whatever way makes sense for us both."
-
-She howls out a laugh, "Tairn too, but it's completely my fault he doesn't like you." Violet pets the mare and brushes the silver forelocks rustled by a cooling breeze away from her eyes, "I'll be honest there isn't much of a plan right now, but as people come around we can form a more proper one."
-
-"Who is we?"
-
-"Myself and Brennan, Mira is still struggling to talk."
-
-Dain licks his lips and pets the mare too, "Does Mira know?"
-
-"She does."
-
-"I know your squad knows, but... Mairi?"
-
-Violet jerks a bit, then shakes her head, "No, and do *not* tell her. I was going to ask you to keep an eye on her and Lynx too."
-
-"Why Lynx?" he pauses, thinking she probably wants to tell Sloane herself, "I'll do it though, I can, no issue; also, I didn't plan on telling anyone. All of is isn't a 'tell someone' kind of thing."
-
-"Remember about the venin that had been hunting me? Theophanie?"
-
-"She only just slit open Mira's neck, of course I do." Dain spits out with a quick eye roll.
-
-"I've learned a surefire bit about venin between her, Jack Barlow, and Xaden; principally that nature likes all things in balance. Do you remember Lynx's signet?"
-
-"Shadow wielding..."
-
-Violet smiles softly, "I think I should've known then that I was going to lose Xaden when he first manifested."
-
-Dain stops petting and sighs, "I'm going to need *all* of that information on venin consolidated into some notes for me, stat."
-
-"Already ahead of you. I'll be done by Sloane's next tutoring session with you, I'll send her with it."
-
-"Right," He begins, "So the little bit of a plan that you do have?"
-
-She doesn't say anything at first, but when his eyes meet hers again he swears they're more purple than any other color he's pinned them for and Violet looks like the smallest warlord he's ever seen atop the mare.
-
-"*Mutiny.*"
-
+what goes here?
 ---
 
 "About runes? What questions do you have?"
@@ -332,7 +258,7 @@ Darius slides the tip of his shoe up the ankle of Dain's boot and begins stackin
 
 "That's *not* what I said." Dain chokes and abruptly finds the crowded Mess Hall worthy of his complete attention. He doesn't get how Darius never cringes at the things he willingly says.
 
-And, as if to prove that point, Darius responds, "I like when you get all snippy, but I also think that you'll give in."
+And, as if to prove that point, Darius responds, "I like when you get all snarky, but I also think that you'll give in."
 
 Dain lets himself laugh, and it shakes his whole body, taking any tension with it. Darius watches, wiggling his eyebrows obnoxiously while Dain composes himself.
 
@@ -356,9 +282,9 @@ Matthias and Violet seat themselves on either side of Sloane, who watches Darius
 
 "Ri," Dain agrees. "Like Darius."
 
-"Huh." Matthias brushes her braids and curls over her shoulders.
+"Huh." Matthias tugs her braids over her shoulders. Dain sinks back into his seat. He hadn't expected any more company and might've left with Darius to go see Kaia, but it's also nice being able to talk to Violet again, for whatever that's worth now. 
 
-Dain sinks back into his seat. He hadn't expected any more company and might've left with Darius to go see Kaia, but it's also nice being able to talk to Violet again, for whatever that's worth now. "Hey, Vi."
+"Hey, Vi."
 
 "Feeling any better?" Violet gives him another genuine smile, one of the few he's seen from her in ages. It doesn't tug anything within him, though; it's just nice to see her do something besides scowl as of late.
 
@@ -366,23 +292,23 @@ His eyes find the table before he looks back up to answer her. "...No."
 
 Matthias's eyes travel from Violet to Dain with one brow climbing. "Are you sick or something? Haven't seen you since yesterday."
 
-"No." Dain avoids looking at Violet by focusing on Sloane. "Just tired."
+"No." Dain avoids looking at Violet by focusing on Sloane. "Just tired. Thanks for handling everything, didn't mean to put you on the spot so soon."
 
-"So, you *do* experience fatigue?" Matthias jokes. She begins to eat, but her attention remains mostly on Dain. "You've been absent more times this week than all of last year."
+"No problem, perfect time to prove myself to you and everyone else. But you *do* experience fatigue?" Matthias jokes. She begins to eat, but her attention remains mostly on Dain. "You've been absent more times this week than all of last year, Dain Aetos."
 
-Dain presses the heels of his hands into his eyes. "I get tired sometimes. Perpetually shielding and just..." He runs his hands through his hair, fingers pulling the curls loose and forcing them back; he needs a haircut. "Processing everything."
+Dain presses the heels of his hands into his eyes. "Perpetually shielding and just..." He runs his hands through his hair, fingers pulling the curls loose and forcing them back; he needs a haircut. "Constantly processing everything eventually takes it's toll."
 
 Matthias stops eating. "Everything? Everything what?"
 
-"Me," Violet quietly adds. Her fork worries at the barely touched food on her plate before she leans back enough to catch Matthias's eye behind Sloane. "You know."
+"Me, you know." Violet murmurs. Her fork worries at the barely touched food on her plate before she leans back enough to catch Matthias's eye behind Sloane, she gives Dain a stoney look.
+
+"You need to be careful; burnout doesn't work the same for everyone else as it does inntinnsics." She insists.
+
+Dain winces at her concern apprehension. It feels alien.
 
 Matthias blanches. "You told him?"
 
-"Told him what?" From between them, Sloane looks to Matthias first, and then Violet. Neither answers and Matthias only shakes her head.
-
-"Does Imogen know?" Matthias’s face stills as she turns fully toward Violet.
-
-"You didn't tell us you were telling him."
+"Told him what?" From between them, Sloane looks to Matthias first, and then Violet. Neither answers and Matthias only shakes her head. Matthias’s face stills as she turns fully toward Violet, "You didn't tell us you were telling him. Does Imogen know?"
 
 Sloane glowers and turns to Violet as well. "Tell him what?"
 
@@ -424,7 +350,7 @@ Dain twitches. "More wardstones and an additional hatching ground? Proof of a se
 
 "So then, this morning was meant to get us accustomed to one another and brief Cath directly, because that's what *who* wants, exactly?"
 
-Violet shrugs. "I don't *know.* It could've been Tairn. Whatever was decided, I have no recollection of it." She presses her fingers into her forehead. "The only thing Andarna's made abundantly clear is that I'm going to be seeing a lot more of you, and Cath. And knowing he fucking hates my guts isn't making this any easier."
+Violet shrugs. "I don't *know.* It could've been Sgaeyl. Whatever was decided, I have no recollection of it." She presses her fingers into her forehead. "The only thing Andarna's made abundantly clear is that I'm going to be seeing a lot more of you and Cath. And knowing he fucking hates my guts isn't making this any easier."
 
 "Cath's considerably better at separating his personal grievances from his responsibilities than most people I know." Dain exhales slowly. "I'll make sure you're informed of anything he tells me and whether or not you'll be able to help with it."
 
@@ -433,3 +359,7 @@ Violet stares at her cold meal. Across Sloane, Matthias’s attention passes une
 "Okay, thanks. I'll do the same." Violet gathers her barely touched plate and gets to her feet. "See you around?"
 
 "Yeah, see you around, Vi."
+
+Dain deflates.
+
+It's always been interesting, he considers, the way life just fucking snowballs and moves on regardless of him being ready or even mildly prepared for the pace at which he's meant to adjust.
