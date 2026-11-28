@@ -1,12 +1,12 @@
 Leaving within the hour with Violet's ex turns into a whole *day*.
 
-Tecarus is transparent enough—somethings off with the ship's crew; illness, compliance, tardiness. He can't remember whatever the fuck he'd said, and honestly he didn't care. He'd made a pointed effort in shadowing Violet most of the day in case he needed to fend off Halden—*or* Dain, but oddly enough, he seems overwhelmed with the environment around him—and it seems Iron Squad has picked up on her discomfort with him and it makes it that much easier to bird-watch his lover.
+Tecarus is transparent enough—something's off with the ship's crew; illness, compliance, tardiness. He can't remember whatever the fuck he'd said, and honestly, he doesn't care. He'd made a pointed effort to shadow Violet most of the day in case he needed to fend off Halden or Dain, but oddly enough, Aetos seems entirely preoccupied with the environment around him. It seems Iron Squad has also picked up on her discomfort with the Prince, making it that much easier to bird-watch his lover.
 
-Xaden lurks in complete silence as they all view the butterfly garden, the pools, and the pit that Tecarus had nearly lost fucking life at on the viewing terrace above. They're _oo-ing_ and _awe-ing_ over fantastical sights that seem too vivid to be real—lush color bleeding into every edge of the world, a nauseating contrast to Basgiath’s iron palette of ash and blood.
+Xaden lurks in complete silence as they all view the butterfly garden, the pools, and the pit that Tecarus had nearly lost his fucking life in on the viewing terrace above. They're _oo-ing_ and _awe-ing_ over fantastical sights that seem too vivid to be real—lush color bleeding into every edge of the world, a nauseating contrast to Basgiath’s iron palette of ash and blood.
 
 *"Funny to think a place like this exists so peacefully behind the wards."* Violet says through the bond, caressing his mind with her sweet voice as she tracks tropical birds passing by them,
 
-*"I find it more appropriate to consider how repulsive it is that Navarre exists."* he scoffs, crowding her from behind and bracketing encircling her body against the balcony above the *third* pool Ridoc has somehow managed to stumble upon.
+*"I find it more appropriate to consider how repulsive it is that Navarre exists."* he scoffs, crowding her from behind and bracketing her body against the balcony above the *third* pool Ridoc has somehow managed to stumble upon.
 
 She leans back against his body and places a wet kiss where his throat and jaw connect.
 
@@ -20,77 +20,77 @@ She sighs deeply and Dain glances in their direction.
 
 He looks right at her, but he's thinking about Cath.
 
-Xaden's eyes narrow on the brunette; he's literally always thinking about *Cath.* He's spent the entire morning imaging what it would be like to fly over the palace on his swordtail, or over the ocean again, or to sit on the beach with him. He assumes Cath does it right back because he smiles randomly, earnestly happy without anyone saying a damn thing to him, like a fucking creep.
+Xaden's eyes narrow on the brunette; he's literally always thinking about *Cath* whenever Xaden catches him without his shields up. Dain's spent the greater portion of the morning imagining what it would be like to fly over the palace on his Swordtail, or over the ocean again, or to sit on the beach with Cath. He can only assume Cath does it right back, because the cadet smiles randomly, earnestly happy without anyone saying a damn thing to him.
 
 Fucking *weirdo.*
 
-He reaches for her—Sgaeyl, now a whisper in the void—but the silence is suffocating. Not cold. Not angry. Just... vacant. Like calling to someone who's already walking away. His eyes bulge a bit at Dain across the terrace; it's unfair that he gets to speak to his dragon all day while his wouldn't even spare him a glance. He rips his eyes away and refocuses on the pool.
+He reaches for Sgaeyl, now a whisper somewhere in the void of their bond, but the silence is suffocating. Not cold. Not angry. Just... vacant. Speaking to her within their pathway feels akin to screaming after her mid-flight, as though he'd only ever been some pointless variable to which she'd been unwillingly anchored.
+
+His eyes bulge a bit at Dain across the terrace; it's unfair that someone as unimportant as Aetos gets to speak to his dragon all day while Xaden's wouldn't even spare him a glance. He eventually manages to rip his eyes away from Dain and refocuses on the pool.
 
 *"Did he do something?"*
 
 Xaden blinks, *"Who?"*
 
-*"Dain."* Violet shuffles between his arms and he squeezes her,
+*"Dain."* Violet shuffles between his arms and he squeezes her.
 
-*"No. Just..."*
+*"No. Just..."* Xaden feels his face drag through a combination of expressions, *"He's so fucking strange."*
 
-She blinks up at him, *"Reading him?"*
+His lips wrench downwards into a frown; he nearly lets "unpredictable" slip, but that's not a descriptor meant for an Aetos. Certainly not this one.
 
-He nods and rests his head atop hers, breathing in her light scent, *"All he does is think about Cath, and his shields are usually up."*
+Violet glances up at him and then Dain, *"Are you reading him?"*
+
+He nods and rests his head atop hers, breathing in her light scent, *"There's only ever room in that curly head of his for Cath, when he's not shielding. Which is almost always."* Xaden scoffs, *"I doubt he has anything to hide, so what's the point of them always being up?"*
 
 His own surprise leaks into her, *"Really? Wasn't expecting that. Maybe that's what he thinks about when he doesn't need to think wingleader thoughts?"*
 
-*"I barely thought about being a wingleader when I was one."* He sneers inwardly; the whole point of leadership positions was to exercise the ability to efficiently utilize the chain of command and not overwhelm yourself doing it all individually.
+*"I barely thought about being a wingleader when I was one."* He sneers inwardly; the whole point of leadership positions was to exercise the ability to efficiently utilize the chain of command and not overwhelm yourself doing it all individually. Naturally, Aetos was probably too much of a haughty prick to let himself arrive at that conclusion.
 
-Violet looks up at him again, calico eyes glassy, her flushed face kissed by heat and weariness. Sweat beads at her temple, catching in the pale wisps of hair clinging to her cheek. He wants to scoop her up, demand Ridoc freeze the room over until her body sits at a perfect resting temperature, and not let her lift a single finger. She's about to tell him about Dain's lack of natural charisma and impulsiveness when she sags forward,
+Violet looks up at him again, calico eyes glassy, her flushed face kissed by heat and weariness. Sweat beads at her temple, catching in the pale wisps of hair clinging to her cheek. He wants to scoop her up, demand Ridoc freeze their room over until her body sits at a perfect resting temperature, and to not let her lift a single finger. She's about to tell him about Dain's lack of natural charisma and impulsiveness when she suddenly sags forward, 
 
-"Violet?" he says gently then rolls his body forwards and pins her between the railing and his hips, "Let's head back."
+"Violet?" he says gently, then rolls his body forwards and pins her between the railing and his hips, "Let's head back."
 
 She twists in his embrace and grabs his face, "No, please. Don't spend the day hovering over me; you should try talking to Sgaeyl,"
 
 "We both know how that'll go, love."
 
-"You can still try—I just saw them fly in, towards the shoreline."
+"You can still try—they're all out by the beach, towards the southwestern shoreline."
 
 The worry on her face is palpable and makes him sick. She won’t say it, but he sees it—the way her shoulders sag when she thinks no one’s looking. The tremble she hides  behind that steel spine. Honestly he would rather sit in the room with her while she slept, just to watch her and eventually fall asleep himself but if he pushed she would only become difficult—because *Violet.* Xaden weighs the odds of her forcing herself to stay out if he insisted on following her. He could offer sex too, but he'd already worn her out this morning.
 
-"What if—,"
+Xaden begins to unspool advocacy for a death not brought upon him by Blue Daggertail, "What if—,"
 
 Her features morph into a grimace, a breathtaking one, "*Xaden*."
 
-He sighs, "Fine. I'll stare at Sgaeyl until Tairn tells me to fuck off I guess."
+He sighs, "Fine. I'll stare at Sgaeyl until Tairn tells me to fuck off I guess." He spouts out a lie because he has no interest in being calcined by his Daggertail just for bringing up the consequences of a choice he’d made himself, and the palace’s pomp sucked the pleasure of being away from Navarre straight from his bones.
 
-He sure as fuck wasn’t getting torched by his daggertail just for bringing up the consequences of a choice he’d made himself, and the palace’s pomp sucked the pleasure of being away from Navarre straight from his bones.
+"Thank you, *your Grace.*" she chirps sweetly and pulls him into a kiss.
 
-"Thank you, *your Grace*." she chirps and pulls him into a kiss.
+Xaden closes his eyes and slants his mouth over hers until she pulls away; she has that dazed look in her face just from fucking *kissing* him and he fights to keep himself from getting hard. She makes it twice as difficult after presenting him a dazed smile, lips parted like she forgot what she was about to say and Xaden slides his hands up her sides. She grabs at them tightly when he presses his thumbs into the dip of her hips,
 
-Xaden closes his eyes and slants his mouth over hers until she pulls away; she has that dazed look in her face just from fucking *kissing* him and he fights to keep himself from getting hard. Violet pulls back with a dazed smile, lips parted like she forgot what she was about to say and Xaden slides his hands up her sides. She grabs them tightly when he presses his thumbs into the dip of her hips,
+"Only for you, love." His displeasure peaks when Halden's voice floats through the foyer to where they stand on the terrace, "Go. So I don't have to fucking kill him."
 
-"Only for you, love." 
-
-His displeasure peaks when Halden's voice floats through the foyer to where they stand on the terrace, "Go. So I don't have to fucking kill him."
-
-He can tell he's close enough to eventually spawn in the area they're all occupying, but he also has company—Xaden reaches through the shadows around the Prince; there's no one important. Next to him Dain hears Halden's voice as well, and he imagines Xaden's signet pulling the Prince over the balcony, onto the polished stone flooring around the pool below, and cracking his skull against it. When Xaden looks over in surprise he finds a frown plastered against Dain's face; he glances over at him and Violet and then turns to where Halden's voice came from.
+He can tell the slimy Prince is close enough to eventually spawn in the area they're all occupying, and he also has company. Xaden reaches through the shadows around the Prince; there's no one important. Next to them Aetos hears Halden's voice as well, it catches the other male off guard enough to glower and imagine Xaden's signet pulling the Prince over the balcony, onto the polished stone flooring around the pool below. When Xaden looks over in surprise he finds a frown plastered against Aetos's face; their eyes meet and Aetos gives Xaden his back, pivoting to where Halden's voice crawled in from.
 
 Violet's freed herself of his grasp and stretches a bit, lifting to her toes and spreading her fingers like a kitten, *"What?"*
 
-*"He just imagined me dropping Halden into the first floor."*
+*"He just imagined me dropping Halden onto the first floor from this balcony."*
 
-Her eyebrows zip into the clouds, and she spares her best friend a concerned glance, *"Really?"*
+Her eyebrows zip into the clouds, and she spares her "best friend" a concerned glance, *"Dain did? Really?"*
 
-*"Maybe I should."*
+*"Maybe I should."* Xaden admits lazily; not like the Poromish would give two fucks *or* a damn.
 
-She lets one drop and giggles, it makes his skin pepper with goosebumps and he nearly purrs,
+She lets one brow drop and giggles and it makes his skin pepper with goosebumps.
 
-*"Who would've thought that's how the two of you would bond? Murdering royalty."*
+*"Who would've thought that's how the two of you would bond? Murdering royalty."* Violet teases.
 
-*"Done it before and will happily do it again."* he coos.
+*"Finished a prince before and will happily do it again."* he coos venomously.
 
-He meant it too. Aaric was digestible—but the other two? Worth less than Dain.
+He means it too. Aaric was digestible—but the other two? Worth less than Aetos.
 
 "Go." he tells her again, "Before I change my mind."
 
-"Please don't." she teases, stealing another kiss and bounding away in the direction of their room.
+"Please don't." she begs, stealing another kiss and bounding away in the direction of their room.
 
 Xaden watches her, the switch of her hip and the loose braid that swings between her shoulder blades. *Gods*, he wants to go with her. There's nothing he'd rather do less than run around like some overly-impressed Navarrian in a palace full of people who wished they would—
 
